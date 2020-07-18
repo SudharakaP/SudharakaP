@@ -1,4 +1,4 @@
-## :smile: Trivia of the Minute :smile:
-28 is the number of a car formerly run in the NASCAR Sprint Cup Series by Yates Racing.
+## :smile: Hello! Do you know that... :smile:
+69 is the number Bill and Ted were thinking of when talking to their future selves.
 
 <sup>(come back in 5 minutes for the next trivia)<sup>
