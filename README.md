@@ -1,4 +1,4 @@
-## :smile: Hello! Do you know that... :smile:
-32 is the freezing point of water at sea level in degrees Fahrenheit.
+## :smile: Hello! Did you know that... :smile:
+3000 is the number of gowns Queen Elizabeth I of England owned when she died.
 
 <sup>(come back in 5 minutes for the next trivia)<sup>
