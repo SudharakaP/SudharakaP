@@ -21,7 +21,8 @@ jobs:
       run: |
         echo "## :smile: Hello! Did you know that... :smile:" > $GITHUB_WORKSPACE/README.md
         curl http://numbersapi.com/random/trivia >> $GITHUB_WORKSPACE/README.md
-        (echo && echo && echo "<sup>(come back in 5 minutes for the next trivia)<sup>") >> $GITHUB_WORKSPACE/README.md
+        (echo && echo && echo "<sup>(come back in 5 minutes for the next trivia)</sup>") >> $GITHUB_WORKSPACE/README.md
+        (echo && echo && echo "<sup>Credits: http://numbersapi.com</sup>") >> $GITHUB_WORKSPACE/README.md
         
     - uses: stefanzweifel/git-auto-commit-action@v4
       with:
