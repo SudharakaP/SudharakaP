@@ -21,7 +21,7 @@ jobs:
       run: |
         echo "## Trivia of the Minute" > $GITHUB_WORKSPACE/README.md
         curl http://numbersapi.com/random/trivia >> $GITHUB_WORKSPACE/README.md
-        $(echo && echo "<sup>(tune in for the next trivia in 1 minute)<sup>") >> $GITHUB_WORKSPACE/README.md
+        (echo && echo "<sup>(tune in for the next trivia in 1 minute)<sup>") >> $GITHUB_WORKSPACE/README.md
         
     - uses: stefanzweifel/git-auto-commit-action@v4
       with:
