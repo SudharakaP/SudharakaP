@@ -1,8 +1,6 @@
 name: Random Trivia Update
 
-on:
-  push:
-    branches: [master]
+on: push
 #   schedule:
 #     - cron: '* * * * *'
 
