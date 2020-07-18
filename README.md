@@ -1,4 +1,4 @@
 ## :smile: Hello! Did you know that... :smile:
-142 is the number of home-based business ideas included in the 142 Now packet.
+714 is the number of home runs Babe Ruth scored in his career.
 
 <sup>(come back in 5 minutes for the next trivia)<sup>
