@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
+1000 is the number of elephants it took to bring in the material to build the Taj Mahal from various parts of India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
