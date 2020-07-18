@@ -1,4 +1,4 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the number of movements in a symphony.
+85 is the IQ and nickname of Aaron in Alien 3.
 
 <sup>(come back in 5 minutes for the next trivia)<sup>
