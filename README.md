@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the population of Arguisuelas, Castile-La Mancha, Spain.
+26 is the number of miles in a marathon rounded down (26 miles and 385 yards).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
