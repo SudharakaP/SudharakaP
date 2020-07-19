@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
+159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
