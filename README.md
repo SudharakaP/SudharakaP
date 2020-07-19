@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the number of points on the stylized maple leaf on the Flag of Canada.
+27 is the number of countries in the European Union (as of August 2011).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
