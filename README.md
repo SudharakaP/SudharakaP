@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-99 is a common price ending in psychological pricing.
+110 is a common name for mains electricity in North America, despite the nominal voltage actually being 120V (range 110-120).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
