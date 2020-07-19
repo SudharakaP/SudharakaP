@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000 is the number of elephants it took to bring in the material to build the Taj Mahal from various parts of India.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
