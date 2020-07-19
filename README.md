@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5200 is the number of standard size of a legion in the Roman Empire.
+217 is the room in Stephen King's novel "The Shining", that plays a central part in the story as it is haunted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
