@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the hottest temperature ever measured in the United States in Fahrenheit  at Death Valley, California on July 10, 1913.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
