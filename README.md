@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the maximum speed of analog data transmission over a POTS in the 20th century measured in kbit/s.
+8674 is the number of unique words in the Hebrew Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
