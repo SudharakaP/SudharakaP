@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
+213 is the radical meaning "turtle", one of only two of the 214 Kangxi radicals that are composed of 16 strokes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
