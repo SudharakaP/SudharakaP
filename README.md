@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-27 is the number of moons of the planet Uranus.
+135 is the atomic number of an element temporarily called untriquadium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
