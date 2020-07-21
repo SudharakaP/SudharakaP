@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
