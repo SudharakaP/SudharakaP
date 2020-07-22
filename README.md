@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the police emergency telephone number in Egypt.
+55 is the standard size of drum in US gallons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
