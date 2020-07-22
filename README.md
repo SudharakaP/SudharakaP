@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is a standard length of playing cards in mm.
+555 is the number of keyboard sonatas written by Domenico Scarlatti, according to the catalog by Ralph Kirkpatrick.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
