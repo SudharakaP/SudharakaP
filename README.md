@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-470 is the minimum length in yards from the tee to the hole on a Par 5.
+Infinity is the estimation of the game-tree complexity in the game of Go.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
