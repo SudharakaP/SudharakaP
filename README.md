@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the speed limit, in kilometers per hour, of Australian roads with unspecified limits.
+4200 is the number of standard size of a legion in the Roman Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
