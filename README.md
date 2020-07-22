@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-364 is the total number of gifts received in the song "The Twelve Days of Christmas".
+1750000 is the number of entries in the freedb database of CD track listings as of June 2005.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
