@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
