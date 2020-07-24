@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the number of episodes that the The Mary Tyler Moore Show ran on CBS from 1970 to 1977.
+195 is the number of runs by Dick Culler in his Major League Baseball career from 1936-1949.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
