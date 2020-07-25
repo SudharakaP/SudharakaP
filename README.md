@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
+198 is the number of films that actor Neal Burns appeared in between 1915 and 1946.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
