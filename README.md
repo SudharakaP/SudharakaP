@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1400000 is the number of species that have been named by the World Resources Institute.
+720 is the number of degrees in two circles (= 2 × 360).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
