@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
+712 is the largest known number such that it and its 8th power have no common digits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
