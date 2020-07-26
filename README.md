@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-63 is the number of chromosomes found in the offspring of a donkey and a horse.
+240 is the number of pence in a pound in the British currency until 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
