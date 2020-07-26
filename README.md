@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-0 is the coldest possible temperature old the Kelvin scale.
+130 is the approximate maximum height in meters of trees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
