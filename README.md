@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3 is the number of points received for a successful field goal in both American football and Canadian football.
+194 is the rank of Isle of Man in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
