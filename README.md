@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
+17 is the minimum driving age for a car or van in the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
