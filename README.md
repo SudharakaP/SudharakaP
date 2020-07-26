@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-29 is the number of days it takes Saturn to orbit the Sun.
+220 is the common voltage in many countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
