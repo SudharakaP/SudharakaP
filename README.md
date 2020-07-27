@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-712 is the largest known number such that it and its 8th power have no common digits.
+29 is the number of days it takes Saturn to orbit the Sun.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
