@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is a trick used in extreme sports where a rider rotates half a turn while airborne and lands.
+24 is the maximum number of Knight Companions in the Order of the Garter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
