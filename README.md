@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the number of universes in multiverse theory.
+285 is the total number of Rules of Acquisition in Star Trek.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
