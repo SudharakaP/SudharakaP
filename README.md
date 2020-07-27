@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
+186 is days between the spring and fall equinoxes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
