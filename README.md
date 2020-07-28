@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is a number that is a rare lucky number, and has been written about by anthropologist Emily Anne McDonald.
+1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
