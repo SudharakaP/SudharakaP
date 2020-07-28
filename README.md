@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4200000 is the number of couples in the United States that live together but are not married.
+198 is the population of Wormshill, Kent, England.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
