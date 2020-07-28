@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-213 is the radical meaning "turtle", one of only two of the 214 Kangxi radicals that are composed of 16 strokes.
+128 is the bytes of memory of the Atari 2600 console.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
