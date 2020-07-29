@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6000000 is the number of parts in the Boeing 747-400.
+4000 is the weight in pounds that the Great White Shark can grow to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
