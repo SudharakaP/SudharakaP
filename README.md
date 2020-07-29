@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-360 is the number of degrees in a circle for the purpose of angular measurement.
+138 is essendon's losing margin against Adelaide in round 10 of the 2006 AFL season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
