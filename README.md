@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
+200 is the minimum number of varieties of watermelons grown in the U.S.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
