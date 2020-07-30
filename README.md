@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
+66 is the number of hot dogs eaten by World record holder Joey Chestnut in 15 minutes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
