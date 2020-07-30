@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-76 is the atomic number of osmium.
+24 is the number of hours in a day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
