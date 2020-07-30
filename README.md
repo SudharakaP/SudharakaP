@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is a radioactive isotope of Caesium formed by nuclear fission.
+56000000000 is the number of web pages indexed by Google as of 2010.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
