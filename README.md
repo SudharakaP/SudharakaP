@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-215 is the Dewey Decimal Classification for Science and religion.
+1 is the number of moons orbiting Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
