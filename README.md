@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
+400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
