@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-171 is the top speed in miles per hours of the the Porsche Cayenne Turbo S automobile.
+35000 is the number of genes in a human being.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
