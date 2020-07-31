@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+150 is the estimation of the game-tree complexity of xiangqi.
+172 is the rank of Iceland in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
