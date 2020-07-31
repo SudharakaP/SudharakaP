@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-162 is 162 is the total number of baseball games each team plays during a regular season in Major League Baseball.
+164 is the number of cards in the set Baseball Talk, released by Topps Baseball Card Company in 1989.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
