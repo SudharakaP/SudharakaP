@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-130 is the approximate maximum height in meters of trees.
+27 is the number of bones in the human hand.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
