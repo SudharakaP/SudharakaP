@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-201 is the title of an episode of South Park.
+402000000 is the number of native speakers of English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
