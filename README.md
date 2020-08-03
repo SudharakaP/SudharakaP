@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the atomic number of an element temporarily called Unennoctium.
+24 is the number of carats representing 100% pure gold.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
