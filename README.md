@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
+712 is the largest known number such that it and its 8th power have no common digits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
