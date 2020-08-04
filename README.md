@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the number of episodes of the TV series 3rd Rock from the Sun that ran on NBC from 1996 to 2001.
+29 is the number of days it takes Saturn to orbit the Sun.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
