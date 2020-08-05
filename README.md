@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the population of Giry, France.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
