@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-68 is the ideal temperature (F) for developing black-and-white film.
+132 is the number of episodes of the TV series Martin that ran on Fox from 1992 to 1997.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
