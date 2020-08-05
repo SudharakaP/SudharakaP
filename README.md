@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-400000000000 is the number of stars in the Milky Way galaxy.
+178 is the rank of Estonia in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
