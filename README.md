@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is minuscule 195 is a Greek minuscule manuscript of the New Testament, on parchment.
+538 is the total number of votes in the Electoral College of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
