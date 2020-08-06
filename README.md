@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-214 is the number of Chinese radicals for the writing of Chinese characters according to the 1716 Kangxi Dictionary.
+81 is the number of stanzas or chapters in the Tao te Ching (in the most common arrangements).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
