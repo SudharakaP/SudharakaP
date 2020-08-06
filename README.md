@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-336 is the number of dimples on an American golf ball.
+16 is the minimum age for getting an adult job in most states and provinces across the globe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
