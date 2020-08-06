@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
+101 is the HTTP status code indicating that a client should switch protocols.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
