@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-105 is the atomic number of hahnium, also known as dubnium.
+131 is the medical emergency telephone number in Chile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
