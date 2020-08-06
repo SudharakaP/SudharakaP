@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3400000000 is the number of total number of speakers of Indo-European languages.
+108 is the percentage volume expansion of freezing water.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
