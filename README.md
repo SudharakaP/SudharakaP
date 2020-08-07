@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-146 is the Guinness World Record for the most languages a poem was recited in.
+72 is the average number of heartbeats per minute for a resting adult.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
