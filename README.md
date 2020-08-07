@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the maximum number of marbles (game pieces) in Chinese checkers.
+8 is the number of legs that arachnids have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
