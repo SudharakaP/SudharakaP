@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110000 is the average number of hairs that people with black hair have.
+28 is the number of letters in the Danish and Swedish alphabets (not counting W), and also in the Arabic and Esperanto alphabets.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
