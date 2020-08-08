@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the number of points in a pentagram.
+185 is the rank Grenada in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
