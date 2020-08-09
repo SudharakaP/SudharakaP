@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-142600 is tonnes of gold mined in the world by the end of 2000.
+218 is votes required in the US House of Representatives to achieve a majority as of 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
