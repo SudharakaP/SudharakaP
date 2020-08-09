@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40000000 is the number of times lightning hits the ground 40 million times a year in the United States.
+493 is the number of Pokémon species, from the first set through the fourth generation as of August 2009.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
