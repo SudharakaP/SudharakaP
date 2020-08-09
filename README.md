@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-207 is the area code for the US state of Maine.
+30 is the minimum age for United States senators.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
