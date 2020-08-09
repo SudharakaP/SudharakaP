@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20000000000 is the approximate number of coconuts produced worldwide each year.
+172 is the record in miles per hour of John White's shot in squash.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
