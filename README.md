@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
