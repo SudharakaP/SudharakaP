@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+201 is the Saros cycle; the next solar eclipse in this cycle is predicted to take place in AD 3223.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
