@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the number of babies born in a quintuplet.
+3000000000 is the number of base pairs in the human genome.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
