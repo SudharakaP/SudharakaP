@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the Opus number of one of Beethoven's greatest works.
+68 is the ideal temperature (F) for developing black-and-white film.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
