@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000000000 is the number of neurons in the human brain.
+116 is the record for number of wins in a single season of Major League Baseball achieved by the Chicago Cubs in 1906 and the Seattle Mariners in 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
