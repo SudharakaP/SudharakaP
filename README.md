@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
+1750000 is the number of entries in the freedb database of CD track listings as of June 2005.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
