@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44 is the percentage of kids who watch television before they go to sleep in the US.
+119 is a number to report children / youth at risk in France.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
