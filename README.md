@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the number of states in the United States of America.
+120 is the medical telephone number in China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
