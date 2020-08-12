@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1631 is two London bible printers accidentally left "not" out of the 7th commandment, which then read "Thou shalt commit adultery.".
+243 is the number of isotopes or variations of elements calculated by Dr. Plichta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
