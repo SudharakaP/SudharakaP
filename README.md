@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3500000000000 is the estimated population of fish in the ocean.
+110 is the number of stories of both towers of the former World Trade Center in New York.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
