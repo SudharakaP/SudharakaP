@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-31 is the number of days in the months January, March, May, July, August, October and December.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
