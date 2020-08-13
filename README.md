@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-134 is the number of episodes of the TV series Xena Warrior Princess.
+108 is the number of outlaws in the Chinese classic Water Margin/Outlaws of the Marsh.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
