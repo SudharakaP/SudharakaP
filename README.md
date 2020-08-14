@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+198 is the number of films that actor Harvey Clark appeared in between 1915 and 1938.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
