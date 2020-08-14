@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-364 is the total number of gifts received in the song "The Twelve Days of Christmas".
+112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
