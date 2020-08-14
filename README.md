@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-564000 is the number of words in War and Peace by Leo Tolstoy.
+6 is the highest number on one end of a standard domino.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
