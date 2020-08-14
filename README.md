@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
+538 is the total number of votes in the Electoral College of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
