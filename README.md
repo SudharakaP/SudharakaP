@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the percentage of water of which the human body is composed.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
