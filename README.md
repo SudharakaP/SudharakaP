@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the reported number of survivors aboard the USS Neptune, in the 1978 disaster film Gray Lady Down, upon its initial depth position of 1,450 feet.
+201 is the HTTP status code indicating a new resource was successfully created in response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
