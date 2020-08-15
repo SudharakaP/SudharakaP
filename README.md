@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
+165 is the miles of Tahoe Rim Trail, a long-distance hiking trail around Lake Tahoe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
