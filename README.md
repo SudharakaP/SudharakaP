@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-71 is the number of different characters that can be used with a standard English Keyboard, excluding uppercase letters.
+132 is the Opus number of one of Beethoven's greatest works.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
