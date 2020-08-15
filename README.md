@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the Opus number of one of Beethoven's greatest works.
+73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
