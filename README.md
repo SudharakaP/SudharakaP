@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the total number of books in the Holy Bible in the Catholic version.
+43687 is the number of toilet related accidents in the United States in 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
