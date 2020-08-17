@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+63 is the estimate by Archimedes in The Sand Reckoner of the total number of grains of sand that could fit into the entire cosmos.
+240 is the number of pence in a pound in the British currency until 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
