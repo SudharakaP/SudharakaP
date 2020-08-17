@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the number of outlaws in the Chinese classic Water Margin/Outlaws of the Marsh.
+26 is the number of episodes in a television program each year (usually).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
