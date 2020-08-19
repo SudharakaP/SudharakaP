@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1728 is braces were first invented by Pierre Fauchard.
+46 is the number of samurai, out of 47, who carried out the attack in the historical Ako vendetta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
