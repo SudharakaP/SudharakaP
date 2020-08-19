@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
+101 is the first course in a subject taught at a college or university in Australia, Canada, South Africa, or the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
