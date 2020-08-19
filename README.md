@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6800 is the approximate number of languages in the world.
+19 is the final year a person is a teenager.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
