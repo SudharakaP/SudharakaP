@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the number of brains a leech has.
+177 is the all-time titles record held by Tennis Hall of Famer Martina Navratilova.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
