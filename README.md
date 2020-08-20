@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-151 is total number of types of Pokémon in the original set.
+109 is the atomic number of meitnerium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
