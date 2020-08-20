@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is the number of stories of both towers of the former World Trade Center in New York.
+47 is the number of El-Aurians Scotty manages to beam up before their ship is destroyed by the energy ribbon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
