@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the feet that three-time Olympic gold medalist John Flanagan achieved in the hammer throw in 1904 (168 feet, 1 inch).
+139 is the number of episodes of the TV series Your Show of Shows that ran on NBC from 1950 to 1954.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
