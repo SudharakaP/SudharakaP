@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-300 is the approximate number of Spartans who fought to death at the Battle of Thermopylae.
+400000 is the number of morphine addicts the Civil War produced.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
