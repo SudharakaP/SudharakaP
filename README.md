@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
+73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
