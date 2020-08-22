@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
+3 is the number of words or phrases in a Tripartite motto.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
