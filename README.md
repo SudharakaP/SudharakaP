@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-46 is the number of slices of pizza an average American kid eats in a year.
+100 is the minimum distance in yards for a Par 3 on a golf course.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
