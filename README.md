@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
+117 is the serial number of protagonist John from the Halo Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
