@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-24 is the number of books in the Tanakh.
+300 is the number of bones humans are born with in their body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
