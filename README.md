@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
+138 is essendon's losing margin against Adelaide in round 10 of the 2006 AFL season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
