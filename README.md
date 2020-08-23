@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-31 is the number of musical triads (12 major, 12 minor, 4 diminished, and 3 augmented).
+59 is the number on a button commonly worn by feminist activists in the 1970s (based on the claim that a woman earned 59 cents to an equally qualified man's dollar).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
