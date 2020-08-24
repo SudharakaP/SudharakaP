@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the minimum age of candidates for election to the United States Presidency.
+61 is the code for international direct dial phone calls to Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
