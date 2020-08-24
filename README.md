@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-131 is the number serving a monkiker for Indie music.
+212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
