@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64 is number of golden disks in the myth of the Tower of Hanoi.
+538 is the total number of votes in the Electoral College of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
