@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-183 is the rank of Laos in countries by population density.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
