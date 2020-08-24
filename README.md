@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-365 is the number of solar days in the mean tropical year.
+38 is the number of minutes in the shortest war in history in which Zanzibar surrendered to England in 1896.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
