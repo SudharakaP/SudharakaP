@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the port number of UDP and TCP for the Domain Name System protocol.
+470 is the minimum length in yards from the tee to the hole on a Par 5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
