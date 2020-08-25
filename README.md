@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
+81 is the number of prayers said in the Rosary in each night.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
