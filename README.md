@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the kilometers in length of Andros, Bahamas.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
