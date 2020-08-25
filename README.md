@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the age of Jeanne Calment when she died.
+159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
