@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3500000000000 is the estimated population of fish in the ocean.
+120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
