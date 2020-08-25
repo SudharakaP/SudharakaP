@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-38 is the number of years it took the Israelites to travel from Kadesh Barnea to the Zered valley in Deuteronomy.
+153 is the code for malignant neoplasm of the colon in the International Statistical Classification of Diseases and Related Health Problems.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
