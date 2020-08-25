@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8 is the number of principles of Yong in Chinese calligraphy.
+179 is the number of even numbered days of the year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
