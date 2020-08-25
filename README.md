@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the record number of points scored in one NBA game by a single player, set by Wilt Chamberlain of the Philadelphia Warriors on March 2, 1962 I.
+52 is the number of cards in a standard deck of playing cards, not counting Jokers or advertisement cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
