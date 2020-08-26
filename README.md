@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
+100000 is the number of thunderstorms that occur in the USA every year, of which 10% are classified as severe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
