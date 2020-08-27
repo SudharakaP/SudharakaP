@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is a percentage in the expression "To give 110%", meaning to give a little more effort than one's maximum effort.
+1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
