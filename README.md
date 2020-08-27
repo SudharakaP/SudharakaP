@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-129 is the atomic number of Unbiennium, an element yet to be discovered.
+230 is the common voltage in the European Union.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
