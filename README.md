@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-165 is the number of episodes that the TV show Daniel Boone ran on NBC from 1964 to 1970.
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
