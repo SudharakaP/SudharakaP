@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the number of points on the stylized maple leaf on the Flag of Canada.
+242 is the area code of The Bahamas located in the North West Atlantic Ocean.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
