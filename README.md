@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the number of basic tastes (sweet, salty, sour, bitter, and umami).
+222 is the score in the 1916 Cumberland vs. Georgia Tech football game that was the record for most points scored by one team in an American football game.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
