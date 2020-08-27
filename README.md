@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-587 is the outgoing port for email message submission.
+243 is the Calling code for Zaire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
