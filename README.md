@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-77 is the atomic number of iridium.
+3 is number of performers in a trio.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
