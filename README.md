@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22 is the number of yards in a chain.
+20 is the number of baby teeth in the deciduous dentition.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
