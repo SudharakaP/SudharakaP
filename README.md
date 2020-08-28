@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the number of different characters that can be used with a standard English Keyboard.
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
