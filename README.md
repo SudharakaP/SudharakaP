@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the number for voicemail for mobile phones on the Vodafone network.
+175 is the number of touchdowns by Former NFL running back Emmitt Smith, ranking him second to Jerry Rice's 207.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
