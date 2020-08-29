@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-18 is the number of colors the labels for Crayola crayons come in.
+186 is the number of odd numbered days during a non-leap year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
