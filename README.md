@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-270 is the average number of days in human pregnancy.
+121 is the number for voicemail for mobile phones on the Vodafone network.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
