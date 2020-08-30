@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
+153 is the ordinal number of the coat of arms of Komi Republic in the State Heraldic Register of the Russian Federation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
