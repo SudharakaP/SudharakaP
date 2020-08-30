@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the length in miles of the The Coast to Coast Walk in England.
+160 is the number of characters permitted in a standard short message service in Australia and Europe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
