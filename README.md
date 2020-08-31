@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1 is the number of moons orbiting Earth.
+174 is the populatiokn of Aupaluk, Quebec (as of 2006).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
