@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the percentage of girls in Bangladesh that are married by age 18.
+185 is the distance a single playing card was thrown in feet by Kevin St. Onge to set a Guinness World Record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
