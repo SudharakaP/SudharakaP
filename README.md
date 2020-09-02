@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is a number considred unlucky in enduro, given to a race entrant and is colloquially known as a "blind pew".
+155 is the number of episodes the TV series Sea Hunt ran in syndication from 1958 to 1961.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
