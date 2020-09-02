@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20000000 is the weight in tons of the average iceberg.
+122 is the age of Jeanne Calment when she died.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
