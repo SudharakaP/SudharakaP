@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1300 is the number of babies born prematurely in the USA every day.
+198 is the number of places listed on the United States National Register of Historic Places in Los Angeles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
