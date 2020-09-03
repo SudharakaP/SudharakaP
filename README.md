@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-433 is the perfect score in the game show Fifteen To One, only ever achieved once in over 2000 shows.
+36 is the number of vehicles that run in each race of NASCAR's Camping World Truck Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
