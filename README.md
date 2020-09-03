@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-230 is the common voltage in the European Union.
+3 is cans of Spam consumed every second in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
