@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is a common name for mains electricity in North America, despite the nominal voltage actually being 120V (range 110-120).
+46 is the number of samurai, out of 47, who carried out the attack in the historical Ako vendetta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
