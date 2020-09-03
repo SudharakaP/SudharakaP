@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-21 is the number of demands which were sent to the Chinese government by the Japanese government of Okuma Shigenobu in 1915.
+28 is the number worn by the Clemson Tigers' record breaking running back C.J.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
