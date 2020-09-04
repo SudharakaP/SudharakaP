@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is is the atomic number of mendelevium, an actinide.
+29 is the number of letters in the Turkish,Finnish, Swedish,Faroese,Danish and Norwegianalphabets.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
