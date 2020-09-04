@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-99 is the highest jersey number allowed in most major league sports.
+1 is the loneliest number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
