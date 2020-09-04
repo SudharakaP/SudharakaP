@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172000 is tons of chocolate produced in Belgium in a year.
+186 is the rank of Somaliland in countries by population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
