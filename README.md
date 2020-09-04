@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the population of Guedanga, in the Ouo Department of ComoÃ© Province, Burkina Faso.
+161 is the atomic number of an element temporarily called Unhexunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
