@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-930000 is the number of words in the King James Version of the Bible.
+22 is the typical length in minutes of a half hour sitcom not including commercials.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
