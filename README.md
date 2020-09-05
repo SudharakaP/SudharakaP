@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8e+120 is the ratio of the mass-energy in the observable universe to the energy of a photon with a wavelength the size of the observable universe.
+106 is the maximum number of characters filenames can have in Joliet, an extension to the ISO 9660 file system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
