@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64 is the total number of black and white squares on the game board in chess or draughts.
+21 is the number of points required to win a game in badminton and table tennis (before 2001).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
