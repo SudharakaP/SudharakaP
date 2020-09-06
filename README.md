@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-365 is the number of solar days in the mean tropical year.
+218 is votes required in the US House of Representatives to achieve a majority as of 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
