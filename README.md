@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-538 is the total number of votes in the Electoral College of the United States.
+149 is the number of goals a Madagascar soccer team scored against itself after the coach argued a call, and players kicked the ball into their own net 149 times.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
