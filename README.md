@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
+7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
