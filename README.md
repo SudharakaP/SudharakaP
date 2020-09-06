@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
+136 is the hottest temperature ever recorded in Fahrenheits at Aziziya, Libya in September 1922.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
