@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the percentage of employees in the USA who eat lunch and work at the same time.
+78 is the number of lines that make up Metatron's Cube.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
