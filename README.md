@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the miles long of the Hetch Hetchy Aqueduct in Yosemite National Park.
+22 is the typical length in minutes of a half hour sitcom not including commercials.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
