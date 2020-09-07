@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-81 is the number of stanzas or chapters in the Tao te Ching (in the most common arrangements).
+383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
