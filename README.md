@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+21 is the number of grains of sand on all the world's beaches put together.
+167 is the miles long of the Hetch Hetchy Aqueduct in Yosemite National Park.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
