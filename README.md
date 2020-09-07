@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the maximum number of marbles (game pieces) in Chinese checkers.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
