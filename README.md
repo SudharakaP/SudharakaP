@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the number of files that Actor Robert Ellis appeared in films between 1913 and 1934.
+43687 is the number of toilet related accidents in the United States in 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
