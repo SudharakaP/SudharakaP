@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
+39 is the number of mentions of work or labor in the Torah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
