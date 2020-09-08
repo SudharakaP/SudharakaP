@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the number that appears on the back of the US $5 dollar bill (in the bushes at the base of the Lincoln Memorial).
+150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
