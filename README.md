@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-85 is the IQ and nickname of Aaron in Alien 3.
+172000 is tons of chocolate produced in Belgium in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
