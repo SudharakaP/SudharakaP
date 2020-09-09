@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-140 is liters of water needed to produce 1 cup of coffee.
+149000000 is the number of kilometres from the Earth the sun is.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
