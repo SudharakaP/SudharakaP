@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the height in inches of a regulation basketball hoop.
+76 is the atomic number of osmium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
