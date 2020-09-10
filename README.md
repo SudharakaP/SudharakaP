@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20 is the number of ounces in Venti size coffees at Starbucks coffee shops.
+120 is a file medium format developed by Kodak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
