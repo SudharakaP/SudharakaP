@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16777216 is the number of different colors that can be generated using the hex code system in HTML.
+187 is a signature wrestling move by wrestler New Jack (diving elbow drop while holding a steel chair underneath his arm).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
