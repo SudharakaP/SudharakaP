@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the record in miles per hour of John White's shot in squash.
+43687 is the number of toilet related accidents in the United States in 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
