@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25000000 is the number of different inhabited planets in the the Galactic Empire.
+16 is the number of personality types in the Myers-Briggs classification system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
