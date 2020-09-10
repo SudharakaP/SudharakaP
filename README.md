@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
+80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
