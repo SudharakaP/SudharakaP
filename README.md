@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-145 is the atomic number of Unquadpentium.
+587 is the outgoing port for email message submission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
