@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
+139 is the careers home runs given up by MLB pitcher Brian Meadows from 1998 to 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
