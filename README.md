@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+83 is the number of fundamental particles in the observable universe.
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
