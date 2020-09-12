@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
+64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
