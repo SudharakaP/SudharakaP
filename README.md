@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
+30 is the total number of major and minor keys in Western tonal music, including enharmonic equivalents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
