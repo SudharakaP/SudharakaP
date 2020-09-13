@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the height in kilometres that a volcano can shoot ash into the sky.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
