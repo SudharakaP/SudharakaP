@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the number of tracks on The Beatles' eponymous album, usually known as The White Album.
+97 is the atomic number of berkelium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
