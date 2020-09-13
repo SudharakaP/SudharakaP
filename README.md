@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149000000 is the number of kilometres from the Earth the sun is.
+33 is the temperature at which water boils according to the Newton scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
