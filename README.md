@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the Exit status indicated by Mac App Store software when receipt validation fails.
+92 is the percentage of water in watermelons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
