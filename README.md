@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
+59 is the number corresponding to the last minute in a given hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
