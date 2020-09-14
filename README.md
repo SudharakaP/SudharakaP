@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56000000000 is the number of web pages indexed by Google as of 2010.
+11 is the number of players on a soccer team on the field at a time as well as in a cricket team.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
