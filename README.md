@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-203 is the HTTP status code indicating partial information.
+60 is the total number of years in a Sexagenary cycle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
