@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-12 is the number of months in a year.
+53 is the number of bytes in an Asynchronous Transfer Mode packet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
