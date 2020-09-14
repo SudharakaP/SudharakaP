@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is the cholesterol level above which is considered high risk.
+195 is the number of episodes of Strange Paradise, a Canadian serial, aired on CBC Television from 1969-1970.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
