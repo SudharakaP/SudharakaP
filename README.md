@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-215 is the Dewey Decimal Classification for Science and religion.
+172000 is tons of chocolate produced in Belgium in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
