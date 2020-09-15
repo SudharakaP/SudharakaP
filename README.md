@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is the number of odd numbered days during a non-leap year.
+400000 is the number of morphine addicts the Civil War produced.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
