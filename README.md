@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1300 is the number of babies born prematurely in the USA every day.
+27 is the number of outs in a regulation baseball game for each team at all adult levels.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
