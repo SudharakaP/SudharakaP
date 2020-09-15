@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
+161 is the the number of theatrical shorts of Tom and Jerry cartoons between 1940 and 1967.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
