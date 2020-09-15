@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is the rank of Mongolia in world population.
+190 is the number of member states of the United Nations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
