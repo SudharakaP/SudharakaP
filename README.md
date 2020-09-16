@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the rank of Iceland in world population.
+77 is the atomic number of iridium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
