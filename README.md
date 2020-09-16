@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the height in feet that Buddha Dordenma, a Shakyamuni Buddha statue under construction in the mountains of Bhutan, once completed, would be.
+1000000000000 is the number of bacteria on the surface of the human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
