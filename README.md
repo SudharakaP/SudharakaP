@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45 is the sapphire wedding anniversary in years of marriage.
+123 is the atomic number of the yet-to-be-discovered element unbitrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
