@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-243 is the Calling code for Zaire.
+18 is the number of holes in a stipulated round of golf.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
