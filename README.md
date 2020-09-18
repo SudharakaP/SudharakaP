@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the port number of UDP and TCP for the Domain Name System protocol.
+179 is the number of demands laid out by chess master Bobby Fischer laid for the World Chess Federation prior to a 1975 match against Anatoly Karpov.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
