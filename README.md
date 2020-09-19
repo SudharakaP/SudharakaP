@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the second highest possible score in darts that can be obtained by throwing three darts in a single visit to the oche.
+187 is a signature wrestling move by wrestler New Jack (diving elbow drop while holding a steel chair underneath his arm).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
