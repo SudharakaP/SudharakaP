@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-210 is the world speed record (km/h) for a mountain bike on a ski slope.
+2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
