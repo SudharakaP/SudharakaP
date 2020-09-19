@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the angle between two planets in degrees so that they are in an astrological aspect called a sesquiquadrate.
+50 is the traditional number of years in a jubilee period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
