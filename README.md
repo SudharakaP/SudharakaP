@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-142600 is tonnes of gold mined in the world by the end of 2000.
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
