@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
+10000 is the number of other neurons each neuron is connected to in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
