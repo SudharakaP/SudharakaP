@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
+1311000000 is the population of the People's Republic of China in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
