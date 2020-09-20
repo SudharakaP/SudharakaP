@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the number of universes in multiverse theory.
+129 is the rank of Liberia in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
