@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is the average brain mass of a baboon in grams.
+176 is the number of verses in the longest chapter in the Bible, Psalm 119.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
