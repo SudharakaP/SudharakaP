@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the highest number on one end of a standard domino.
+5e+30 is the number of bacterial cells on Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
