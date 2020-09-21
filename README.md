@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the minimum distance in yards for a Par 3 on a golf course.
+463 is the number of days in the synodic period of Ceres.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
