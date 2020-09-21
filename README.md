@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-212 is the boiling point of water at sea level in Fahrenheit degrees.
+189 is the rank of Brazil in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
