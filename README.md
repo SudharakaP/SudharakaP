@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
