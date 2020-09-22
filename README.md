@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+120 is the telephone number "to report a car breakdown on the highway in Austria.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
