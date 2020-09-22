@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3 is the number of novels or films in a trilogy and the number of interconnected works of art in a triptych.
+25 is the (critical) number of Florida electoral votes for the 2000 U.S. presidential election.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
