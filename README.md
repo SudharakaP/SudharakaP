@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the population of Guedanga, in the Ouo Department of ComoÃ© Province, Burkina Faso.
+364 is the total number of gifts received in the song "The Twelve Days of Christmas".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
