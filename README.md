@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the telephone number "to report a car breakdown on the highway in Austria.
+14 is the earliest age that the emancipation of minors can occur in the U.S.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
