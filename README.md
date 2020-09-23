@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-96 is the rating of Skyrim on metacritic.com.
+30 is the consumption in pounds of candy annually per person in Denmark, the country with the highest candy consumption.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
