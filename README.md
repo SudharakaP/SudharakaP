@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
+168 is the number of the episoodes that Hogan's Heroes ran on CBS from 1965 to 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
