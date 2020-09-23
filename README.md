@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
+184 is a weight class in collegiate wrestling, 184 lb (83 kg).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
