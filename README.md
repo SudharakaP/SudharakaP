@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
+525998433 is the number of distinct websites as of November 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
