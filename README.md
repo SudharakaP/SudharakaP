@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-364 is the total number of gifts received in the song "The Twelve Days of Christmas".
+150 is the number of degrees in the quincunx astrological aspect explored by Johannes Kepler.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
