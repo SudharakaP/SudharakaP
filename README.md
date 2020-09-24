@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45000000 is the number of turkeys Americans eat at Thanksgiving annually.
+15 is the legal age for sexual intercourse in many countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
