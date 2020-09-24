@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7e+22 is the number of stars within range of telescopes (as of 2003).
+137 is the average brain mass of a baboon in grams.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
