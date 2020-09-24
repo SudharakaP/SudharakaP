@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the electricity emergency telephone number in Egypt.
+164 is the number of home runs the Baltimore Orioles hit in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
