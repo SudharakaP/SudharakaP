@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the number of different characters that can be used with a standard English Keyboard.
+114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
