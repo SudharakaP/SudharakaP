@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
+304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
