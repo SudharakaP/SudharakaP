@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the rank of BNY Mellon Center in terms of the tallest skyscraper in the world.
+71 is the atomic number of lutetium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
