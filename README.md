@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the single-season home run record in baseball set by Barry Bonds in 2001.
+49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
