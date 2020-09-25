@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+63 is the estimate by Archimedes in The Sand Reckoner of the total number of grains of sand that could fit into the entire cosmos.
+42 is the result given by the web search engines Google, Wolfram Alpha and Bing when the query "the answer to life the universe and everything" is entered as a search.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
