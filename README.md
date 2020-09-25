@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is the port number of the IDENT Internet protocol that helps identify the user of a particular TCP connection.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
