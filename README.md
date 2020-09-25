@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the number of types of viruses according to the Baltimore classification.
+105 is the number of surat al-Fil in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
