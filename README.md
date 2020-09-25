@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
+108 is the number of outlaws in the Chinese classic Water Margin/Outlaws of the Marsh.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
