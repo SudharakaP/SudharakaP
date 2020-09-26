@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-525998433 is the number of distinct websites as of November 2011.
+186 is the number of odd numbered days during a non-leap year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
