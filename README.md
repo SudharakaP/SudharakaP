@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-37 is the cost in cents of the Whopper Sandwich when Burger King first introduced it in 1957.
+2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
