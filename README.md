@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is times Muslims pray to Allah a day.
+54 is the score in golf colloquially referred to as a perfect round.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
