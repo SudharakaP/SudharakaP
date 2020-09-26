@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the TV series Third Watch ran on NBC from 1999 to 2005 with 132 episodes.
+47 is the total numbers of balloons that a player can collect in Rareware's Nintendo 64 game Diddy Kong Racing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
