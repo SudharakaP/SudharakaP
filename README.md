@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the number of chambers the mammalian heart consists of.
+103 is the atomic number of lawrencium, an actinide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
