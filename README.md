@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-213 is the code for character "Õ" in codepages such as ISO-8859-1 and UTF-8.
+242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
