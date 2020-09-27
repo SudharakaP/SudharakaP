@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1337 is the number that spells "leet" in leetspeak.
+80 is the length (years) of the Eighty Years' War (1568–1648).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
