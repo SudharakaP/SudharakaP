@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-564000 is the number of words in War and Peace by Leo Tolstoy.
+123 is the emergency telephone number in Colombia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
