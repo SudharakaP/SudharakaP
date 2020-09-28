@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
+110 is the atomic number of darmstadtium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
