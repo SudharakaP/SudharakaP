@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
+1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
