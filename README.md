@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-37 is the number of plays William Shakespeare is thought to have written (counting Henry IV as three parts).
+Infinity is the number of universes in multiverse theory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
