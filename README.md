@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
+135 is the hottest temperature ever measured in the United States in Fahrenheit  at Death Valley, California on July 10, 1913.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
