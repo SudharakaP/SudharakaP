@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the rank of Dominica ranks in world population.
+9 is the number of innings in a regulation, non-tied game of baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
