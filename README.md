@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-19 is the number of years in 235 lunations.
+71 is the atomic number of lutetium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
