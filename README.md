@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-62 is the number which Sigmund Freud has an irrational fear of.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
