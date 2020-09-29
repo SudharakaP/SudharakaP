@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the rank of Finland in population density.
+23 is the number of crosses on Calvary in the Monty Python film Life Of Brian.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
