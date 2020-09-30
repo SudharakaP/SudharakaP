@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-92 is the percentage of water in watermelons.
+100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
