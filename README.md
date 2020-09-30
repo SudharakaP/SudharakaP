@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
+100 is the number of pounds in an American short hundredweight.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
