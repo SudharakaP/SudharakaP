@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1631 is two London bible printers accidentally left "not" out of the 7th commandment, which then read "Thou shalt commit adultery.".
+194 is the NHL record number of saves, set by Bruce Sutter in 1982.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
