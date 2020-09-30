@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-187 is 187th Street in the Washington Heights section of Manhattan.
+64 is the maximum number of strokes in any Chinese character.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
