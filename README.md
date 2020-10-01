@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is the rank of Somaliland in countries by population density.
+170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
