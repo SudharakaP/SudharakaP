@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4.52e+46 is the upper bound for the number of legal chess positions.
+184 is the distance in light years to Eta Aquarii,a star in the constellation Aquarius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
