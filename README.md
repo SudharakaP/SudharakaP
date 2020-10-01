@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the number of unique ranks in a suit in a pack of cards.
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
