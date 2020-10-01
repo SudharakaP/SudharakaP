@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+43687 is the number of toilet related accidents in the United States in 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
