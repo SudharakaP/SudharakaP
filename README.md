@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-197 is the number of episodes of the Cosby Show that ran on NBC from 1984-1992.
+188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
