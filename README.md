@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the number for voicemail for mobile phones on the Vodafone network.
+99 is the number of names of Allah, the names or attributes of God in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
