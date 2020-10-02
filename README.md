@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the number of main islands of mythological Atlantis.
+90 is the latitude of the North Pole and the South Pole.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
