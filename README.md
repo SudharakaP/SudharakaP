@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+154 is the period in days that the sun follows on gamma-ray flares.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
