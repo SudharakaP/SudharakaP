@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20000000000 is the approximate number of coconuts produced worldwide each year.
+42 is the number of museums in Amsterdam (Netherlands has the highest concentration of museums in the world).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
