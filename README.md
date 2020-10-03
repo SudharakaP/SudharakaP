@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the focal length in millimeters of the normal lens in 35 mm photography.
+490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
