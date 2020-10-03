@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
+20000000000 is the approximate number of coconuts produced worldwide each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
