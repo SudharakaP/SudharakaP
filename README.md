@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the number of periods, or horizontal rows of elements, in the periodic table.
+525 is the number of scan lines in the NTSC television standard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
