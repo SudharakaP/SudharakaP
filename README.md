@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+78 is the total number of gifts in the song The Twelve Days of Christmas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
