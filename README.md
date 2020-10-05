@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-213 is one of the first three area codes created in California.
+77 is the atomic number of iridium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
