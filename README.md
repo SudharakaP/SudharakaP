@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-96 is the rating of Skyrim on metacritic.com.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
