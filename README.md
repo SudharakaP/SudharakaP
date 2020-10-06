@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-103 is the atomic number of lawrencium, an actinide.
+5 is the number of kyu (pupil) grades in judo.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
