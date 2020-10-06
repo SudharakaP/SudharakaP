@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
+140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
