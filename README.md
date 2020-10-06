@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
+7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
