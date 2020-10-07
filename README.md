@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-600 is the advertised number of miles that NASCAR runs in the Coca-Cola 600, the longest race on any of the NASCAR circuits.
+140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
