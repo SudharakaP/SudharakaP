@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
+126 is the atomic number of unbihexium, an element that has not yet been discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
