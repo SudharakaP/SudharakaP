@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
+175 is years Harriet (1830–2006) the Galápagos tortoise lived.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
