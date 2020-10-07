@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-280000000000000 is the number of possible unique physical addresses.
+1311000000 is the population of the People's Republic of China in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
