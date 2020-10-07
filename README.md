@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
