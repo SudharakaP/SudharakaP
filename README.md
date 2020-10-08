@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
+4294967296 is the number of bytes in 4 gibibytes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
