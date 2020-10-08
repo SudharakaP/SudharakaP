@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-201 is the HTTP status code indicating a new resource was successfully created in response to the request.
+27 is the current number of Amendments to the United States Constitution (2012 February).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
