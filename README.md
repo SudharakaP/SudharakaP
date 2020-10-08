@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7e+22 is the number of stars within range of telescopes (as of 2003).
+28 is the number of days in the shortest month of the Gregorian calendar, February (except in leap years, when there are twenty-nine).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
