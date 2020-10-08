@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-111 is the number occasionally referred to as "eleventy-one", as read in The Fellowship of the Ring by J.R.R.
+55 is the standard size of drum in US gallons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
