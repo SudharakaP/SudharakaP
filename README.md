@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3000 is the number of gowns Queen Elizabeth I of England owned when she died.
+1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
