@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188 is the rank of Tonga in world population.
+240 is the cholesterol level above which is considered high risk.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
