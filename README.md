@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
+212 is the boiling point of water at sea level in Fahrenheit degrees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
