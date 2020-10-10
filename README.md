@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-83 is the highest UHF channel on older televisions made before the late 1970s.
+360 is the number of degrees in a circle for the purpose of angular measurement.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
