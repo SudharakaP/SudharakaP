@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
+166 is the number of files that Actor Robert Ellis appeared in films between 1913 and 1934.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
