@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the speed limit, in kilometers per hour, of Australian roads with unspecified limits.
+470 is the minimum length in yards from the tee to the hole on a Par 5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
