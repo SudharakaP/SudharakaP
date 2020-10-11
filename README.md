@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-433 is the perfect score in the game show Fifteen To One, only ever achieved once in over 2000 shows.
+126 is the number of years that Gilgamesh reigned according to the Sumerian king list.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
