@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-27 is the total number of letters in the Hebrew alphabet (22 regular letters and 5 final consonants).
+161 is the number of kilometers in about 100 miles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
