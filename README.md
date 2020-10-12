@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
+199 is the number of episodes of Ironside that ran on NBC from 1967 to 1975 with 199 episodes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
