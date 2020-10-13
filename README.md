@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the population of Wormshill, Kent, England.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
