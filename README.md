@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-0 is the coldest possible temperature old the Kelvin scale.
+53 is the maximum number of players on a National Football League roster.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
