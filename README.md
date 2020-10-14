@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the speed in miles per hour at which Canadian race car driver Francis Affleck was driving when his car rolled over and died on February 7, 1985.
+158 is the number of international goals scored by Mia Hamm for the USA women's team, an all-time record for either sex in soccer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
