@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5500000 is the number of jews killed in the Holocaust.
+196 is the length of the Adda River in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
