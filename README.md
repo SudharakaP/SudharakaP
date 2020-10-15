@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+3500000000000 is the estimated population of fish in the ocean.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
