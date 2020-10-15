@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the result given by the web search engines Google, Wolfram Alpha and Bing when the query "the answer to life the universe and everything" is entered as a search.
+126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
