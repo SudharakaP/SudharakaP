@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-65 is the minimum grade required to pass an exam, or class, in many areas.
+166 is the number of Warner Bros. cartoons Bugs Bunny starred in from 1940 to 1964.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
