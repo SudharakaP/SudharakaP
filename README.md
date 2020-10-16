@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6000000 is the number of parts in the Boeing 747-400.
+39 is the number of mentions of work or labor in the Torah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
