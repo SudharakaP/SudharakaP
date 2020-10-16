@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16777216 is the number of different colors that can be generated using the hex code system in HTML.
+27 is the current number of Amendments to the United States Constitution (2012 February).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
