@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
+26 is the number of miles in a marathon rounded down (26 miles and 385 yards).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
