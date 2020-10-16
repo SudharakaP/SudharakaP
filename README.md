@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-171 is the atomic number of an element called Ununseptunium.
+143 is the number of milligrams of caffeine in AMP Energy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
