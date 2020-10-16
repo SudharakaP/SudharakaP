@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-210 is the world speed record (km/h) for a mountain bike on a ski slope.
+142600 is tonnes of gold mined in the world by the end of 2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
