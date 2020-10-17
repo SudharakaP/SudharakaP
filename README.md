@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the duration in years of the Thirty Years' War - 1618 to 1648.
+550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
