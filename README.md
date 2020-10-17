@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-433 is the perfect score in the game show Fifteen To One, only ever achieved once in over 2000 shows.
+73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
