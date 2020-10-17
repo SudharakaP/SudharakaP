@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-105 is the number of surat al-Fil in the Qur'an.
+58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
