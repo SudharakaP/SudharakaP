@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-126 is the atomic number of unbihexium, an element that has not yet been discovered.
+28 is the number of grams in an ounce (approximately), and used as such in the illegal drug trade.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
