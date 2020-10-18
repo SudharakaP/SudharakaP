@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
+493 is the number of bronze knuts equivalent to one gold galleon, in the monetary system of the world of Harry Potter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
