@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3 is the number of spatial dimensions we perceive our universe to have.
+29 is the number of attributes existing according to The Strokes in You Only Live Once.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
