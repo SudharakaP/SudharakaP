@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the number of sacks by Reggie White in his NFL career from 1985-2000.
+113 is a number considred unlucky in enduro, given to a race entrant and is colloquially known as a "blind pew".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
