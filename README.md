@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-239 is the atomic mass number of the most common isotope of plutonium.
+16777216 is the number of different colors that can be generated using the hex code system in HTML.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
