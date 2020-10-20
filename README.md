@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1982 is the average price for a major league baseball game ticket in 2004 in cents.
+40 is the number of attempts needed before the creation of the "water displacing" substance in the spray WD-40.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
