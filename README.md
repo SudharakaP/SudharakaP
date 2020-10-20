@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-209 is the basketball record for most three pointers in a row.
+53 is the number of bytes in an Asynchronous Transfer Mode packet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
