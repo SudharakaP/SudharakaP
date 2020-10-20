@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-109 is the atomic number of meitnerium.
+199 is the atomic number of an element temporarily called Unennennium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
