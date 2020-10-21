@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
+500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
