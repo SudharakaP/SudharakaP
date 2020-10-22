@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-222 is the score in the 1916 Cumberland vs. Georgia Tech football game that was the record for most points scored by one team in an American football game.
+101 is the first course in a subject taught at a college or university in Australia, Canada, South Africa, or the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
