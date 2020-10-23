@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the total number of major and minor keys in Western tonal music, including enharmonic equivalents.
+614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
