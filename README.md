@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-464 is the number of legal positions of the kings in chess, not counting mirrored positions.
+110000 is the average number of hairs that people with black hair have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
