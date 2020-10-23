@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
