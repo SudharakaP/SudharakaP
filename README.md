@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106000000000 is the number of homo sapiens that have lived since speciation.
+250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
