@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the number of loaves in a "baker's dozen".
+72 is the number of the Immortals of Taoism.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
