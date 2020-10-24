@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the percentage of movies released that are Rated R.
+14 is the number of times that a typical dairy cow lies down and stands up a day on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
