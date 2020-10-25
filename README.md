@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is the TCP port used for POP3 email protocol.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
