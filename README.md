@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-202 is the area code assigned to Washington D.C.
+24 is the number of hours in a day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
