@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9 is the number of circles of Hell in Dante's Divine Comedy.
+66 is the total number of books in the Protestant edition of the Bible (Old Testament and New Testament) combined.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
