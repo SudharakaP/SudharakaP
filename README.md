@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-125 is years in a quasquicentennial.
+127 is the highest signed 8 bit integer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
