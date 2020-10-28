@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
+1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
