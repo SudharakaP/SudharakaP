@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
--Infinity is negative infinity.
+54 is the number of milligrams of caffeine Mountain Dew has.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
