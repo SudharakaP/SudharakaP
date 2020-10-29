@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-62 is the atomic number of samarium.
+-Infinity is negative infinity.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
