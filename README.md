@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-525998433 is the number of distinct websites as of November 2011.
+300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
