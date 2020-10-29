@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
+255 is the largest values that can be assigned to elements in the 24-bit RGB color model, since each color channel is allotted eight bits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
