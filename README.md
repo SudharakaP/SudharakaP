@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20 is the number of baby teeth in the deciduous dentition.
+352 is the number of international appearances by Kristine Lilly for the USA women's national soccer team, an all-time record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
