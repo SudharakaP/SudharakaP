@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-163 is the atomic number of an element temporarily called Unhextrium.
+90 is the latitude of the North Pole and the South Pole.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
