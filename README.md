@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8e+60 is the number of Planck time intervals since the Big Bang.
+150 is the number of degrees in the quincunx astrological aspect explored by Johannes Kepler.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
