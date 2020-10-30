@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the Notation for national and international telephone numbers Recommendation ITU-T Recommendation E.123 defines a standard way to write telephone numbers, e-mail addresses, and web addresses.
+695 is the number of people dead in the single deadliest tornado in United States history (the F5 Tri-State Tornado in 1925).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
