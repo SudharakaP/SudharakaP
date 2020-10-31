@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the number of nonequivalent starting hands in the Texas hold "em.
+8 is the number of furlongs in a mile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
