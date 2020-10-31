@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is the atomic number of an element not yet observed called Untriseptium.
+114 is the number of chapters in the Quran.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
