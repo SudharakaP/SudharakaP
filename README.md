@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-151 is total number of types of Pokémon in the original set.
+146 is the Guinness World Record for the most languages a poem was recited in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
