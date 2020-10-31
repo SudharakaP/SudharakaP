@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the holy number of Discordianism, as dictated by the Law of Fives.
+169 is the number of nonequivalent starting hands in the Texas hold "em.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
