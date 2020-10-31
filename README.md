@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-37 is the cost in cents of the Whopper Sandwich when Burger King first introduced it in 1957.
+108 is there number of love sonnets in Astrophil and Stella, the first English sonnet sequence by Sir Philip Sidney.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
