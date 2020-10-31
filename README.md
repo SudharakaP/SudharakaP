@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+196 is the length in miles of the New Orleans and Northeastern Railroad.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
