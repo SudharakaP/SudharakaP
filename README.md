@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-29 is the highest possible score in a hand of Cribbage or Khanhoo.
+1728 is braces were first invented by Pierre Fauchard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
