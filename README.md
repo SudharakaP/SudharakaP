@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-176 is the atomic number of an element temporarily called Unsepthexium.
+29 is the number of days it takes Saturn to orbit the Sun.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
