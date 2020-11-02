@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-66 is the number of hot dogs eaten by World record holder Joey Chestnut in 15 minutes.
+113 is the atomic number of an element temporarily called ununtrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
