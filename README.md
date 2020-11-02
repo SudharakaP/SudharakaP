@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-12 is the pairs of ribs normally in the human body.
+150000000 is the number of items held in the British Library.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
