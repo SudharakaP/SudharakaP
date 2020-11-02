@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-62 is the atomic number of samarium.
+65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
