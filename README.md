@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is the atomic number of an element temporarily called ununtrium.
+81 is the number of squares on a shogi playing board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
