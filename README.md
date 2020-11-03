@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14500 is the number of unique English words occur in the King James Version of the Bible.
+22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
