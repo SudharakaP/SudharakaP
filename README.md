@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-99 is the highest jersey number allowed in most major league sports.
+180 is the number of films American film actor John Wayne starred in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
