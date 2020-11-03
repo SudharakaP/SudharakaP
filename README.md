@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+13 is the number of Oscar nominations of actress Meryl Streep, who holds the record for the most Oscar nominated actress.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
