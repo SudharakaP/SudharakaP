@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15250 is the number of times the average driver will honk in a lifetime.
+82 is the number of games in an NBA or NHL regular season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
