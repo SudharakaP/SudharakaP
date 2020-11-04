@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the speed limit, in kilometers per hour, of Australian roads with unspecified limits.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
