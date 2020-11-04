@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the number of leap days that the Gregorian calendar contains in its cycle of 400 years.
+173 is the number of hair strands used to animate Rapunzel's 70 meter long hair in Tangled (2010).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
