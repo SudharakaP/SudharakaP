@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-99 is the highest jersey number allowed in most major league sports.
+1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
