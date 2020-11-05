@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+21 is the number of grains of sand on all the world's beaches put together.
+11 is the number of incarnations of The Doctor in BBC sci-fi series Doctor Who.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
