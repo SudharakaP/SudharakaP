@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the number of chapters in the Quran.
+158 is the number of verses of the national anthem of Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
