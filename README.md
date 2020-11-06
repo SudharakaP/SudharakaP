@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-400000 is the number of morphine addicts the Civil War produced.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
