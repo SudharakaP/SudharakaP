@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149 is the number of goals a Madagascar soccer team scored against itself after the coach argued a call, and players kicked the ball into their own net 149 times.
+40 is the number of eggs that female alligators lay, which hatch in 60 - 70 days.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
