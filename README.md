@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is a number that is a rare lucky number, and has been written about by anthropologist Emily Anne McDonald.
+55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
