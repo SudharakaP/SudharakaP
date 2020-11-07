@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
+52 is the number of cards in a standard deck of playing cards, not counting Jokers or advertisement cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
