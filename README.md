@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the answer to the Ultimate Question of Life, the Universe, and Everything.
+22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
