@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30000 is the number of distinct Chinese characters.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
