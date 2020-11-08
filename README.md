@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-136 is the section of the Mental Health Act 1983 (UK law) details removing a mentally ill person from a public place to a place of safety.
+5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
