@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-134 is the number of episodes of the TV series Xena Warrior Princess.
+37 is the normal human body temperature in degrees Celsius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
