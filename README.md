@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is the bytes of memory of the Atari 2600 console.
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
