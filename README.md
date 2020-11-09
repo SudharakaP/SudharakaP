@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
+30 is the consumption in pounds of candy annually per person in Denmark, the country with the highest candy consumption.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
