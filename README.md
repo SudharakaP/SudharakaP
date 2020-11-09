@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8674 is the number of unique words in the Hebrew Bible.
+3 is cans of Spam consumed every second in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
