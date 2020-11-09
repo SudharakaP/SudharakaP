@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the electricity emergency telephone number in Egypt.
+83 is the atomic number of bismuth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
