@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-131 is the medical emergency telephone number in Chile.
+15 is the number of checkers each side has at the start of a backgammon game.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
