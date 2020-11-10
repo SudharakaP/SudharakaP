@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the number of layers of the Universe according to Aristotle (Earth plus 55 crystalline spheres above it).
+755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
