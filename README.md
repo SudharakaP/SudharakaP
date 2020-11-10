@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-107 is a common police code denoting a suspicious person.
+95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
