@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-23 is the number of chromosomes normal human sex cells have.
+42 is the number of kilometers in a marathon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
