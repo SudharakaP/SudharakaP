@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-52 is the approximate number of weeks in a year.
+174 is the rank of Zimbabwe in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
