@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-144 is the Intel 8086 instruction for no operation (NOP).
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
