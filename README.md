@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-90000 is the average number of hairs that redheads have.
+198 is the rank of Marshall Islands in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
