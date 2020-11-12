@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-77 is the atomic number of iridium.
+17 is the minimum driving age for a car or van in the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
