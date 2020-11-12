@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40000000 is the number of Americans that have "chronic halitosis," which is bad breath that never goes away.
+5 is the number of appendages on most starfish, which exhibit pentamerism.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
