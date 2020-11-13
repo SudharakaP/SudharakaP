@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
+4.52e+46 is the upper bound for the number of legal chess positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
