@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the number of common administrative grouping unit of homesteads in Northern Europe and Great Britain.
+564000 is the number of words in War and Peace by Leo Tolstoy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
