@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
+2 is the price in cents per acre the USA bought Alaska from Russia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
