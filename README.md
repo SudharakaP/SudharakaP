@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
+195 is the speed in miles per hour at which Canadian race car driver Francis Affleck was driving when his car rolled over and died on February 7, 1985.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
