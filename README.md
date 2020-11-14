@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
+23 is the number of minutes that all flashbacks take place before the assassination attempt on the president in the film Vantage Point.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
