@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
+626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
