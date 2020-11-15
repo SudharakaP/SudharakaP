@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
+116 is the number of years that the Hundred Years' War between France and England, from 1337 to 1453, actually lasted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
