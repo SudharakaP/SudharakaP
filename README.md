@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the average number of heartbeats per minute for a resting adult.
+182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
