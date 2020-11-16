@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000000000 is the number of bacteria in the human oral cavity.
+47 is the number of phonemes in English phonology in Received Pronunciation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
