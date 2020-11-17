@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4200000 is the number of couples in the United States that live together but are not married.
+490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
