@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
+4200000 is the number of couples in the United States that live together but are not married.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
