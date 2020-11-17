@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
+136 is the number of episodes of the TV series That Girl ran on ABC from 1966 to 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
