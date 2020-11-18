@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-155 is the maximum possible score in a single break in snooker, with a free ball at the start of the break (147 is the highest possible without a free ball).
+201 is the HTTP status code indicating a new resource was successfully created in response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
