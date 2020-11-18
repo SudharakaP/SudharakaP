@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
+536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
