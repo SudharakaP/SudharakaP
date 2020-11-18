@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
+83 is the highest UHF channel on older televisions made before the late 1970s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
