@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
+172 is the number that appears on the back of the US $5 dollar bill (in the bushes at the base of the Lincoln Memorial).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
