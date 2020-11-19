@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the rank of Maldives in world population.
+255 is the largest representable integer in an unsigned byte.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
