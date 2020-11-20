@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1311000000 is the population of the People's Republic of China in 2007.
+172 is the record in miles per hour of John White's shot in squash.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
