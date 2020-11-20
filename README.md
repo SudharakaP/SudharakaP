@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-82 is the atomic number of lead.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
