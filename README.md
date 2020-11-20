@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-666 is the number of the devil.
+103 is the atomic number of lawrencium, an actinide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
