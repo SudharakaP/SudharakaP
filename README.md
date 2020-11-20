@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is a police term for a murder or homicide.
+118 is the atomic number of the element Ununoctium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
