@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1096000000 is the population of India in 2007.
+161 is the number of different ways to bet on a roulette wheel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
