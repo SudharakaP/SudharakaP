@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
+16777216 is the number of different colors that can be generated using the hex code system in HTML.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
