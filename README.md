@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the temperature in Farenheit at which alcohol boils.
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
