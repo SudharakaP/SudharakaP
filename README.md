@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-245 is the number of Jewish singers who returned from captivity in Babylon in circa 538 BCE BC following the rise of Cyrus the Great and the Persian Empire.
+143 is the number of episodes of the TV series The Adventures of Robin Hood on CBS from 1955 to 1959.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
