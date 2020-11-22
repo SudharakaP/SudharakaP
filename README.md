@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-155 is the number of episodes the TV series Sea Hunt ran in syndication from 1958 to 1961.
+61000 is the average number of people airborne over the US at any given hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
