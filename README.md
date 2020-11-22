@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
+188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
