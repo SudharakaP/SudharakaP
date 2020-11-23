@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the age of Jeanne Calment when she died.
+239 is the number of chapters in the Book of Mormon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
