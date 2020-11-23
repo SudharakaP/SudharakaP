@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
+384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
