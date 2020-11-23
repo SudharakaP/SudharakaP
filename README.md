@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+7e+27 is the number of atoms in the average human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
