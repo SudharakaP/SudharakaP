@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+17 is 'the least random number' as described at MIT, according to hackers' lore.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
