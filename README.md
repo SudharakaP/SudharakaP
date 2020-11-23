@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the years of marriage until the diamond wedding anniversary.
+106 is the maximum number of characters filenames can have in Joliet, an extension to the ISO 9660 file system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
