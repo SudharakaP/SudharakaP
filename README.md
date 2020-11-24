@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the approximate number of times a mother hen turns her egg in a day so the yolk does not stick to the shell.
+39 is the number of books in the Old Testament according to Protestant canon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
