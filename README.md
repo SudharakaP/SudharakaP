@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
