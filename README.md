@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3 is the number of spatial dimensions we perceive our universe to have.
+7 is the number of main stars in the constellations of the Big Dipper and Orion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
