@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
+196 is the length in miles of the Adda River in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
