@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the number of years of marriage as the ruby wedding anniversary.
+194 is the rank of Equatorial Guinea in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
