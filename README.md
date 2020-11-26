@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is a number that in an astrological aspect is considered to be negative in influence.
+19 is the number of years in 235 lunations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
