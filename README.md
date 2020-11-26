@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-194 is the rank of Equatorial Guinea in population density.
+500 is the number of detectable earthquakes in the world each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
