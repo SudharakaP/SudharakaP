@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
+135 is the hottest temperature ever measured in the United States in Fahrenheit  at Death Valley, California on July 10, 1913.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
