@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-216 is the number of stitches on a baseball, according to the Ken Burns series "Baseball".
+143 is the number of milligrams of caffeine in AMP Energy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
