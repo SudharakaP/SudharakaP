@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the first magic number in physics.
+121 is the atomic number of the undiscovered chemical element Unbiunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
