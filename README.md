@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-57 is the number of cm that the smallest man measured, Gul Mohammed (1957-1997) of India.
+167 is the number of episodes of InuYasha, a Japanese manga series which ran from 1996 to 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
