@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the distance in feet the Hampstead London Underground station is below ground level.
+73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
