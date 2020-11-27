@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-24 is the number of teams that participated in each FIFA World Cup finals tournament between 1982 and 1994.
+11 is the number of denominations of Canadian currency produced in large quantities.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
