@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35000 is the number of genes in a human being.
+600 is the maximum credit score considered poor, thus limiting available credit in the USA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
