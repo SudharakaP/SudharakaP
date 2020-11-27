@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
+360000 is the number of words definitions in the New Oxford Dictionary of English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
