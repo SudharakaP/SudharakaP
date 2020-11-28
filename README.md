@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the record in miles per hour of John White's shot in squash.
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
