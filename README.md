@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-111 is the number occasionally referred to as "eleventy-one", as read in The Fellowship of the Ring by J.R.R.
+65 is the minimum grade required to pass an exam, or class, in many areas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
