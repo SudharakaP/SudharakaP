@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-148 is the number of episodes of the TV series The Fresh Prince of Bel-Air on NBC from 1990 to 1996.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
