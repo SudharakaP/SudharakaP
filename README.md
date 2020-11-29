@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the number of members in the U.S. Senate needed to defeat a cloture vote and sustain a filibuster indefinitely.
+166 is the number of cartoons that Bugs Bunny starred in Warner Bros. from 1940 to 1964.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
