@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-720 is the number of degrees in two circles (= 2 × 360).
+214 is the number of Chinese radicals for the writing of Chinese characters according to the 1716 Kangxi Dictionary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
