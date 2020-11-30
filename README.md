@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-194 is the rank of Isle of Man in world population.
+211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
