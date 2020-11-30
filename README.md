@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-300 is the number of different beverages the Coca Cola company offers.
+81 is the number of prayers said in the Rosary in each night.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
