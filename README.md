@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-245 is the number of Jewish singers who returned from captivity in Babylon in circa 538 BCE BC following the rise of Cyrus the Great and the Persian Empire.
+900000000 is the approximate number of trees cut down in a year to make the raw materials for US pulp mills and paper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
