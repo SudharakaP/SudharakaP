@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the rank of Faroe Islands (Denmark) in world population density.
+Infinity is the number of universes in multiverse theory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
