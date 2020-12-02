@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-91 is the atomic number of protactinium.
+188 is the rank of Tonga in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
