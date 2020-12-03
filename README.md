@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45 is the sapphire wedding anniversary in years of marriage.
+179 is the rank of Guam in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
