@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-613 is a significant number in Judaism, as its metaphysics, the Kabbalah, views every full entity as divisible into 613 parts.
+42 is the sum of the codes of the letters in the words "BIG BANG" using the encoding A=1, B=2, C=3, etc.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
