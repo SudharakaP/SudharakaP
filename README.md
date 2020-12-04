@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7e+22 is the number of stars within range of telescopes (as of 2003).
+156 is the number of years that Hong Kong was under British colony rule.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
