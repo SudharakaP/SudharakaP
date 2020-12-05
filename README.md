@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-525998433 is the number of distinct websites as of November 2011.
+10000 is the number of other neurons each neuron is connected to in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
