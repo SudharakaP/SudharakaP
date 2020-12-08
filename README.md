@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the first number of an automatic IPv4 address assigned by TCP/IP when no external networking device is contactable.
+201 is the HTTP status code indicating a new resource was successfully created in response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
