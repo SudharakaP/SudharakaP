@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-86 is the device number for a lockout relay function in electrical circuit protection schemes.
+2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
