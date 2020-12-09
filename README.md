@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
+1e+63 is the estimate by Archimedes in The Sand Reckoner of the total number of grains of sand that could fit into the entire cosmos.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
