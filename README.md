@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the height in kilometres that a volcano can shoot ash into the sky.
+273 is the death toll of the air crash of American Airlines Flight 191.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
