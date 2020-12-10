@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-18 is the number of chapters into which James Joyce's epic novel Ulysses is divided.
+9220000000000000000 is the largest number which can fit into a signed (two's complement) 64-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
