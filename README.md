@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
+273 is the zero of the Celsius temperature scale (to the nearest whole number) in Kelvin.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
