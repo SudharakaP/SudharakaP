@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the serial number of protagonist John from the Halo Series.
+184 is a number believed to be a magic number in nuclear physics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
