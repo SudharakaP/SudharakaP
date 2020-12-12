@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is a weight class in collegiate wrestling, 184 lb (83 kg).
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
