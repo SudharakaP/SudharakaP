@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4294967296 is the number of bytes in 4 gibibytes.
+5 is the number of permanent members with veto power on the United Nations Security Council.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
