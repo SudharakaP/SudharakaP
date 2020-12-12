@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the total number of books in the Holy Bible in the Catholic version.
+119 is a number to report children / youth at risk in France.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
