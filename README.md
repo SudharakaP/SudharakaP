@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the number of uprights that formed the Sarsen Circle at Stonehenge, also the supposed number of holes forming the arrays of Y and Z Holes at Stonehenge.
+110 is the atomic number of darmstadtium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
