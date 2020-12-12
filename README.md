@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the number identifying number of several infantry units in various militaries across the world, such as the American and Israeli paratrooper brigades.
+126 is the atomic number of unbihexium, an element that has not yet been discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
