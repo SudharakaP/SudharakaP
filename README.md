@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5200 is the number of standard size of a legion in the Roman Empire.
+66 is the total number of chapters in the Bible book of Isaiah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
