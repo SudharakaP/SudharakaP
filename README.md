@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-39 is the number of mentions of work or labor in the Torah.
+40 is the number of years of marriage as the ruby wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
