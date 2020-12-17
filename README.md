@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+1096000000 is the population of India in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
