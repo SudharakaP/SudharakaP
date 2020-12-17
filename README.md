@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106 is the number of surat Quraysh in the Qur'an.
+26 is the number of spacetime dimensions in bosonic string theory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
