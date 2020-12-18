@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-900000000 is the approximate number of trees cut down in a year to make the raw materials for US pulp mills and paper.
+31 is the number of musical triads (12 major, 12 minor, 4 diminished, and 3 augmented).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
