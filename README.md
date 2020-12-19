@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
+117 is the atomic number of a recently discovered element temporarily called ununseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
