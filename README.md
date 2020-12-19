@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-187 is 187th Street in the Washington Heights section of Manhattan.
+170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
