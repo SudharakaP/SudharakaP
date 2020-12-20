@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is the number of stories (by common reckoning) of the Sears Tower in Chicago.
+65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
