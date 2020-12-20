@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the number of Men of the Great Assembly who canonized the Books of the Tanakh and formulated the Jewish prayers.
+142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
