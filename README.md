@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-191 is the atomic number of an element temporarily called Unennunium.
+138 is the number of touchdowns football quarterback Donnie Davis had for the Georgia Force of the Arena Football League.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
