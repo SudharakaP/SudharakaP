@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-212 is the boiling point of water at sea level in Fahrenheit degrees.
+106 is the number of surat Quraysh in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
