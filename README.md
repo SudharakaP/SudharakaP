@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the rank of Waco, Texas by largest city population in the United States.
+40 is the number of points that a Premier League team needs to avoid relegation in soccer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
