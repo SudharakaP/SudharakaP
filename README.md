@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
+1e+21 is the number of grains of sand on all the world's beaches put together.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
