@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-109 is the atomic number of meitnerium.
+98 is the temperature (F) of the normal body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
