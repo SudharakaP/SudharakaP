@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-206 is bones in the typical adult human body.
+562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
