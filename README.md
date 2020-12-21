@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
+1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
