@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is a card game related to Forty-five (card game).
+55 is the number of Delegates who attended the United States Constitutional Convention in 1787.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
