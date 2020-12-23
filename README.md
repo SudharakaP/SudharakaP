@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is a standard length of playing cards in mm.
+79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
