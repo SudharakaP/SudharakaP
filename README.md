@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-47 is the total numbers of balloons that a player can collect in Rareware's Nintendo 64 game Diddy Kong Racing.
+167 is the number of episodes of InuYasha, a Japanese manga series which ran from 1996 to 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
