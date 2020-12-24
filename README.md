@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the height in metres of the tallest tree recorded, located in Humboldt Redwoods State Park, California.
+46 is the number of samurai, out of 47, who carried out the attack in the historical Ako vendetta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
