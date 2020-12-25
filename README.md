@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-193 is species of monkeys and apes.
+122 is the fire emergency telephone number in Austria.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
