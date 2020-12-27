@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
+25 is the number of years of marriage marked in a silver wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
