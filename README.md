@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-210 is the world speed record (km/h) for a mountain bike on a ski slope.
+68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
