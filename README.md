@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-27 is the total number of letters in the Hebrew alphabet (22 regular letters and 5 final consonants).
+20000000000 is the approximate number of coconuts produced worldwide each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
