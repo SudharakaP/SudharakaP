@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the rank of Vanuatu in population density.
+123 is the medical emergency telephone number in Egypt.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
