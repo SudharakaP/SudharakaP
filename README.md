@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the minimum age of candidates for election to the United States Presidency.
+3 is cans of Spam consumed every second in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
