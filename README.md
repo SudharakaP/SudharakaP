@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-175 is the number of touchdowns by Former NFL running back Emmitt Smith, ranking him second to Jerry Rice's 207.
+186 is the rank of Somaliland in countries by population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
