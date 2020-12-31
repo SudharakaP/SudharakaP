@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-185 is the rank Grenada in world population.
+6000000000000000000 is the number of transistor produced worldwide in 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
