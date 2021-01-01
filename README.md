@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1728 is braces were first invented by Pierre Fauchard.
+114 is the police non-emergency number in Denmark.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
