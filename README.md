@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the consumption in pounds of candy annually per person in Denmark, the country with the highest candy consumption.
+22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
