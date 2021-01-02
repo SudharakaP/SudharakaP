@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-189 is the number of irregular verbs in the English language (from "abide" to "write").
+5e+30 is the number of bacterial cells on Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
