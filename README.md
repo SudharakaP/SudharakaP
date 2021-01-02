@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
+189 is the number of irregular verbs in the English language (from "abide" to "write").
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
