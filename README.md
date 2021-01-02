@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-187 is 187th Street in the Washington Heights section of Manhattan.
+73 is the single-season home run record in baseball set by Barry Bonds in 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
