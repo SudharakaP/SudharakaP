@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the detainee number of the Mohammad Al Rahman Al Shumrani at Guantanamo Bay.
+1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
