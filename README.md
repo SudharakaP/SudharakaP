@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the rank of Maldives in world population.
+7 is the number of estimated objects that can be simultaneously held in human working memory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
