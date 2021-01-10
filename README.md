@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-24 is the number of books in the Tanakh.
+69 is the number Bill and Ted were thinking of when talking to their future selves.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
