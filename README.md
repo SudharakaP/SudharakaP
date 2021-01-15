@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the atomic number of the undiscovered chemical element Unbiunium.
+8 is the number of legs that arachnids have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
