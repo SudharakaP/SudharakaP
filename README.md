@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the number of workers trapped for more than 24 hours in the Blyvooruitzicht gold mine in Johannesburg, South Africa on January 18, 2008.
+166 is the number of athletes (104 men and 62 women) that represented Scotland in the 2006 Commonwealth Games in Melbourne, Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
