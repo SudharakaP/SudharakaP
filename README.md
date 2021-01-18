@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-230 is the common voltage in the European Union.
+128 is the number of musical instruments specified in General MIDI.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
