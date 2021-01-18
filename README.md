@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the all-time record number of rugby union international appearances made by Australia scrum-half George Gregan.
+6000000 is the number of parts in the Boeing 747-400.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
