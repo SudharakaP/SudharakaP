@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the approximate number of eyes a scallop has around the edge of its shell.
+203 is the HTTP status code indicating partial information.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
