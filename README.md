@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the number of triples that Shoeless Joe Jackson hit in his MLB career.
+206 is the number of bones in the typical adult human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
