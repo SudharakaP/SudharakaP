@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is the number of touchdowns football quarterback Donnie Davis had for the Georgia Force of the Arena Football League.
+168 is the number of triples that Shoeless Joe Jackson hit in his MLB career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
