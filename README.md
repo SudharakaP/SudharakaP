@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-160 is the number of characters permitted in a standard short message service in Australia and Europe.
+390 is the speed in feet per second that nerve impulses for muscle position travel at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
