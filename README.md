@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-28 is the number of days in the average human menstrual cycle.
+85 is the atomic number of astatine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
