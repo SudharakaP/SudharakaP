@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the number of leap days that the Gregorian calendar contains in its cycle of 400 years.
+73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
