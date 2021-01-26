@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-666 is the number of the devil.
+179 is the number of even numbered days of the year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
