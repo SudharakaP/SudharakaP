@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4e+185 is the number of planck volumes in the observable universe.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
