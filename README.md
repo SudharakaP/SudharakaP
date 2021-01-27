@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the maximum number of times a letter-sized paper can be folded in half.
+800000000 is the number of active users on Facebook as of December 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
