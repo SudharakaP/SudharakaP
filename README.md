@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the total number of major and minor keys in Western tonal music, including enharmonic equivalents.
+24 is the number of teams that participated in each FIFA World Cup finals tournament between 1982 and 1994.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
