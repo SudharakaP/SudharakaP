@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-555 is the number of seats of the airliner A380-800.
+150 is the number of runs in cricket that's a milestone for a batsman.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
