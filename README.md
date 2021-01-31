@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-712 is the largest known number such that it and its 8th power have no common digits.
+120 is the drop in meters of the world's tallest freefall ride, The Giant Drop located in Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
