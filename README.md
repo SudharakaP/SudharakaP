@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-267 is the number of groups of order 64.
+32 is the number of completed, numbered piano sonatas by Ludwig van Beethoven.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
