@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-239 is the number of chapters in the Book of Mormon.
+106 is the maximum number of characters filenames can have in Joliet, an extension to the ISO 9660 file system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
