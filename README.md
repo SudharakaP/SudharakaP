@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the fire emergency number in the Brazil.
+295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
