@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the height in kilometres that a volcano can shoot ash into the sky.
+180 is the standard number of days in the school year in most areas of the USA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
