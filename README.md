@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1631 is two London bible printers accidentally left "not" out of the 7th commandment, which then read "Thou shalt commit adultery.".
+536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
