@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-206 is the number of bones in the typical adult human body.
+2055001 is the number of people employed by Wal-mart in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
