@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is the standard number of days in the school year in most areas of the USA.
+144 is the number of square inches in a square foot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
