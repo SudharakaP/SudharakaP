@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-300 is the approximate number of Spartans who fought to death at the Battle of Thermopylae.
+950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
