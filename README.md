@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is the number of characters in the ASCII character set.
+108 is the number of moves in several different Taijiquan long forms.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
