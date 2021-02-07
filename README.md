@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the size, in bits, of certain integer data types, used in computer representations of numbers.
+600 is the maximum credit score considered poor, thus limiting available credit in the USA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
