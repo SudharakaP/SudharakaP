@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-91 is the code for international direct dial phone calls to India.
+451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
