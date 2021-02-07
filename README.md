@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-46 is the number of samurai, out of 47, who carried out the attack in the historical Ako vendetta.
+150 is the number of estimated distinct phonemes in the Taa language.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
