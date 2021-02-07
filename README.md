@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
+37 is the number of plays William Shakespeare is thought to have written (counting Henry IV as three parts).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
