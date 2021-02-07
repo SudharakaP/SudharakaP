@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the number of incarnations of The Doctor in BBC sci-fi series Doctor Who.
+72 is the speed in miles per hour that cheetahs, the fastest land animal, can reach.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
