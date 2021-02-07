@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-187 is the number of the California Penal Code section describing murder.
+23 is the number of times Julius Caesar was stabbed.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
