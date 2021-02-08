@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
