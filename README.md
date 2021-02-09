@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-209 is the basketball record for most three pointers in a row.
+49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
