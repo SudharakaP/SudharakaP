@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
+440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
