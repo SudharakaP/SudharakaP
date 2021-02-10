@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the population of Wormshill, Kent, England.
+30000 is the number of distinct Chinese characters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
