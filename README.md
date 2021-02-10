@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-133 is the common processor speed in MHz for common 32-bit processor CPUs circa 1995 such as the Intel Pentium and AMD AMD K5.
+73 is the single-season home run record in baseball set by Barry Bonds in 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
