@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the number of periods, or horizontal rows of elements, in the periodic table.
+60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
