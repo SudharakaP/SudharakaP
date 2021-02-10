@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
