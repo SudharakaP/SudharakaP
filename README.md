@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-23 is the number of times Julius Caesar was stabbed.
+300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
