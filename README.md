@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
+1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
