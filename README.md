@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-174 is the length in miles of the The Columbia University Library System collection, with over 9.3 million volumes, if stretched end-to-end.
+120 is the number of Men of the Great Assembly who canonized the Books of the Tanakh and formulated the Jewish prayers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
