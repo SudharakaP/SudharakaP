@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1337 is the weight in pounds of the biggest pumpkin in the world.
+536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
