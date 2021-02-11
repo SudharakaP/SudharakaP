@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-12 is the largest number that has just one syllable.
+220 is the SMTP code meaning "service ready".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
