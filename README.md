@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-203 is the HTTP status code indicating partial information.
+70 is the number of years of marriage until the platinum wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
