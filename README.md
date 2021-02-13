@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the fire emergency number in the Brazil.
+137 is a radioactive isotope of Caesium formed by nuclear fission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
