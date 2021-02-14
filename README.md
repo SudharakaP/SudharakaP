@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5e+30 is the number of bacterial cells on Earth.
+154 is the period in days that the sun follows on gamma-ray flares.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
