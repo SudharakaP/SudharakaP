@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-285 is the total number of Rules of Acquisition in Star Trek.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
