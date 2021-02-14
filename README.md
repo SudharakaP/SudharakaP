@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-400000 is the number of morphine addicts the Civil War produced.
+101 is the number identifying number of several infantry units in various militaries across the world, such as the American and Israeli paratrooper brigades.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
