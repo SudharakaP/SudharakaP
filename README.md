@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
+133 is the number of episodes of the TV series Good Times ran on CBS from 1974 to 1979.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
