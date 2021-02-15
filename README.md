@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50000000 is the approximate number of people who fish per year in the United States.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
