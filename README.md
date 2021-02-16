@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-67890 is the number of largest decimal places of π that have been recited from memory.
+613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
