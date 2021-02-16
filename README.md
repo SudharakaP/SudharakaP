@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-222 is the score in the 1916 Cumberland vs. Georgia Tech football game, with Georgia Tech winning 222-0, which was the record for most points scored by one team in an American football game.
+172 is the record in miles per hour of John White's shot in squash.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
