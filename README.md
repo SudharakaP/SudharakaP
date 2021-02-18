@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the number of states in the United States of America.
+65 is the minimum grade required to pass an exam, or class, in many areas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
