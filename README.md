@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-33 is the temperature at which water boils according to the Newton scale.
+172000 is tons of chocolate produced in Belgium in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
