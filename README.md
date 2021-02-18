@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-116 is the number of pages in the Lost pages, the original manuscript of what Joseph Smith, Jr. said was the translation of the Book of Lehi, of the Golden plates revealed to him in 1827.
+42 is the result given by the web search engines Google, Wolfram Alpha and Bing when the query "the answer to life the universe and everything" is entered as a search.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
