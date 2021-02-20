@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the careers home runs given up by MLB pitcher Brian Meadows from 1998 to 2006.
+729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
