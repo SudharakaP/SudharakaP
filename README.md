@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-197 is the number of episodes of the Cosby Show that ran on NBC from 1984-1992.
+139 is the careers home runs given up by MLB pitcher Brian Meadows from 1998 to 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
