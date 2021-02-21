@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
+121 is the atomic number of the undiscovered chemical element Unbiunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
