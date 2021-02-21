@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-390 is the speed in feet per second that nerve impulses for muscle position travel at.
+525 is the number of scan lines in the NTSC television standard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
