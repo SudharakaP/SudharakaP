@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-78 is the number of lines that make up Metatron's Cube.
+150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
