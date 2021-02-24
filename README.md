@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the population density in square kilometers of Italy, the fifth-highest population density in Europe.
+140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
