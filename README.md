@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-159 is the number of isomers of C11H24.
+112 is the number of surat al-Ikhlas in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
