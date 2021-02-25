@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-179 is the rank of the the song Love Will Tear Us Apart (1980) by the Joy Division on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
+126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
