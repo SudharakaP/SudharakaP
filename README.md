@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
+139 is the number of episdoes of the TV series MacGyver that ran on ABC from 1985 to 1992.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
