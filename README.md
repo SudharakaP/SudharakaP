@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-75 is the age limit for Canadian senators.
+27 is the number of bones in the human foot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
