@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50000000 is the approximate number of people who fish per year in the United States.
+230 is the common voltage in the European Union.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
