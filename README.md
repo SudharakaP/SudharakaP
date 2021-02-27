@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-91 is the atomic number of protactinium.
+108 is the name of a community of and for open source developers, created by Red Hat.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
