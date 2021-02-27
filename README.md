@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the death toll of the air crash of American Airlines Flight 191.
+132 is the TV series Third Watch ran on NBC from 1999 to 2005 with 132 episodes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
