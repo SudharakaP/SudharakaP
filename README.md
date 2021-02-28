@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-712 is the largest known number such that it and its 8th power have no common digits.
+300 is the approximate number of Spartans who fought to death at the Battle of Thermopylae.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
