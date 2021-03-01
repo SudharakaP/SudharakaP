@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-183 is the rank of Laos in countries by population density.
+110 is a card game related to Forty-five (card game).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
