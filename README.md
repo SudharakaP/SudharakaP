@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000000000000 is the number of bacteria on the surface of the human body.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
