@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
+25 is the (critical) number of Florida electoral votes for the 2000 U.S. presidential election.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
