@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4294967296 is the number of bytes in 4 gibibytes.
+666 is the number of the devil.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
