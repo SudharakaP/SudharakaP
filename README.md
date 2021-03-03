@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-23 is the number of minutes that all flashbacks take place before the assassination attempt on the president in the film Vantage Point.
+383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
