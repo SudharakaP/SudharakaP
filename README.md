@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is the pounds of oxygen that the adult human body requires daily.
+190 is the rank of Seychelles in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
