@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-124 is the rank of the Palestinian territories in world population.
+208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
