@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the age for obtaining a driver's (or learner's) permit in certain jurisdictions, including some where the age for a driver's license is sixteen.
+222 is the score in the 1916 Cumberland vs. Georgia Tech football game that was the record for most points scored by one team in an American football game.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
