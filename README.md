@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
+4 is the maximal number of horses in one row for carriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
