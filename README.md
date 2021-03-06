@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8 is the number of bits in a byte.
+12 is the number of function keys on most PC keyboards (F1 through F12).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
