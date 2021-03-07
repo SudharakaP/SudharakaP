@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-19 is the final year a person is a teenager.
+113 is the number of surat al-Falaq in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
