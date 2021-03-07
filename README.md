@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-90 is the latitude of the North Pole and the South Pole.
+24 is the number of hours it takes for the human body to make 1 to 3 pints of saliva.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
