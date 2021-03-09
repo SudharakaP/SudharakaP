@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22 is the typical (minimum) number of episodes in a season for a television program broadcast on a major American network.
+1728 is braces were first invented by Pierre Fauchard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
