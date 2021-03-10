@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the number of blessings a religious Jewish person is expected to utter daily.
+46 is the number of human chromosomes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
