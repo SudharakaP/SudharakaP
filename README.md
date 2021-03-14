@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-695 is the number of people dead in the single deadliest tornado in United States history (the F5 Tri-State Tornado in 1925).
+87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
