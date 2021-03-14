@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-54 is the number of milligrams of caffeine Mountain Dew has.
+139 is the number of unlabeled topologies with 5 elements.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
