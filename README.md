@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-155 is the maximum possible score in a single break in snooker, with a free ball at the start of the break (147 is the highest possible without a free ball).
+161 is the number of games that former German soccer referree Gerd Hennig refereed between 1964 and 1982.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
