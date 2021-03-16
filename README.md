@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-212 is the boiling point of water at sea level in Fahrenheit degrees.
+21 is the number of points required to win a game in badminton and table tennis (before 2001).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
