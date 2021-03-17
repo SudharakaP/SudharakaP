@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-150 is years in a sesquicentennial.
+130 is the approximate maximum height in meters of trees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
