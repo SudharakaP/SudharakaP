@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-463 is the number of days in the synodic period of Ceres.
+120 is the maximum number of power stars a player can get in Super Mario 64 for the Nintendo 64.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
