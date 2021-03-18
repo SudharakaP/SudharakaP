@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is there number of love sonnets in Astrophil and Stella, the first English sonnet sequence by Sir Philip Sidney.
+211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
