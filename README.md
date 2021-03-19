@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is the Saros number of the solar eclipse series which began on June 6, 1472 and will end on July 11, 2716.
+276 is the highest number of rounds in boxing history, in a bare-knuckle fight in 1825 that saw Jack Jones beat Patsy Tunney after 4hr 30min.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
