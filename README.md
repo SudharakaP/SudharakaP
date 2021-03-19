@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-220 is the common voltage in many countries.
+90 is the number of minutes in a football (soccer) match.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
