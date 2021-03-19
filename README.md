@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the approximate periodicity of a sunspot cycle in years.
+5e+30 is the number of bacterial cells on Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
