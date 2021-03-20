@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-111 is the atomic number of the element roentgenium (Rg).
+30 is the number of tracks on The Beatles' eponymous album, usually known as The White Album.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
