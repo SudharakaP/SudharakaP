@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2055001 is the number of people employed by Wal-mart in 2007.
+251 is the last and most powerful prime mover (engine) designed and built by the American Locomotive Company (ALCO).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
