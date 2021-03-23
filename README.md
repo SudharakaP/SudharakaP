@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-124 is a stable isotope of tellurium.
+190 is the fire emergency number in the Brazil.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
