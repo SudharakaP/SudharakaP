@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-129 is the rank of Liberia in world population.
+161 is the number of different ways to bet on a roulette wheel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
