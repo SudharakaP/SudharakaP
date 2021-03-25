@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-161 is the number of episodes the TV series The Avengers ran from 1961 to 1969.
+8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
