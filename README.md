@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-214 is the first area code of metropolitan Dallas, Texas.
+53 is the most points by a rookie in a NBA Playoff game (Philadelphia's Wilt Chamberlain, 1960).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
