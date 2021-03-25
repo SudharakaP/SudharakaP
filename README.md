@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the angle between two planets in degrees so that they are in an astrological aspect called a sesquiquadrate.
+106 is the atomic number of seaborgium (Unilhexium Unh).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
