@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the substitute for the number 17, which is considered unlucky in Italy.
+161 is the number of different ways to bet on a roulette wheel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
