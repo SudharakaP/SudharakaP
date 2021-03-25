@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-116 is the number of years that the Hundred Years' War between France and England, from 1337 to 1453, actually lasted.
+57 is the number of cm that the smallest man measured, Gul Mohammed (1957-1997) of India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
