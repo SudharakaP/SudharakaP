@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
+110 is the number of stories of both towers of the former World Trade Center in New York.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
