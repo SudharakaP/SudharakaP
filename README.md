@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-229 is the lowest individual batting score not achieved by any player in test match cricket.
+73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
