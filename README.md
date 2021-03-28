@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-221 is sMTP status code for service closing transmission channel.
+43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
