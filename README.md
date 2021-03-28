@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the atomic number of an element temporarily called Unhexhexium.
+56 is the number of Aubrey Holes in the first stage of Stonehenge.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
