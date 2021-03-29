@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
+313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
