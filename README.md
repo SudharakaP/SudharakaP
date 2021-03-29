@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-29 is the highest possible score in a hand of Cribbage or Khanhoo.
+58 is the number of usable cells on a Hexxagon game board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
