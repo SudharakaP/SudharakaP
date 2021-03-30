@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the lowest channel of television in the United States, Canada, Argentina and Mexico on which television signals are broadcast.
+99 is the highest jersey number allowed in most major league sports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
