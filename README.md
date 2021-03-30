@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106 is the maximum number of characters filenames can have in Joliet, an extension to the ISO 9660 file system.
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
