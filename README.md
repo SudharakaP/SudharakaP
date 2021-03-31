@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the number of players in a field hockey team.
+10 is the highest score possible in Olympics gymnastics competitions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
