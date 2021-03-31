@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8 is the number of furlongs in a mile.
+60 is the years of marriage until the diamond wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
