@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
+8 is the number of furlongs in a mile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
