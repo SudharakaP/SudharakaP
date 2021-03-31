@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the rank of Djibouti in world population density.
+58 is the number of usable cells on a Hexxagon game board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
