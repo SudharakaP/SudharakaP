@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-229 is the lowest individual batting score not achieved by any player in test match cricket.
+350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
