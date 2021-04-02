@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the atomic number of an element temporarily called Unseptbium.
+151 is the total number of Pokémon in the original set, counting Mewtwo and Mew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
