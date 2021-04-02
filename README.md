@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the number of checkers each side has at the start of a backgammon game.
+25000000 is the number of different inhabited planets in the the Galactic Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
