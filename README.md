@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the Opus number of one of Beethoven's greatest works.
+14 is the minimum age at which one can work in many U.S states.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
