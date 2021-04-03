@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-136 is the number of episodes of the TV series That Girl ran on ABC from 1966 to 1971.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
