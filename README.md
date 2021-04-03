@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the first magic number in physics.
+295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
