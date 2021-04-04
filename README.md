@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-225 is the longest distance in miles a deepwater lobster has been recorded to travel.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
