@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-21 is the number of points required to win a game in badminton and table tennis (before 2001).
+490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
