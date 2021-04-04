@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-270 is the average number of days in human pregnancy.
+35000 is the number of genes in a human being.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
