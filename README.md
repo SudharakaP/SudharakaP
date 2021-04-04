@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-433 is the perfect score in the game show Fifteen To One, only ever achieved once in over 2000 shows.
+171 is the atomic number of an element called Ununseptunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
