@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-360000 is the number of words definitions in the New Oxford Dictionary of English.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
