@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the name of a community of and for open source developers, created by Red Hat.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
