@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-151 is the total number of Pokémon in the original set, counting Mewtwo and Mew.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
