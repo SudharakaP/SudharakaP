@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-0 is the atomic number of the theoretical element tetraneutron.
+58 is the number of counties in California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
