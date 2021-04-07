@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the maximum number of electrons that can fit in an f sublevel.
+400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
