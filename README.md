@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
+136 is the hottest temperature ever recorded in Fahrenheits at Aziziya, Libya in September 1922.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
