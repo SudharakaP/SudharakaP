@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the height of the World's tallest thermometer in feet located in Baker, California.
+32 is the number of pages in the average comic book (not including the cover).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
