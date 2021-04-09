@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-59 is the number corresponding to the last second in a given minute.
+25 is the percentage of all scald burns to children from hot tap water.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
