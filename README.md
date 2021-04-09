@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-587 is the outgoing port for email message submission.
+4.52e+46 is the upper bound for the number of legal chess positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
