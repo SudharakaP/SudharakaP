@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is a common name for mains electricity in North America, despite the nominal voltage actually being 120V (range 110-120).
+1631 is two London bible printers accidentally left "not" out of the 7th commandment, which then read "Thou shalt commit adultery.".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
