@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8674 is the number of unique words in the Hebrew Bible.
+181 is the number of passengers aboard TAM Airlines Flight 3054 which crashed upon landing in SÃ£o Paulo on July 17, 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
