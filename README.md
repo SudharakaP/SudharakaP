@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
+1631 is two London bible printers accidentally left "not" out of the 7th commandment, which then read "Thou shalt commit adultery.".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
