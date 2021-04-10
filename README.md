@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-144 is the number of square inches in a square foot.
+72 is the number of the Immortals of Taoism.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
