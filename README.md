@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
