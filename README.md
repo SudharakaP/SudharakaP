@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-165 is the miles that twenty-mule teams, which were mules and horses attached to wagons, traveled from mines to the nearest railroad spur, 165 miles (275 km) away in Mojave, California.
+1e+63 is the estimate by Archimedes in The Sand Reckoner of the total number of grains of sand that could fit into the entire cosmos.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
