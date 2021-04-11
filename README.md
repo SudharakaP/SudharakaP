@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-136 is the lower frequency band in kHz that amateur radio operators are allowed to transmit.
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
