@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the careers home runs given up by MLB pitcher Brian Meadows from 1998 to 2006.
+22 is the number of chapters of the Revelation of John in the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
