@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5e+30 is the number of bacterial cells on Earth.
+172 is the record in miles per hour of John White's shot in squash.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
