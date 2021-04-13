@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the record in miles per hour of John White's shot in squash.
+33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
