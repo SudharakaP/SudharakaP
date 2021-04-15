@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
+195 is the number of episodes of Strange Paradise, a Canadian serial, aired on CBC Television from 1969-1970.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
