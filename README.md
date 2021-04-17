@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
+61000 is the average number of people airborne over the US at any given hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
