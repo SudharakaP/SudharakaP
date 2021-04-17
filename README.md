@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-162 is 162 is the total number of baseball games each team plays during a regular season in Major League Baseball.
+57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
