@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-142600 is tonnes of gold mined in the world by the end of 2000.
+107 is the number of Nobel Prize in Literature laureates.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
