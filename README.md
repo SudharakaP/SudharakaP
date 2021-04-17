@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
+137 is the average brain mass of a baboon in grams.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
