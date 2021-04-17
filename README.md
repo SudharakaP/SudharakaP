@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3400000000 is the number of total number of speakers of Indo-European languages.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
