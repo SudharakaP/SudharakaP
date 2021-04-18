@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
+138 is the Saros number of the solar eclipse series which began on June 6, 1472 and will end on July 11, 2716.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
