@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000 is the number of words a picture is worth.
+500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
