@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-91 is the atomic number of protactinium.
+1728 is braces were first invented by Pierre Fauchard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
