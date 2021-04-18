@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-115 is the atomic number of an element temporarily called ununpentium.
+153 is the frequency in kHz of of the longwave transmitters Donebach, Ingøy, Braşov, and Kenadsa.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
