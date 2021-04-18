@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500 is the number of detectable earthquakes in the world each year.
+6 is the number of symbolic foods placed on the Passover Seder Plate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
