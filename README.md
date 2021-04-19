@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-300 is the number of bones humans are born with in their body.
+178 is the rank of Estonia in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
