@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16777216 is the number of different colors that can be generated using the hex code system in HTML.
+128 is a sacred number honored by Beans for many generations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
