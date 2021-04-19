@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-54 is the number of countries in Africa.
+123 is the medical emergency telephone number in Egypt.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
