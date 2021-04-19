@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-28 is the number worn by the Clemson Tigers' record breaking running back C.J.
+24 is the number of carats representing 100% pure gold.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
