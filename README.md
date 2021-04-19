@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the gold or "golden" wedding anniversary in years of marriage.
+213 is the code for character "Õ" in codepages such as ISO-8859-1 and UTF-8.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
