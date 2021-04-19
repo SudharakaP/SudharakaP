@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is the number of constellations of the Triakis tetrahedron.
+171 is the atomic number of an element called Ununseptunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
