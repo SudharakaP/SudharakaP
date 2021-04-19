@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5200 is the number of standard size of a legion in the Roman Empire.
+139 is the atomic number of Untriennium, an unsynthesized chemical element.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
