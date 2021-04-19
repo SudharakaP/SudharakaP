@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110000 is the average number of hairs that people with black hair have.
+60 is the maximum number of marbles (game pieces) in Chinese checkers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
