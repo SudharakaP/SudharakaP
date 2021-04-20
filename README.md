@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-29 is the number of attributes existing according to The Strokes in You Only Live Once.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
