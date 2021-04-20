@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the second highest possible score in darts that can be obtained by throwing three darts in a single visit to the oche.
+1982 is the average price for a major league baseball game ticket in 2004 in cents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
