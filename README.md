@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
+195 is the speed in miles per hour at which Canadian race car driver Francis Affleck was driving when his car rolled over and died on February 7, 1985.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
