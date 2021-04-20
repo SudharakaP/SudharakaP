@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the number of positions on a number of radio countdown programs, most notably American Top 40 and American Country Countdown.
+1000000 is the number of colors that can be distinguished by the trichromatic color vision of the human eye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
