@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-208 is the heaviest stable isotope of any element (lead).
+198 is the population of Wormshill, Kent, England.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
