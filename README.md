@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-66 is the total number of books in the Protestant edition of the Bible (Old Testament and New Testament) combined.
+998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
