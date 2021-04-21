@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-90000 is the average number of hairs that redheads have.
+5e+30 is the number of bacterial cells on Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
