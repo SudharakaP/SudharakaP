@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-197 is the approximate atomic mass of Gold.
+227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
