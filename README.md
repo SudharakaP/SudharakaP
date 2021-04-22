@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8674 is the number of unique words in the Hebrew Bible.
+18 is the number of colors the labels for Crayola crayons come in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
