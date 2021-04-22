@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-85 is the IQ and nickname of Aaron in Alien 3.
+137 is the average brain mass of a baboon in grams.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
