@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
+300 is the number of pounds per square inch of pressure to break the shell of Macadamia nuts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
