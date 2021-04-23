@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-129 is the number of episodes of the TV series Becker that ran on CBS from 1998 to 2004.
+100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
