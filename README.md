@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-109 is the atomic number of meitnerium.
+26 is the number of letters in the English and Interlingua alphabets.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
