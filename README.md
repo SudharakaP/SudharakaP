@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
