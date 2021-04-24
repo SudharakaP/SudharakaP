@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64 is the total number of black and white squares on the game board in chess or draughts.
+64 is the size in bits of certain data types in some computer programming languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
