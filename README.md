@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the atomic number of an element temporarily called Unenntrium.
+22 is the number of players on the field in a football (soccer) match.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
