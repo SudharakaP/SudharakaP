@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-276 is the highest number of rounds in boxing history, in a bare-knuckle fight in 1825 that saw Jack Jones beat Patsy Tunney after 4hr 30min.
+66 is the number of years of the longest hiccups on record by an American pig farmer from 1922 to 1987.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
