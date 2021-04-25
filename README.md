@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3400000000 is the number of total number of speakers of Indo-European languages.
+28 is the number of days the curing time of concrete is classically considered to be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
