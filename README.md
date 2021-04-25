@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-490 is the number of Pokémon available as of the release of Pokémon Diamond and Pearl (excluding event Pokémon).
+167 is width in feet of the Lincoln Memorial Reflecting Pool, which is is 2,029 feet (618 m) long and 167 feet (51 m) wide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
