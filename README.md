@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-242 is the area code of The Bahamas located in the North West Atlantic Ocean.
+147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
