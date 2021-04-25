@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
+180 is the number of litres of saliva in one day that cattle can produce.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
