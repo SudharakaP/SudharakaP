@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-242 is the area code of The Bahamas located in the North West Atlantic Ocean.
+1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
