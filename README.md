@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-343 is the number of New York City Firefighters who died on September 11, 2001.
+120 is the number of Men of the Great Assembly who canonized the Books of the Tanakh and formulated the Jewish prayers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
