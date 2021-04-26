@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the death toll of the 1995 Oklahoma City bombing.
+0 is the coldest possible temperature old the Kelvin scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
