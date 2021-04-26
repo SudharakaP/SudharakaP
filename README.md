@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-227 is the highest score ever in the Eurovision Song Contest, achieved by Katrina and the Waves of the UK in 1997, before the Semi-final system was introduced in 2004.
+167 is width in feet of the Lincoln Memorial Reflecting Pool, which is is 2,029 feet (618 m) long and 167 feet (51 m) wide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
