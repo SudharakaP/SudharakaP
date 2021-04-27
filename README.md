@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-152 is the number of diapers solder in a Pampers Swaddlers pack.
+43687 is the number of toilet related accidents in the United States in 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
