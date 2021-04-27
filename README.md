@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
+139 is the careers home runs given up by MLB pitcher Brian Meadows from 1998 to 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
