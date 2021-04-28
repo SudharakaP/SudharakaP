@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the standard TCP/IP port number used for HTTP connections.
+183 is the id number of Issam Hamid Al Bin Ali Al Jayfi, a detainee at Guantanamo Bay.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
