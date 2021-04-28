@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
+166 is the feet above sea level at Turriff in Aberdeenshire, Scotland.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
