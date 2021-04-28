@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5500000 is the number of jews killed in the Holocaust.
+250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
