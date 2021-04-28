@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-116 is the number of years that the Hundred Years' War between France and England, from 1337 to 1453, actually lasted.
+57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
