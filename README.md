@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is a number that in an astrological aspect is considered to be negative in influence.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
