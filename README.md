@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-133 is the number of episodes of the TV series Good Times ran on CBS from 1974 to 1979.
+61000 is the average number of people airborne over the US at any given hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
