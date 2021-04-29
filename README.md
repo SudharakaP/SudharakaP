@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the number of seconds it takes "Superman: Escape from Krypton" roller coaster to go from 0 to 100 miles per hour.
+50 is the approximate number of times a mother hen turns her egg in a day so the yolk does not stick to the shell.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
