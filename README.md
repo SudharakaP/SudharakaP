@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
+17 is the number of flames emanating from the grenade cap-badge of the Grenadier Guards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
