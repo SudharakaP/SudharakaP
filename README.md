@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-160 is the lowest radio frequency band allocation in meters available to amateur radio operators in most countries.
+176 is the atomic number of an element temporarily called Unsepthexium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
