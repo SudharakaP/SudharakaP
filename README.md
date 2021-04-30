@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188 is the rank of Tonga in world population.
+53 is the port number of UDP and TCP for the Domain Name System protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
