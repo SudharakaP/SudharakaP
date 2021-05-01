@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the substitute for the number 17, which is considered unlucky in Italy.
+60 is a common speed limit (mph) for freeways in many US states.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
