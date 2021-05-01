@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
+32 is the size, in bits, of certain integer data types, used in computer representations of numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
