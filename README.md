@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44 is the percentage of kids who watch television before they go to sleep in the US.
+343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
