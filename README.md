@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the life duration of the ovule in hours.
+221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
