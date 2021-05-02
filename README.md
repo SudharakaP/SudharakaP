@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-90000 is the average number of hairs that redheads have.
+187 is the number of the California Penal Code section describing murder.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
