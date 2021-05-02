@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-21 is the number of points required to win a game in badminton and table tennis (before 2001).
+7e+27 is the number of atoms in the average human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
