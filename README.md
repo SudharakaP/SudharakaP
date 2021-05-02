@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-225 is the longest distance in miles a deepwater lobster has been recorded to travel.
+800000000 is the number of active users on Facebook as of December 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
