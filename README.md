@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the earliest age that the emancipation of minors can occur in the U.S.
+173 is the Exit status indicated by Mac App Store software when receipt validation fails.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
