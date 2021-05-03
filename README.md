@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-255 is the largest representable integer in an unsigned byte.
+39 is the number of mentions of work or labor in the Torah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
