@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-47 is the number of El-Aurians Scotty manages to beam up before their ship is destroyed by the energy ribbon.
+37 is the cost in cents of the Whopper Sandwich when Burger King first introduced it in 1957.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
