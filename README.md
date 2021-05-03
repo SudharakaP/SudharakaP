@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-193 is species of monkeys and apes.
+102 is the atomic number of nobelium, an actinide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
