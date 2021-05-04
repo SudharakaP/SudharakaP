@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the population of Guedanga, in the Ouo Department of ComoÃ© Province, Burkina Faso.
+132 is the Opus number of one of Beethoven's greatest works.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
