@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the highest obtainable level on World of Warcraft (not including expansions).
+196 is the rank of American Samoa in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
