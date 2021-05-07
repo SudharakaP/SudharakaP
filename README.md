@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1982 is the average price for a major league baseball game ticket in 2004 in cents.
+162 is total number of baseball games each team plays during a regular season in Major League Baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
