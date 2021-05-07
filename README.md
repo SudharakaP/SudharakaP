@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the position that Tom Brady was picked in the 2000 NFL draft.
+177 is the atomic number of an element temporarily called Unseptseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
