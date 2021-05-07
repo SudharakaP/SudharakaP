@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-850 is the maximum possible Fair Isaac credit score.
+131 is the medical emergency telephone number in Chile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
