@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-216 is the number of colors formed by a 6 color cube, sometimes known as the web-safe color palette.
+22 is the typical (minimum) number of episodes in a season for a television program broadcast on a major American network.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
