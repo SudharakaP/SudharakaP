@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
+18 is the number of chapters into which James Joyce's epic novel Ulysses is divided.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
