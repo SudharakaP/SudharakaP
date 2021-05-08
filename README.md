@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-21 is the number of points required to win a game in badminton and table tennis (before 2001).
+64 is number of codons in the RNA codon table under genetic code.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
