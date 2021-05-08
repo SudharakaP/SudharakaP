@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the number of volcanoes in Indonesia.
+28 is the number of dominoes in standard domino sets.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
