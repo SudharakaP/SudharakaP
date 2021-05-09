@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is essendon's losing margin against Adelaide in round 10 of the 2006 AFL season.
+404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
