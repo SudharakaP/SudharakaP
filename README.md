@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-171 is the rank of Bahamas in world population.
+193 is species of monkeys and apes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
