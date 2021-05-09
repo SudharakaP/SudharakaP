@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-126 is the atomic number of unbihexium, an element that has not yet been discovered.
+67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
