@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
+162 is total number of baseball games each team plays during a regular season in Major League Baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
