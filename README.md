@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-125000 is the number of average strands of hair in the human head.
+112 is the number of pounds in a British long hundredweight.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
