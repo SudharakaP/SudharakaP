@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+21 is the number of grains of sand on all the world's beaches put together.
+400000000000 is the number of stars in the Milky Way galaxy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
