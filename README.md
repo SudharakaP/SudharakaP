@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-193 is the number of member states of the United Nations as of 2011.
+82 is the atomic number of lead.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
