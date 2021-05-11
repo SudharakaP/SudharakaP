@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-61 is the code for international direct dial phone calls to Australia.
+587 is the outgoing port for email message submission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
