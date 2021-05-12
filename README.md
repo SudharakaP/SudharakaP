@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the atomic number of the yet-to-be-discovered element unbitrium.
+712 is the largest known number such that it and its 8th power have no common digits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
