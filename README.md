@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-193 is species of monkeys and apes.
+213 is one of the first three area codes created in California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
