@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-216 is the ISO's standard for paper sizes.
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
