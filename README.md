@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the number of years of marriage as the ruby wedding anniversary.
+6800 is the approximate number of languages in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
