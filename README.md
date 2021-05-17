@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-229 is the lowest individual batting score not achieved by any player in test match cricket.
+54 is the number of cards in a deck of playing cards, if two jokers are included.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
