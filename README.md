@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-91 is the code for international direct dial phone calls to India.
+157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
