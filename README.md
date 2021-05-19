@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
+1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
