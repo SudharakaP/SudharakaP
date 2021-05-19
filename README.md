@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-154 is the period in days that the sun follows on gamma-ray flares.
+26 is the number of Cantons of Switzerland.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
