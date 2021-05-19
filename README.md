@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-116 is the prefix for several EU-wide telephone helplines designated as harmonised service of social value.
+Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
