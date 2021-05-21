@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is liters of water needed to produce 1 glass of wine.
+161 is the number of different ways to bet on a roulette wheel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
