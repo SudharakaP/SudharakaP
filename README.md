@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
+28 is the number of days in the shortest month of the Gregorian calendar, February (except in leap years, when there are twenty-nine).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
