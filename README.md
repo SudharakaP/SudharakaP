@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-89 is the number of units of each colour in the board game Blokus.
+231 is the number of cubic inches in a U.S. liquid gallon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
