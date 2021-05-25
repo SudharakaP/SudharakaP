@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is the California Penal Code for "Offer bribe to influence testimony".
+56 is the number of officially recognized ethnic groups in the list of ethnic groups in China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
