@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-164 is the number of cards in the set Baseball Talk, released by Topps Baseball Card Company in 1989.
+68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
