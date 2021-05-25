@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-176 is the number of verses in the longest chapter in the Bible, Psalm 119.
+38 is the number of surviving plays written by William Shakespeare.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
