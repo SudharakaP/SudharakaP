@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the population of Arguisuelas, Castile-La Mancha, Spain.
+117 is the serial number of protagonist John from the Halo Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
