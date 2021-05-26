@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the rank of Netherlands Antilles in world population.
+120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
