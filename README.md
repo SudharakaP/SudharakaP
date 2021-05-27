@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
+7e+22 is the number of stars within range of telescopes (as of 2003).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
