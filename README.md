@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is a number used to define the number of keys on a computer keyboard.
+9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
