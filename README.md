@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-216 is the ISO's standard for paper sizes.
+64 is the number of classical arts listed in many Indian scriptures.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
