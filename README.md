@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+83 is the number of fundamental particles in the observable universe.
+195 is the rank of South Ossetia Georgia in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
