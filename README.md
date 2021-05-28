@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64 is the number of classical arts listed in many Indian scriptures.
+59 is the number of days, approximately in two lunar months.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
