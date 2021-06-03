@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5500000000000000 is the number of estimated ants on Earth alive at any one time.
+113 is a number considred unlucky in enduro, given to a race entrant and is colloquially known as a "blind pew".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
