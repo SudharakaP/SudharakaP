@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
+105 is the number of surat al-Fil in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
