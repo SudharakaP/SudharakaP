@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-242 is the number of a notable UN Security Council resolution pertaining to the Arab/Israeli conflict.
+37 is the normal human body temperature in degrees Celsius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
