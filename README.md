@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35000 is the number of genes in a human being.
+8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
