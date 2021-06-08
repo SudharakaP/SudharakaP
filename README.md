@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is the atomic number of an element temporarily called ununtrium.
+109 is the atomic number of meitnerium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
