@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-360 is the number of degrees in a circle for the purpose of angular measurement.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
