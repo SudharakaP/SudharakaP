@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4e+185 is the number of planck volumes in the observable universe.
+196 is the population of Giry, France.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
