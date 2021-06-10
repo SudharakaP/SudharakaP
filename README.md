@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-82 is the number of games in an NBA or NHL regular season.
+56 is the age of Mao Zedong when the People's Republic of China was established on Oct. 1, 1949.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
