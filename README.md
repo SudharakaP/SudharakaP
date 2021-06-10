@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is a weight class in collegiate wrestling, 184 lb (83 kg).
+82 is the number of games in an NBA or NHL regular season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
