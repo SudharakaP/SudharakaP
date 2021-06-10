@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-39 is the number of mentions of work or labor in the Torah.
+52 is the number of white keys (notes in the C major scale).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
