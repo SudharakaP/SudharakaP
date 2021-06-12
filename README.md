@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
+5e+30 is the number of bacterial cells on Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
