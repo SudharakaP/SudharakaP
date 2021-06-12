@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7e+22 is the number of stars within range of telescopes (as of 2003).
+500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
