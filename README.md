@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-19 is the number of years in 235 lunations.
+100000 is the number of verses (shlokas) in the Mahabharata.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
