@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1096000000 is the population of India in 2007.
+22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
