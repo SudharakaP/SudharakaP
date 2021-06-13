@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the number of points the Dow Jones Industrials fell on June 24, 2005.
+360000 is the number of words definitions in the New Oxford Dictionary of English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
