@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the distance in feet the Hampstead London Underground station is below ground level.
+3 is the number of spatial dimensions we perceive our universe to have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
