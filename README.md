@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4.52e+46 is the upper bound for the number of legal chess positions.
+1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
