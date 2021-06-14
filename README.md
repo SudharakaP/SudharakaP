@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-96 is the rating of Skyrim on metacritic.com.
+5 is times Muslims pray to Allah a day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
