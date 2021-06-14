@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is times Muslims pray to Allah a day.
+82 is the atomic number of lead.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
