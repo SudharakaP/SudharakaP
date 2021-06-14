@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is the standard number of days in the school year in most areas of the USA.
+151 is the total number of Pokémon in the original set, counting Mewtwo and Mew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
