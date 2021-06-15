@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-470 is the minimum length in yards from the tee to the hole on a Par 5.
+384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
