@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-94 is the length of an NBA court in feet.
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
