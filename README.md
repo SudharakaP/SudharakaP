@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
+273 is the number of seconds in American composer John Cage's piano composition 4'33" of silence, in three movements.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
