@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
+180 is the number of Death in the In the Final Destination series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
