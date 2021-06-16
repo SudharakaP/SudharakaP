@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000 is the number of thunderstorms that occur in the USA every year, of which 10% are classified as severe.
+6 is the highest number on one end of a standard domino.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
