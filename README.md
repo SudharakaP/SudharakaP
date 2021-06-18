@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the speed of rush hour traffic on average in kilometres per hour in London.
+20000000000 is the approximate number of coconuts produced worldwide each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
