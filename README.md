@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-201 is the Saros cycle; the next solar eclipse in this cycle is predicted to take place in AD 3223.
+2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
