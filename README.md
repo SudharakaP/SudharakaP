@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the substitute for the number 17, which is considered unlucky in Italy.
+204 is the HTTP status code indicating the request was received but there is no response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
