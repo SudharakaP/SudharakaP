@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is the estimated number of ATP molecules produced by one molecule of fatty acid, for the mixture that comprises human adipose tissue.
+6 is the number of points received for a touchdown in American and Canadian football.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
