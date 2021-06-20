@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the maximum number of times a letter-sized paper can be folded in half.
+227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
