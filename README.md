@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the number of times Paul McCartney sings the phrase "Let It Be" in the Beatles' hit Let It Be.
+555 is the number of keyboard sonatas written by Domenico Scarlatti, according to the catalog by Ralph Kirkpatrick.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
