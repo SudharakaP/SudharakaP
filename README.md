@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-218 is votes required in the US House of Representatives to achieve a majority as of 2008.
+118 is the beginning of directory enquiries numbers in the United Kingdom,France, Germany, Latvia, Sweden, Ireland, and Turkey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
