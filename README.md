@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8e+120 is the ratio of the mass-energy in the observable universe to the energy of a photon with a wavelength the size of the observable universe.
+9220000000000000000 is the largest number which can fit into a signed (two's complement) 64-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
