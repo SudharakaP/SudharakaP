@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the number of athletes from Belarus competed in 28 events at the 2008 Olympics in Beijing.
+88 is the number of constellations in the sky as defined by the International Astronomical Union.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
