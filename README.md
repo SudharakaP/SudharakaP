@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
