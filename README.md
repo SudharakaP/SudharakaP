@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-229 is the lowest individual batting score not achieved by any player in test match cricket.
+168 is the number of the episoodes that Hogan's Heroes ran on CBS from 1965 to 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
