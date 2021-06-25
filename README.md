@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the atomic number of an element temporarily called Unseptseptium.
+171 is the record number of goals scored by France at the 1998 World Cup.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
