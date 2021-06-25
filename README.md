@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the estimation of the game-tree complexity in the game of Go.
+123 is the electricity emergency telephone number in Indonesia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
