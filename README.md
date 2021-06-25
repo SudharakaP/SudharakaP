@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16 is the minimum age for getting an adult job in most states and provinces across the globe.
+101 is the number of the Vault that is the starting area of Fallout 3.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
