@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44 is the percentage of kids who watch television before they go to sleep in the US.
+24 is the number of points on a backgammon board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
