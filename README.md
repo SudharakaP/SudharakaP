@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the Youngest age a minor can rent or purchase a T rated game by the ESRB without parental (age 18 or older) consent.
+255 is the largest values that can be assigned to elements in the 24-bit RGB color model, since each color channel is allotted eight bits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
