@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-193 is the number of member states of the United Nations as of 2011.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
