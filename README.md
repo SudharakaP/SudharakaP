@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the detainee number of the Mohammad Al Rahman Al Shumrani at Guantanamo Bay.
+490 is the number of Pokémon available as of the release of Pokémon Diamond and Pearl (excluding event Pokémon).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
