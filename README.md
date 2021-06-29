@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-91 is the amount of money one has if one has one coin of each U.S. denomination less than a dollar (penny, nickel, dime, quarter, half dollar) in cents.
+42 is the result given by the web search engines Google, Wolfram Alpha and Bing when the query "the answer to life the universe and everything" is entered as a search.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
