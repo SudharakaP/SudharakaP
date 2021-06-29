@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-74 is the number of stars obtained by SpongeBob SquarePants in his driving school.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
