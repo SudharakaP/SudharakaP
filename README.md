@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
+295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
