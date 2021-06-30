@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-587 is the outgoing port for email message submission.
+70 is the distance (meter) from archer to targets in Olympic Archery.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
