@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
+156 is the number of hourly gongs a clock strikes in one day (78 AM gongs and 78 PM gongs).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
