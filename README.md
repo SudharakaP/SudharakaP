@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-215 is the Dewey Decimal Classification for Science and religion.
+197 is the number of years that Fu Xi lived for altogether.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
