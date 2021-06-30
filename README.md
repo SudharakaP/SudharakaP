@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+135 is the height of the World's tallest thermometer in feet located in Baker, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
