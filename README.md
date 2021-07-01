@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-68 is the ideal temperature (F) for developing black-and-white film.
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
