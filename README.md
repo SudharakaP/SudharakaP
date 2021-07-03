@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
+10000000000 is the number of times the original Pac Man has been played as estimated by Namco, the manufacturers of Pac Man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
