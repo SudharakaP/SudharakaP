@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the Opus number of one of Beethoven's greatest works.
+24 is the number of points on a backgammon board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
