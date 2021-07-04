@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-511 is the number of collaborators mathematician Paul Erdős had.
+649 is the number of Pokémon as of Pokémon Black and White versions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
