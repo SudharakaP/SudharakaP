@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8e+60 is the number of Planck time intervals since the Big Bang.
+3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
