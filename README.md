@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the number of athletes that Canada had in 15 sports at the 2006 Winter Olympics.
+30 is the consumption in pounds of candy annually per person in Denmark, the country with the highest candy consumption.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
