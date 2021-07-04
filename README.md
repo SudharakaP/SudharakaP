@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-386 is the number of Pokémon in the 3rd Generation National Pokédex.
+712 is the largest known number such that it and its 8th power have no common digits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
