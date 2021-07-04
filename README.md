@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-712 is the largest known number such that it and its 8th power have no common digits.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
