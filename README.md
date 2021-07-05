@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the rank of Uruguay in population density.
+1000 is the number of words a picture is worth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
