@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the height in feet that stalks of sugar cane can reach up to.
+196 is the number of athletes that Canada had in 15 sports at the 2006 Winter Olympics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
