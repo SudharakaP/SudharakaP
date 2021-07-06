@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-158 is the number of international goals scored by Mia Hamm for the USA women's team, an all-time record for either sex in soccer.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
