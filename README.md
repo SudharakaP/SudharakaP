@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-70 is the distance (meter) from archer to targets in Olympic Archery.
+60 is the total number of cards in the game Racko.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
