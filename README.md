@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8e+60 is the number of Planck time intervals since the Big Bang.
+32 is the number of rays in the Japanese Rising Sun on the cover of Incubus' 2006 album Light Grenades.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
