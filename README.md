@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-85 is the atomic number of astatine.
+7 is the number of colors of the rainbow.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
