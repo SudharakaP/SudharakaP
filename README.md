@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-48 is the number of Ptolemaic constellations.
+199 is the population of Woodstock, Newfoundland and Labrador, Newfoundland and Labrador Canada according to the 2006 Census.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
