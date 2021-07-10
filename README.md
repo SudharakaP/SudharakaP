@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-251 is the last and most powerful prime mover (engine) designed and built by the American Locomotive Company (ALCO).
+15 is the length in miles of a train of boxcars that can be filled from recycled paper in the USA every day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
