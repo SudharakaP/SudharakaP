@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-99 is the number of names of Allah, the names or attributes of God in the Qur'an.
+720 is the number of degrees in two circles (= 2 × 360).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
