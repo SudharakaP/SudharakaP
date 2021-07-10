@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+156 is the number of hourly gongs a clock strikes in one day (78 AM gongs and 78 PM gongs).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
