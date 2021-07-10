@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is the approximate number of days it takes Mercury to complete its orbit.
+113 is the intelligence Agency telephone number in Iran.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
