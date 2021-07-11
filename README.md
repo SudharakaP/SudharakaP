@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
+350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
