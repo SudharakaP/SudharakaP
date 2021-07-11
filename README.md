@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
+10000000000 is the number of times the original Pac Man has been played as estimated by Namco, the manufacturers of Pac Man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
