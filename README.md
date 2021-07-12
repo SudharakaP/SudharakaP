@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1311000000 is the population of the People's Republic of China in 2007.
+89 is the number of units of each colour in the board game Blokus.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
