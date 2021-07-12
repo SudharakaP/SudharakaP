@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the rank of Uruguay in population density.
+159 is the number of isomers of C11H24.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
