@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-89 is the number of units of each colour in the board game Blokus.
+15 is the age for obtaining a driver's (or learner's) permit in certain jurisdictions, including some where the age for a driver's license is sixteen.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
