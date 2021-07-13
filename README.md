@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the first course in a subject taught at a college or university in Australia, Canada, South Africa, or the United States.
+361 is the number of positions on a standard 19 x 19 Go board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
