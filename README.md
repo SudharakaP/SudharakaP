@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
--Infinity is negative infinity.
+243 is the Calling code for Zaire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
