@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the death toll of the air crash of American Airlines Flight 191.
+300 is the number of different beverages the Coca Cola company offers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
