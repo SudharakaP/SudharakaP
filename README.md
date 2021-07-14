@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-720 is the number of degrees in two circles (= 2 × 360).
+336 is the number of dimples on an American golf ball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
