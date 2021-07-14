@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
+222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
