@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3.457e+181 is the number of ways to arrange the tiles in English Scrabble on a standard 15-by-15 Scrabble board.
+155 is the maximum possible score in a single break in snooker, with a free ball at the start of the break (147 is the highest possible without a free ball).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
