@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the answer to the Ultimate Question of Life, the Universe, and Everything.
+500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
