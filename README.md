@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1400000 is the number of species that have been named by the World Resources Institute.
+256 is the number of NFL regular season football games.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
