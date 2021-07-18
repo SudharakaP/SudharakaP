@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
+185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
