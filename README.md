@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35000 is the number of genes in a human being.
+7 is the number of periods, or horizontal rows of elements, in the periodic table.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
