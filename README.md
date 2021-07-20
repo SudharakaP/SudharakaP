@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the length in minutes of the Right Stuff.
+123 is the electricity emergency telephone number in Indonesia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
