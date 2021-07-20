@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17 is the minimum driving age for a car or van in the United Kingdom.
+40 is the percentage of U.S. paper currency in circulation that was counterfeit by the end of the Civil War.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
