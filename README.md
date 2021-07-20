@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-105 is the number of surat al-Fil in the Qur'an.
+225 is the longest distance in miles a deepwater lobster has been recorded to travel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
