@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-125 is the atomic number of the yet-to-be-discovered element Unbipentium.
+114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
