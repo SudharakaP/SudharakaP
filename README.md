@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-81 is the number of prayers said in the Rosary in each night.
+4200000 is the number of couples in the United States that live together but are not married.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
