@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is a trick used in extreme sports where a rider rotates half a turn while airborne and lands.
+12 is the number of people who have walked on Earth's moon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
