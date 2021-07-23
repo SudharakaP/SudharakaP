@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3 is number of performers in a trio.
+24 is the number of books in the Tanakh.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
