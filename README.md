@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4294967296 is the number of bytes in 4 gibibytes.
+Infinity is the estimation of the game-tree complexity in the game of Go.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
