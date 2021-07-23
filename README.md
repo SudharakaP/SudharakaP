@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-450 is a perfect score in Canadian five-pin bowling.
+336 is the number of dimples on an American golf ball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
