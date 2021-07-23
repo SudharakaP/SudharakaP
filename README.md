@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the all-time titles record held by Tennis Hall of Famer Martina Navratilova.
+206 is the number of bones in the typical adult human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
