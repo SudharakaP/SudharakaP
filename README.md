@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-61 is the code for international direct dial phone calls to Australia.
+108 is the percentage volume expansion of freezing water.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
