@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the focal length in millimeters of the normal lens in 35 mm photography.
+149 is the number of legal proceedings against 149 communists in Estonia in 1924.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
