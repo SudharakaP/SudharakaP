@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is the distance in light years to Eta Aquarii,a star in the constellation Aquarius.
+195 is the number of runs that Ollie Beard had in his MLB career from 1889-1891.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
