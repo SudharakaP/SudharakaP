@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30000 is the number of distinct Chinese characters.
+850 is the maximum possible Fair Isaac credit score.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
