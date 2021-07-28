@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is the atomic number of unbioctium, an element yet to be discovered.
+361 is the number of positions on a standard 19 x 19 Go board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
