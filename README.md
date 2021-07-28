@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the basic film gauge in mm most commonly used for both analog photography and motion pictures.
+2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
