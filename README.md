@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the maximum number of times a letter-sized paper can be folded in half.
+96 is the rating of Skyrim on metacritic.com.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
