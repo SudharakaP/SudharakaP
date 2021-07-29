@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-220 is the common voltage in many countries.
+176 is the rank of Vanuatu in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
