@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
+14 is the maximum number of electrons that can fit in an f sublevel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
