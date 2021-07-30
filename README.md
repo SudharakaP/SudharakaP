@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the maximum number of electrons that can fit in an f sublevel.
+3 is number of performers in a trio.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
