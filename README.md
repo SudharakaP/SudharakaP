@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-178 is the rank of Samoa in world population.
+73 is the percentage of girls in Bangladesh that are married by age 18.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
