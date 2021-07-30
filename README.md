@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
+1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
