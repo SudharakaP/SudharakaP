@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-165 is the number of episodes that the TV show Daniel Boone ran on NBC from 1964 to 1970.
+480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
