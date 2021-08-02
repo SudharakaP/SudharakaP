@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the standard resolution of an Apple Macintosh screen in dots per inch.
+1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
