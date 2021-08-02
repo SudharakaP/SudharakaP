@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-525998433 is the number of distinct websites as of November 2011.
+550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
