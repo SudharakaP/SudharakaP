@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1 is the number of moons orbiting Earth.
+511 is the number of collaborators mathematician Paul Erdős had.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
