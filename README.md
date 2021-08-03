@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the jersey number worn by the starting stand-off half/five-eighth in most rugby league competitions.
+40 is the number of weeks for an average term of pregnancy, counting from the woman’s last menstrual period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
