@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-48 is the number of Ptolemaic constellations.
+172 is the temperature in Farenheit at which alcohol boils.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
