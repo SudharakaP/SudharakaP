@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the minimum age for United States senators.
+82 is the atomic number of lead.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
