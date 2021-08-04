@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-261 is number of possible unfolded tesseract patterns.
+116 is the prefix for several EU-wide telephone helplines designated as harmonised service of social value.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
