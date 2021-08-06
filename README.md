@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-285 is the total number of Rules of Acquisition in Star Trek.
+99 is the number of names of Allah, the names or attributes of God in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
