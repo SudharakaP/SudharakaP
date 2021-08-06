@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the angle between two planets in degrees so that they are in an astrological aspect called a sesquiquadrate.
+46 is the number of mountains in the 46 peaks of the Adirondack mountain range.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
