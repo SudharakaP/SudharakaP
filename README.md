@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106 is the number of surat Quraysh in the Qur'an.
+72 is the average number of heartbeats per minute for a resting adult.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
