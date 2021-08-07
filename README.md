@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5500000000000000 is the number of estimated ants on Earth alive at any one time.
+26 is the number of letters in the Latin-derived English alphabet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
