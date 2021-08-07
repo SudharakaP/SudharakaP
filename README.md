@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+45 is the sapphire wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
