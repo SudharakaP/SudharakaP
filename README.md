@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-83 is the atomic number of bismuth.
+190 is the rank of Seychelles in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
