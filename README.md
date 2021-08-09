@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the traditional number of years in a jubilee period.
+157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
