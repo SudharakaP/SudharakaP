@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the number of languages spoken at the Tower of Babylon.
+113 is the atomic number of an element temporarily called ununtrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
