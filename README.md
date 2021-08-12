@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the approximate number of times a mother hen turns her egg in a day so the yolk does not stick to the shell.
+183 is the id number of Issam Hamid Al Bin Ali Al Jayfi, a detainee at Guantanamo Bay.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
