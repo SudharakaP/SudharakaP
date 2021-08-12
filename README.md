@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the number of laws of cricket.
+74 is the atomic number of tungsten.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
