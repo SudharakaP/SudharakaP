@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the number for voicemail for mobile phones on the Vodafone network.
+Infinity is the number of universes in multiverse theory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
