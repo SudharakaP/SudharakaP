@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-239 is the atomic mass number of the most common isotope of plutonium.
+136 is the hottest temperature ever recorded in Fahrenheits at Aziziya, Libya in September 1922.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
