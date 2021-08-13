@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6000000 is the number of beavers in Canada before the fur trade started.
+138 is the number of touchdowns football quarterback Donnie Davis had for the Georgia Force of the Arena Football League.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
