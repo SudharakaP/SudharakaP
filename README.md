@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-360000 is the number of words definitions in the New Oxford Dictionary of English.
+242 is the number of a notable UN Security Council resolution pertaining to the Arab/Israeli conflict.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
