@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-90 is the latitude of the North Pole and the South Pole.
+29 is the number of days it takes Saturn to orbit the Sun.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
