@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
+2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
