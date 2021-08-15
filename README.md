@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-365 is the number of solar days in the mean tropical year.
+203 is the HTTP status code indicating partial information.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
