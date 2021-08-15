@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-390 is the speed in feet per second that nerve impulses for muscle position travel at.
+65 is the minimum grade required to pass an exam, or class, in many areas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
