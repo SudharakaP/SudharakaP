@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-200 is degrees in a human"s field of vision (approximately).
+4.52e+46 is the upper bound for the number of legal chess positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
