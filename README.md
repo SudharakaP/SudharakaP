@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20000000000 is the approximate number of coconuts produced worldwide each year.
+28 is the number of days in the average human menstrual cycle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
