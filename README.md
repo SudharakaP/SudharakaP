@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1300 is the number of babies born prematurely in the USA every day.
+11 is the number of sides on the Canadian one-dollar coin (a hendecagon, an eleven-sided polygon).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
