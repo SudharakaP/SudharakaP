@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-343 is the number of New York City Firefighters who died on September 11, 2001.
+267000 is the number of words in James Joyce's Ulysses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
