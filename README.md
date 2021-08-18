@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the electricity emergency telephone number in Egypt.
+45 is the sapphire wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
