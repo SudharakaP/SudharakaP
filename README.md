@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
+50 is the approximate number of times a mother hen turns her egg in a day so the yolk does not stick to the shell.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
