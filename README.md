@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20000000 is the weight in tons of the average iceberg.
+Infinity is the number of universes in multiverse theory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
