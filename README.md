@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-154 is the period in days that the sun follows on gamma-ray flares.
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
