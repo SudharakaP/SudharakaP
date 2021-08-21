@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
+100 is the number of common administrative grouping unit of homesteads in Northern Europe and Great Britain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
