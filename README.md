@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is the gent's clout shooting distance in archery measured in yards.
+7e+27 is the number of atoms in the average human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
