@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-74 is the atomic number of tungsten.
+156 is the number of strikes a clock will strike in the course of a day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
