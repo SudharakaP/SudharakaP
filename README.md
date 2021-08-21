@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-112 is the number of surat al-Ikhlas in the Qur'an.
+138 is the number of touchdowns football quarterback Donnie Davis had for the Georgia Force of the Arena Football League.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
