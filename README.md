@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106000000000 is the number of homo sapiens that have lived since speciation.
+172000 is tons of chocolate produced in Belgium in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
