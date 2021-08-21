@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-212 is the boiling point of water at sea level in Fahrenheit degrees.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
