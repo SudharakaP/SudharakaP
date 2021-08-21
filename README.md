@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-77 is the atomic number of iridium.
+11 is the possible age of the youngest elected pope, Benedict IX.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
