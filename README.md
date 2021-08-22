@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
