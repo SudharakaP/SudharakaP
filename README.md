@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-217 is the room in Stephen King's novel "The Shining", that plays a central part in the story as it is haunted.
+156 is the number of hourly gongs a clock strikes in one day (78 AM gongs and 78 PM gongs).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
