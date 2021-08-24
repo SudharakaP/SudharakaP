@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-160 is the number of characters permitted in a standard short message service in Australia and Europe.
+273 is the number of seconds in American composer John Cage's piano composition 4'33" of silence, in three movements.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
