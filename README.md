@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the number of seconds in American composer John Cage's piano composition 4'33" of silence, in three movements.
+650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
