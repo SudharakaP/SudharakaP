@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-220 is the SMTP code meaning "service ready".
+175 is the number of films that actress Rose Tapley appeared in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
