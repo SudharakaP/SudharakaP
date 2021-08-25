@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is essendon's losing margin against Adelaide in round 10 of the 2006 AFL season.
+47 is the number of El-Aurians Scotty manages to beam up before their ship is destroyed by the energy ribbon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
