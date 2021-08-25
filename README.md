@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-587 is the outgoing port for email message submission.
+149000000 is the number of kilometres from the Earth the sun is.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
