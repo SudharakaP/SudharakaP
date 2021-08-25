@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3000 is the number of gowns Queen Elizabeth I of England owned when she died.
+173 is the number of players that competed in badminton at the 2008 Summer Olympics in Beijing, China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
