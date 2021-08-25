@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is a number prominently related in the symbolism associated with karate, particularly the GÅjÅ«-ryÅ« discipline.
+300 is the approximate number of Spartans who fought to death at the Battle of Thermopylae.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
