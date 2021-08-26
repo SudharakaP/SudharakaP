@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
+1096000000 is the population of India in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
