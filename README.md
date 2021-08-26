@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-144 is a gross (a dozen dozen).
+37 is the normal human body temperature in degrees Celsius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
