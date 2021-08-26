@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000000000000 is the number of bacteria on the surface of the human body.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
