@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-63 is the number of chromosomes found in the offspring of a donkey and a horse.
+190 is the medical emergency number in Ghana.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
