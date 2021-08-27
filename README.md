@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-126 is the number of years that Gilgamesh reigned according to the Sumerian king list.
+14500 is the number of unique English words occur in the King James Version of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
