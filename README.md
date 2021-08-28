@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-83 is the atomic number of bismuth.
+6 is the number of orders of the Mishnah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
