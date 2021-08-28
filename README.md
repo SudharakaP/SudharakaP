@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is the common voltage in England and Australia before conversion to 230V standard.
+4 is the number of nucleobase types in DNA and RNA – adenine, guanine, cytosine, thymine (uracil in RNA).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
