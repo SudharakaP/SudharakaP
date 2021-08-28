@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-143 is the number of milligrams of caffeine in AMP Energy.
+6 is the number of ponies in the main cast of My Little Pony: Friendship is Magic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
