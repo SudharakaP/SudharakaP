@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the minimum age of candidates for election to the United States Presidency.
+239 is the number of chapters in the Book of Mormon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
