@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the number of chapter in the Quran, the holy book of Islam contains 114.
+188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
