@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the number of nucleobase types in DNA and RNA – adenine, guanine, cytosine, thymine (uracil in RNA).
+400000000000 is the number of stars in the Milky Way galaxy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
