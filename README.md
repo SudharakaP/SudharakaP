@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-156 is the number of episodes the TV series The West Wing ran on NBC from 1999 to 2006, including an extra episode.
+44 is the percentage of kids who watch television before they go to sleep in the US.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
