@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the record of strikeouts in the 2007 MLB season, held by Ryan Howard of the Philadelphia Phillies.
+128 is the atomic number of unbioctium, an element yet to be discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
