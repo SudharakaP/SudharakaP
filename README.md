@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-69 is the number Bill and Ted were thinking of when talking to their future selves.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
