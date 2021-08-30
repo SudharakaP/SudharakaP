@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-171 is the top speed in miles per hours of the the Porsche Cayenne Turbo S automobile.
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
