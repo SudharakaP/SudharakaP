@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
+123 is the emergency telephone number in Colombia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
