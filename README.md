@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1750000 is the number of entries in the freedb database of CD track listings as of June 2005.
+44 is the percentage of kids who watch television before they go to sleep in the US.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
