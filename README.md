@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the legal age for sexual intercourse in many countries.
+106 is the atomic number of seaborgium (Unilhexium Unh).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
