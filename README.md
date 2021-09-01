@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-24 is the number of teams that participated in each FIFA World Cup finals tournament between 1982 and 1994.
+159 is the number of counties in the state of Georgia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
