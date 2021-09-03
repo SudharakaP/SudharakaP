@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-70 is the distance (meter) from archer to targets in Olympic Archery.
+5 is the number of appendages on most starfish, which exhibit pentamerism.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
