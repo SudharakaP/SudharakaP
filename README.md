@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
+147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
