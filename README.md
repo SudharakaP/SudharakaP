@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-125000 is the number of average strands of hair in the human head.
+496 is what the dimension of the gauge group must be for a superstring theory to make sense.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
