@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the speed of rush hour traffic on average in kilometres per hour in London.
+24 is the number of letters in both the modern and classical Greek alphabet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
