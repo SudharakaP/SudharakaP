@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is a weight class in collegiate wrestling, 184 lb (83 kg).
+5000 is the number of base pairs in the DNA of the simplest viruses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
