@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-178 is the rank of Estonia in world population density.
+22 is the number of players on the field in a football (soccer) match.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
