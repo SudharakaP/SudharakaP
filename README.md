@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the most common number of gears for automobiles with manual transmission.
+496 is what the dimension of the gauge group must be for a superstring theory to make sense.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
