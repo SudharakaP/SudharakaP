@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the customary number of hours in a regular workweek in some Western countries.
+53 is the total number of national football associations of UEFA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
