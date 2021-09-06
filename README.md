@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-118 is the atomic number of the element Ununoctium.
+125 is years in a quasquicentennial.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
