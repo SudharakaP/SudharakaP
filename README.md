@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-365 is the number of solar days in the mean tropical year.
+101 is the number of the first check for new checking account in the US.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
