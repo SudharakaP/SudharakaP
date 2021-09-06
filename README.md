@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-193 is species of monkeys and apes.
+120 is a file medium format developed by Kodak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
