@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
+101 is the temperature in Fahrenheit of milk when it leaves the body of a cow.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
