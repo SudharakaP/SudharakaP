@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+27 is the number of grains in some Buddhist rosary (108 divided by 4).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
