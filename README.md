@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106 is the number of surat Quraysh in the Qur'an.
+4 is the number of nucleobase types in DNA and RNA – adenine, guanine, cytosine, thymine (uracil in RNA).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
