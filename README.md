@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the rank of Iceland in world population.
+112 is the atomic number of the element copernicium (formerly called ununbium).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
