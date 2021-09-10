@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-162 is total number of baseball games each team plays during a regular season in Major League Baseball.
+123 is the atomic number of the yet-to-be-discovered element unbitrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
