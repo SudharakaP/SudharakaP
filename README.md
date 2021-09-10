@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the number of suicides mentioned in the Bible.
+172 is the temperature in Farenheit at which alcohol boils.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
