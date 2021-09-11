@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-343 is the number of New York City Firefighters who died on September 11, 2001.
+140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
