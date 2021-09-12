@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-850 is the maximum possible Fair Isaac credit score.
+1 is the number of dimensions of a line.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
