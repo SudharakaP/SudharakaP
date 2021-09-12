@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the number of characters in a canonical four-character idiom in Chinese.
+81 is the number of stanzas or chapters in the Tao te Ching (in the most common arrangements).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
