@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the number of minutes in one quarter of an hour.
+22 is the number of letters in the Hebrew alphabet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
