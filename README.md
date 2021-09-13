@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-525 is the number of scan lines in the NTSC television standard.
+56000000000 is the number of web pages indexed by Google as of 2010.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
