@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-12 is the largest number that has just one syllable.
+183 is the rank of Laos in countries by population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
