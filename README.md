@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
+101 is the first course in a subject taught at a college or university in Australia, Canada, South Africa, or the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
