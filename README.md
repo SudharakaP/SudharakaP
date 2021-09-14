@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-82 is the number of games in an NBA or NHL regular season.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
