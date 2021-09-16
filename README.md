@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
+7 is the number of types of viruses according to the Baltimore classification.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
