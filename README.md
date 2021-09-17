@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
+400000 is the number of morphine addicts the Civil War produced.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
