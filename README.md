@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the number of days in a fortnight.
+26 is the number of letters in the Latin-derived English alphabet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
