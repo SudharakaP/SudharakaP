@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4e+185 is the number of planck volumes in the observable universe.
+7 is the number of types of viruses according to the Baltimore classification.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
