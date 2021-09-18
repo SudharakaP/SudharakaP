@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
+242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
