@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
+30 is the number of tracks on The Beatles' eponymous album, usually known as The White Album.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
