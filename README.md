@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the substitute for the number 17, which is considered unlucky in Italy.
+1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
