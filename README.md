@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4000 is the weight in pounds that the Great White Shark can grow to.
+79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
