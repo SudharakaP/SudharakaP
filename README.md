@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
+64 is number of codons in the RNA codon table under genetic code.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
