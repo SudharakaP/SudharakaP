@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-59 is the number corresponding to the last second in a given minute.
+24 is the number of letters in both the modern and classical Greek alphabet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
