@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-352 is the number of international appearances by Kristine Lilly for the USA women's national soccer team, an all-time record.
+88 is the number of keys on a piano (36 black and 52 white).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
