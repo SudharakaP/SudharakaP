@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-156 is the width in miles of a crater formed by an asteroid that may have hit Earth 1.8 billion years ago, according to researchers from the University of Toronto and Geological Survey of Canada.
+14 is the number of points in a proposed republican constitution of the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
