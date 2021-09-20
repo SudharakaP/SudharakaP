@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is essendon's losing margin against Adelaide in round 10 of the 2006 AFL season.
+343 is the number of New York City Firefighters who died on September 11, 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
