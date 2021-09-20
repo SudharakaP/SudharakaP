@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is the TCP port used for POP3 email protocol.
+103 is the atomic number of lawrencium, an actinide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
