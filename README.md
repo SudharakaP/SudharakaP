@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-0 is the atomic number of the theoretical element tetraneutron.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
