@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-29 is the number of days it takes Saturn to orbit the Sun.
+24 is the maximum number of Knight Companions in the Order of the Garter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
