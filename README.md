@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5000 is the number of base pairs in the DNA of the simplest viruses.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
