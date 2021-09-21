@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-352 is the number of international appearances by Kristine Lilly for the USA women's national soccer team, an all-time record.
+5600 is the number of metres above sea level of the highest bridge in the world, located in the Himalayan mountains.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
