@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the percentage of methane on Earth produced from the flatulence of domesticated cows.
+6000000000000000000 is the number of transistor produced worldwide in 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
