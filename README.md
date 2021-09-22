@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-145 is the atomic number of Unquadpentium.
+108 is the number of moves in several different Taijiquan long forms.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
