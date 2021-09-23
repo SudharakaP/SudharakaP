@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-82 is the number of games in an NBA or NHL regular season.
+199 is the rank of Zambia in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
