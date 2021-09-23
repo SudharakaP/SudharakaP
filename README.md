@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20000000000 is the approximate number of coconuts produced worldwide each year.
+950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
