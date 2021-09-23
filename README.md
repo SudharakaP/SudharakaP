@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-75 is the age limit for Canadian senators.
+195 is the rank of Waco, Texas by largest city population in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
