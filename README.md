@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-142600 is tonnes of gold mined in the world by the end of 2000.
+99 is the highest jersey number allowed in most major league sports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
