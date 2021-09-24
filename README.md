@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16777216 is the number of different colors that can be generated using the hex code system in HTML.
+56 is the number of consecutive games in baseball in which New York Yankees' Joe DiMaggio had a base hit in 1941, still a record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
