@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5500000000000000 is the number of estimated ants on Earth alive at any one time.
+60 is the number of seconds in a minute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
