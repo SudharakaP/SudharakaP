@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
+4 is the number of characters in a canonical four-character idiom in Chinese.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
