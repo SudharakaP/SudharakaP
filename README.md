@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the second highest possible score in darts that can be obtained by throwing three darts in a single visit to the oche.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
