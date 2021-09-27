@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-151 is the height of the Statue of Liberty from the base to the torch in feet (46 m).
+250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
