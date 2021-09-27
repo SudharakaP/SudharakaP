@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1311000000 is the population of the People's Republic of China in 2007.
+213 is the radical meaning "turtle", one of only two of the 214 Kangxi radicals that are composed of 16 strokes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
