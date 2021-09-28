@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the number of kyu (pupil) grades in judo.
+76 is the atomic number of osmium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
