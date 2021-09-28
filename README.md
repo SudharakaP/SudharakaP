@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the number of columns of a Line printer printing in landscape mode on 14-inch paper.
+400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
