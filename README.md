@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
+161 is the number of games that former German soccer referree Gerd Hennig refereed between 1964 and 1982.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
