@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
