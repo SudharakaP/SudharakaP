@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
