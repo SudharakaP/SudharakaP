@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-51 is the atomic number of antimony.
+187 is the number of the California Penal Code section describing murder.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
