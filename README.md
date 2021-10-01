@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
+23 is the number of crosses on Calvary in the Monty Python film Life Of Brian.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
