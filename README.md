@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
