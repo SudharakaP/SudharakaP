@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-202 is the area code assigned to Washington D.C.
+132 is the number of columns of a Line printer printing in landscape mode on 14-inch paper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
