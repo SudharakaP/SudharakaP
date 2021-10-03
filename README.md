@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
+100 is the number of yards in an American football field (not including the end zones).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
