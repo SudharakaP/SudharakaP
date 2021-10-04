@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is keith Deller's score in the 1983 BDO World Darts Championship trophy against Eric Bristow, amongst the most memorable in darting history.
+3000 is the number of years for which Carpenter ants have been used to close wounds in parts of India, Asia and South America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
