@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-225 is the longest distance in miles a deepwater lobster has been recorded to travel.
+142600 is tonnes of gold mined in the world by the end of 2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
