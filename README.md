@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the HTTP status code indicating that a client should switch protocols.
+69 is the number Bill and Ted were thinking of when talking to their future selves.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
