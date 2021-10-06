@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is luxembourg ranks #166 in world population.
+195 is the number of episodes of Chickenman series which began in 1966.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
