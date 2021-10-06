@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-134 is the number of episodes of the TV series Xena Warrior Princess.
+117 is the height in metres of the tallest tree recorded, located in Humboldt Redwoods State Park, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
