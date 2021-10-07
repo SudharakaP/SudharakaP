@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the distance off the coast of Malta that the ocean liner RMS Franconia was sunk by German torpedoes in 1916.
+400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
