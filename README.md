@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-800000000 is the number of active users on Facebook as of December 2011.
+194 is the number of historic building in the Braden Castle Park Historic District in Bradenton, Florida.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
