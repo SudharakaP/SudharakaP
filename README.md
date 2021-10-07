@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-365 is the number of solar days in the mean tropical year.
+151 is total number of types of Pokémon in the original set.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
