@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the standard TCP/IP port number used for HTTP connections.
+199 is steps to the top of the Cape May Lighthouse in Cape May, New Jersey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
