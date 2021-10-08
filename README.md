@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
+134 is the number of episodes in the TV series Hawaiian Eye that ran on ABC from 1959 to 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
