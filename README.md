@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-229 is the lowest individual batting score not achieved by any player in test match cricket.
+2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
