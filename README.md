@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-99 is the highest jersey number allowed in most major league sports.
+3400000000 is the number of total number of speakers of Indo-European languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
