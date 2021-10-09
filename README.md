@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-175 is the number of films that actress Rose Tapley appeared in.
+3400000000 is the number of total number of speakers of Indo-European languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
