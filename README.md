@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the standard length (year) of a term in office for a United States senator.
+6 is the number of symbolic foods placed on the Passover Seder Plate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
