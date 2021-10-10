@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-28 is the number worn by the Clemson Tigers' record breaking running back C.J.
+14 is the earliest age that the emancipation of minors can occur in the U.S.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
