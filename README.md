@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-94 is the length of an NBA court in feet.
+220 is the SMTP code meaning "service ready".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
