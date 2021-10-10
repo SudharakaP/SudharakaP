@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1337 is the number that spells "leet" in leetspeak.
+180 is a number that in an astrological aspect is considered to be negative in influence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
