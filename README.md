@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
+384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
