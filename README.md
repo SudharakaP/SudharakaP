@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
+192 is the population of Bide Arm in Newfoundland and Labrador, Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
