@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-270 is the average number of days in human pregnancy.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
