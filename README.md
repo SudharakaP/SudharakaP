@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44 is the number of candles in a box of Hanukkah candles.
+196 is the height of Mount Victoria, Wellington, a prominent hill near Wellington, New Zealand.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
