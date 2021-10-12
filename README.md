@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the population of Arguisuelas, Castile-La Mancha, Spain.
+56000000000 is the number of web pages indexed by Google as of 2010.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
