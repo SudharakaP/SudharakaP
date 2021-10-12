@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-402000000 is the number of native speakers of English.
+190 is the population of Arguisuelas, Castile-La Mancha, Spain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
