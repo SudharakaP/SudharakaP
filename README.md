@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-261 is number of possible unfolded tesseract patterns.
+5200 is the number of standard size of a legion in the Roman Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
