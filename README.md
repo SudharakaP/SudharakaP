@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-170 is largest integer for which Google"s built-in calculator function can compute the factorial.
+23 is the number of times Julius Caesar was stabbed.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
