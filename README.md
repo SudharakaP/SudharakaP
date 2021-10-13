@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-400000 is the number of morphine addicts the Civil War produced.
+38 is the number of minutes in the shortest war in history in which Zanzibar surrendered to England in 1896.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
