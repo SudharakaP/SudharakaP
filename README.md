@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-144 is a gross (a dozen dozen).
+180 is the gent's clout shooting distance in archery measured in yards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
