@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the rank of the United States in world population density.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
