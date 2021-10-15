@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
+15 is the number of letters in the words "uncopyrightable", "dermatoglyphics", "misconjugatedly", and "hydropneumatics", the longest English words with no repeat letters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
