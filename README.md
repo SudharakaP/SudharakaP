@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-92 is the number of letters in the longest place name: Taumatawhakatangihangakoauauotamateaurehaeaturipukakapikimaungahoronukupokaiwhenuakitanatahu.
+192 is the population of Bide Arm in Newfoundland and Labrador, Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
