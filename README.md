@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-183 is the number of runs scored by former cricket player Sourav Ganguly in the 1999 Cricket World Cup, second highest in World Cup history, and highest by an Indian in the tournament.
+3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
