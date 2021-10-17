@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
+164 is the number of home runs the Baltimore Orioles hit in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
