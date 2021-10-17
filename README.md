@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is the rank of Somaliland in countries by population density.
+100000000000 is the number of neurons in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
