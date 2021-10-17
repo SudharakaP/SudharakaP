@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-31 is the number of flavors of Baskin-Robbins ice cream.
+230 is the common voltage in the European Union.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
