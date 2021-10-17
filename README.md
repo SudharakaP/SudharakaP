@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-285 is the total number of Rules of Acquisition in Star Trek.
+59 is the number of days, approximately in two lunar months.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
