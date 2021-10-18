@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the highest test score of Australian cricket captain Michael Clarke.
+58 is the number of usable cells on a Hexxagon game board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
