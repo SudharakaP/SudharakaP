@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
+168 is the highest test score of Australian cricket captain Michael Clarke.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
