@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the number of the Vault that is the starting area of Fallout 3.
+120 is the number of days of the average life span of a single red blood cell.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
