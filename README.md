@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-67890 is the number of largest decimal places of π that have been recited from memory.
+295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
