@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110000 is the average number of hairs that people with black hair have.
+187 is the atomic number of an element temporarily called Unoctseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
