@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
+225 is the longest distance in miles a deepwater lobster has been recorded to travel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
