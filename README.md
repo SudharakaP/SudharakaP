@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-111 is the number occasionally referred to as "eleventy-one", as read in The Fellowship of the Ring by J.R.R.
+132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
