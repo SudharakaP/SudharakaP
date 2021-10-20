@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the minimum age of candidates for election to the United States Presidency.
+0 is the atomic number of the theoretical element tetraneutron.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
