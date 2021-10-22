@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is width in feet of the Lincoln Memorial Reflecting Pool, which is is 2,029 feet (618 m) long and 167 feet (51 m) wide.
+22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
