@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
+199 is the number of goals scored by Randy Burridge in his NHL career between 1985-1998.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
