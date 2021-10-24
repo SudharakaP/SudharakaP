@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110000 is the average number of hairs that people with black hair have.
+198 is the number of films that actor Neal Burns appeared in between 1915 and 1946.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
