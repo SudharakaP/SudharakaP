@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
+28 is the number of grams in an ounce (approximately), and used as such in the illegal drug trade.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
