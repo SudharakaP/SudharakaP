@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the temperature in Fahrenheit of milk when it leaves the body of a cow.
+384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
