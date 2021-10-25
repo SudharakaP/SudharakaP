@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+56 is the number of layers of the Universe according to Aristotle (Earth plus 55 crystalline spheres above it).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
