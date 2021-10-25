@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-201 is the HTTP status code indicating a new resource was successfully created in response to the request.
+133 is the number of episodes of the TV series Good Times ran on CBS from 1974 to 1979.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
