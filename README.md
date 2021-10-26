@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
+148 is the number of episodes of the TV series The Fresh Prince of Bel-Air on NBC from 1990 to 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
