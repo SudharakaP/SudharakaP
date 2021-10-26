@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-231 is the number of cubic inches in a U.S. liquid gallon.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
