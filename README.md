@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-24 is the number of bits a computer needs to represent falseColor images (for a maximum of 16,777,216 colours).
+273 is the death toll of the air crash of American Airlines Flight 191.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
