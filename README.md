@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is the length of the Judgment at Nuremberg measured in 186 minutes.
+231 is the number of cubic inches in a U.S. liquid gallon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
