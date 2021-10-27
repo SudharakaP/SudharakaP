@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the height in feet that Buddha Dordenma, a Shakyamuni Buddha statue under construction in the mountains of Bhutan, once completed, would be.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
