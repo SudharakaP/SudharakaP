@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
+38 is the number of games that each team in the current English Premiership, the top division in English Association Football, plays in a season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
