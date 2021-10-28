@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
+21 is the number of trump cards of the tarot deck if one does not consider The Fool to be a proper trump card.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
