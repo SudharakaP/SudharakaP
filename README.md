@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-276 is the highest number of rounds in boxing history, in a bare-knuckle fight in 1825 that saw Jack Jones beat Patsy Tunney after 4hr 30min.
+172 is the number that appears on the back of the US $5 dollar bill (in the bushes at the base of the Lincoln Memorial).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
