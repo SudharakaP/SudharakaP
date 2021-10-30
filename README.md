@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the number of the Immortals of Taoism.
+221 is sMTP status code for service closing transmission channel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
