@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5200 is the number of standard size of a legion in the Roman Empire.
+213 is one of the first three area codes created in California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
