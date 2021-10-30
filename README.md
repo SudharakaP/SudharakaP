@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-280000000000000 is the number of possible unique physical addresses.
+195 is the length in miles of The Wild West Relay team running relay race held annually in August in Colorado.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
