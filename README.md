@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the number of athletes from Belarus competed in 28 events at the 2008 Olympics in Beijing.
+511 is the number of collaborators mathematician Paul Erdős had.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
