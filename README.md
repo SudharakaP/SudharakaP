@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3400000000 is the number of total number of speakers of Indo-European languages.
+250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
