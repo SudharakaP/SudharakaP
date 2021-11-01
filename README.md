@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
+114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
