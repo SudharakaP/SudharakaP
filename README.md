@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-28 is the number worn by the Clemson Tigers' record breaking running back C.J.
+7e+22 is the number of stars within range of telescopes (as of 2003).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
