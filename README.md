@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
+99 is the number of names of Allah, the names or attributes of God in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
