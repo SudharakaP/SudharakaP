@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the medical emergency telephone number in Egypt.
+195 is the rank of South Ossetia Georgia in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
