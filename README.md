@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-251 is the last and most powerful prime mover (engine) designed and built by the American Locomotive Company (ALCO).
+28 is the number worn by the Clemson Tigers' record breaking running back C.J.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
