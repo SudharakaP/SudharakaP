@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
+40 is the number of attempts needed before the creation of the "water displacing" substance in the spray WD-40.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
