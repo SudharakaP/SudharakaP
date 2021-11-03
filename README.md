@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
+360 is the number of degrees in a circle for the purpose of angular measurement.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
