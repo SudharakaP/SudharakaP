@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1750000 is the number of entries in the freedb database of CD track listings as of June 2005.
+235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
