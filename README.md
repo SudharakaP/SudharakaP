@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the years of marriage until the diamond wedding anniversary.
+5200 is the number of standard size of a legion in the Roman Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
