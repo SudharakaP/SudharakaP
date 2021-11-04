@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-83 is the highest UHF channel on older televisions made before the late 1970s.
+110 is the age a person must attain in order to be considered a supercentenarian.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
