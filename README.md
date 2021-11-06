@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is a number used to define the number of keys on a computer keyboard.
+562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
