@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-51 is the atomic number of antimony.
+67 is the number of counties in Florida.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
