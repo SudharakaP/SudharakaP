@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1631 is two London bible printers accidentally left "not" out of the 7th commandment, which then read "Thou shalt commit adultery.".
+113 is the intelligence Agency telephone number in Iran.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
