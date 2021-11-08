@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-90000 is the average number of hairs that redheads have.
+25 is the (critical) number of Florida electoral votes for the 2000 U.S. presidential election.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
