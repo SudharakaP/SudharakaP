@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the percentage of all bingo players are under the age of 35.
+50 is the speed limit, in kilometers per hour, of Australian roads with unspecified limits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
