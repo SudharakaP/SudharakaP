@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the number of runs by Dick Culler in his Major League Baseball career from 1936-1949.
+100 is the number of blessings a religious Jewish person is expected to utter daily.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
