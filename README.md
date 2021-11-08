@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17 is the number of syllables in a haiku (5+7+5).
+7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
