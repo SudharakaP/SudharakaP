@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25 is the minimum age of candidates for election to the United States House of Representatives.
+78 is the atomic number of platinum.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
