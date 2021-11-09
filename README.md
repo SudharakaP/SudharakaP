@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-714 is the number of home runs Babe Ruth scored in his career.
+191 is a common flight number for flights involved in crashes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
