@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the first magic number in physics.
+165 is miles of shoreline of Lake Berryessa in Napa County, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
