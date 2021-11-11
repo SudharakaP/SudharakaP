@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22 is the typical (minimum) number of episodes in a season for a television program broadcast on a major American network.
+218 is votes required in the US House of Representatives to achieve a majority as of 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
