@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-90 is the latitude of the North Pole and the South Pole.
+Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
