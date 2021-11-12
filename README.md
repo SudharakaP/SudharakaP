@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
+138 is essendon's losing margin against Adelaide in round 10 of the 2006 AFL season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
