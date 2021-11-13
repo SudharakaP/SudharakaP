@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-78 is the total number of gifts in the song The Twelve Days of Christmas.
+51 is the atomic number of antimony.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
