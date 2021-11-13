@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1728 is braces were first invented by Pierre Fauchard.
+214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
