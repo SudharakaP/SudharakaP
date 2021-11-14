@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-245 is the number of Jewish singers who returned from captivity in Babylon in circa 538 BCE BC following the rise of Cyrus the Great and the Persian Empire.
+149 is the number of legal proceedings against 149 communists in Estonia in 1924.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
