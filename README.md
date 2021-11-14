@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-174 is the number of miles the Columbia University Library System collection, with over 9.3 million volumes, would stretch end-to-end.
+313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
