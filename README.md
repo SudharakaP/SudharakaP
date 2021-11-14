@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
+118 is the beginning of directory enquiries numbers in the United Kingdom,France, Germany, Latvia, Sweden, Ireland, and Turkey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
