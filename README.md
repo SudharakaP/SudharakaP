@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5000 is the number of base pairs in the DNA of the simplest viruses.
+3 is the number of notes in a triad, the basic form of any chord.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
