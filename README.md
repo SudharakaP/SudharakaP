@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-91 is the amount of money one has if one has one coin of each U.S. denomination less than a dollar (penny, nickel, dime, quarter, half dollar) in cents.
+199 is the number of hits MLB pitcher Alex Jones gave up in his career from 1889-1903.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
