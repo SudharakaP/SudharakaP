@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
+8e+120 is the ratio of the mass-energy in the observable universe to the energy of a photon with a wavelength the size of the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
