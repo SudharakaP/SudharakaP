@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
+38 is the number of games that each team in the current English Premiership, the top division in English Association Football, plays in a season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
