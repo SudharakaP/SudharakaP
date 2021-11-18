@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-67 is the number of counties in Florida.
+500 is the number of detectable earthquakes in the world each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
