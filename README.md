@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-127 is the atomic number of Unbiseptium, an element that has not yet been discovered.
+1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
