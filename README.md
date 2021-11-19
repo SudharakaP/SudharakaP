@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the number of chapter in the Quran, the holy book of Islam contains 114.
+100000000000000 is the number of cells in the the human body, of which only 10^{13} are human. The remaining 90% non-human cells are bacteria.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
