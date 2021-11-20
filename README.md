@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the cartridge version of 35mm photographic film, used widely in still photogaphy.
+Infinity is the number of universes in multiverse theory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
