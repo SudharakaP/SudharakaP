@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
+75 is the age in years that the Saguaro Cactus, found in southwestern US, must be to grow branches.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
