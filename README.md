@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8 is the number of legs that arachnids have.
+65 is the minimum grade required to pass an exam, or class, in many areas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
