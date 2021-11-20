@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+83 is the number of fundamental particles in the observable universe.
+15 is the length in miles of a train of boxcars that can be filled from recycled paper in the USA every day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
