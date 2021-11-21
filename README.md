@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-695 is the number of people dead in the single deadliest tornado in United States history (the F5 Tri-State Tornado in 1925).
+185 is the name of an improve improv game where, given a subject from the audience, players make up jokes beginning with "185 (blanks) walk into a bar.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
