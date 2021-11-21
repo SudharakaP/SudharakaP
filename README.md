@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-153 is the frequency in kHz of of the longwave transmitters Donebach, Ingøy, Braşov, and Kenadsa.
+128 is the number of characters in the ASCII character set.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
