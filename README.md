@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-366 is the number of days in a leap year.
+124 is the rank of the Palestinian territories in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
