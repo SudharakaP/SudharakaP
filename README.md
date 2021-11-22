@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the length in miles of the Adda River in Italy.
+178 is the rank of Samoa in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
