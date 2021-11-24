@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64 is number of codons in the RNA codon table under genetic code.
+112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
