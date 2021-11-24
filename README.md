@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9220000000000000000 is the largest number which can fit into a signed (two's complement) 64-bit integer on a computer.
+136 is the number of episodes the TV series Fame ran on NBC and syndication from 1982 to 1987.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
