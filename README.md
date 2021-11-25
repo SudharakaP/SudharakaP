@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
+168 is the feet that three-time Olympic gold medalist John Flanagan achieved in the hammer throw in 1904 (168 feet, 1 inch).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
