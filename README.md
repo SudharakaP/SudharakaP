@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-29 is the number of Knuts in one Sickle in the fictional currency in the Harry Potter novels.
+166 is the number of files that Actor Robert Ellis appeared in films between 1913 and 1934.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
