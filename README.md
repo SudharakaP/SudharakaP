@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the percentage of movies released that are Rated R.
+185 is the rank Grenada in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
