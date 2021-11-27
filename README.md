@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
+100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
