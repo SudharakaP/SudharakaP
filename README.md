@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the first number of an automatic IPv4 address assigned by TCP/IP when no external networking device is contactable.
+200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
