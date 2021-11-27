@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
+16 is the minimum age for getting an adult job in most states and provinces across the globe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
