@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
+4 is the number of characters in a canonical four-character idiom in Chinese.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
