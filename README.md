@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4.52e+46 is the upper bound for the number of legal chess positions.
+273 is the zero of the Celsius temperature scale (to the nearest whole number) in Kelvin.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
