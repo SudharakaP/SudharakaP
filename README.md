@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000 is the number of other neurons each neuron is connected to in the human brain.
+50 is the height in kilometres that a volcano can shoot ash into the sky.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
