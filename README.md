@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7e+22 is the number of stars within range of telescopes (as of 2003).
+7 is the number of types of viruses according to the Baltimore classification.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
