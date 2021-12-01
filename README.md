@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-197 is the rank of the Solomon Islands in population density.
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
