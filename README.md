@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-174 is the length in miles of the The Columbia University Library System collection, with over 9.3 million volumes, if stretched end-to-end.
+169 is the number of miles that Thomas Sopwith, an English aviation pioneer flew in 3 hours, 40 minutes on December 18, 1910.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
