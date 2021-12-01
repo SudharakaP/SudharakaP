@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30000 is the number of distinct Chinese characters.
+138 is the number of constellations of the Triakis tetrahedron.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
