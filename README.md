@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-68 is the ideal temperature (F) for developing black-and-white film.
+83 is the highest UHF channel on older televisions made before the late 1970s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
