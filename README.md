@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the maximum speed of analog data transmission over a POTS in the 20th century measured in kbit/s.
+216 is the number of colors formed by a 6 color cube, sometimes known as the web-safe color palette.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
