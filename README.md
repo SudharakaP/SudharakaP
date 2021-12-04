@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-78 is the total number of gifts in the song The Twelve Days of Christmas.
+300 is the number of pounds per square inch of pressure to break the shell of Macadamia nuts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
