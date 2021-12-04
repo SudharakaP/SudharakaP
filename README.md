@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
