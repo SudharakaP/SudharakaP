@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-464 is the number of legal positions of the kings in chess, not counting mirrored positions.
+110 is a card game related to Forty-five (card game).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
