@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4e+185 is the number of planck volumes in the observable universe.
+30 is the percentage of methane on Earth produced from the flatulence of domesticated cows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
