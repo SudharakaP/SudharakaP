@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000000 is the number of people buried in Père Lachaise Cemetery, the most visited cemetary in the world, opened in 1804.
+119 is a number to report children / youth at risk in France.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
