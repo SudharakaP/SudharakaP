@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the most points by a rookie in a NBA Playoff game (Philadelphia's Wilt Chamberlain, 1960).
+500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
