@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-142600 is tonnes of gold mined in the world by the end of 2000.
+14 is the number of times that a typical dairy cow lies down and stands up a day on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
