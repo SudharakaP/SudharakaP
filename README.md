@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the size, in bits, of certain integer data types, used in computer representations of numbers.
+14500 is the number of unique English words occur in the King James Version of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
