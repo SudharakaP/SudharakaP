@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
+24 is the number of hours it takes for the human body to make 1 to 3 pints of saliva.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
