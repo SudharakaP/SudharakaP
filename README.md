@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
+402000000 is the number of native speakers of English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
