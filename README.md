@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the percentage of movies released that are Rated R.
+10 is the number of letters used in the traditional Snellen chart.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
