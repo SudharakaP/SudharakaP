@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-96 is the rating of Skyrim on metacritic.com.
+179 is the atomic number of an element temporarily called Unseptennium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
