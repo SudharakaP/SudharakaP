@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+199 is the record of strikeouts in the 2007 MLB season, held by Ryan Howard of the Philadelphia Phillies.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
