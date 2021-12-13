@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-176 is the number of verses in the longest chapter, the Psalm 119 of the Bible.
+110 is the number of stories (by common reckoning) of the Sears Tower in Chicago.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
