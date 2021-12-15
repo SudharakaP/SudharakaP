@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3000 is the number of gowns Queen Elizabeth I of England owned when she died.
+73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
