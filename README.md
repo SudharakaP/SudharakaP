@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1631 is two London bible printers accidentally left "not" out of the 7th commandment, which then read "Thou shalt commit adultery.".
+138 is the number of touchdowns football quarterback Donnie Davis had for the Georgia Force of the Arena Football League.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
