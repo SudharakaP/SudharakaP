@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the number of names of God, according to Kabbalah.
+60 is the number of seconds in a minute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
