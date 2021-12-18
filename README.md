@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-208 is the area code for the US state of Idaho.
+3500000000000 is the estimated population of fish in the ocean.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
