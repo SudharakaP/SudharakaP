@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
+1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
