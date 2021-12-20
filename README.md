@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
+225 is the longest distance in miles a deepwater lobster has been recorded to travel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
