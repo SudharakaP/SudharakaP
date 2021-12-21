@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
+39 is the duration, in nanoseconds, of the nuclear reaction in the largest nuclear explosion ever performed (Tsar bomb).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
