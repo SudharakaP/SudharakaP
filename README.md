@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-12 is the number of basic hues in the color wheel (3 primary colors (red, yellow, blue), 3 secondary colors (orange, green & purple) and 6 tertiary colors).
+100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
