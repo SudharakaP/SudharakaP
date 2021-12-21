@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
+98 is the highest jersey number allowed in the National Hockey League (as 99 was retired by the entire league to honor Wayne Gretzky).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
