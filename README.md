@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the maximum number of facial muscles a smile can require.
+42 is the number of museums in Amsterdam (Netherlands has the highest concentration of museums in the world).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
