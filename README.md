@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the all-time titles record held by Tennis Hall of Famer Martina Navratilova.
+213 is one of the first three area codes created in California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
