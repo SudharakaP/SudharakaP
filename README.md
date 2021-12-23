@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-267000 is the number of words in James Joyce's Ulysses.
+562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
