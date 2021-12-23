@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-649 is the number of Pokémon as of Pokémon Black and White versions.
+2055001 is the number of people employed by Wal-mart in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
