@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-89 is the atomic number of actinium.
+175 is the weight in grams of a flying disc used in Ultimate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
