@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
+8 is the number of bits in a byte.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
