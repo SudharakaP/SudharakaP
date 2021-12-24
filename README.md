@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4.52e+46 is the upper bound for the number of legal chess positions.
+150000000 is the number of items held in the British Library.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
