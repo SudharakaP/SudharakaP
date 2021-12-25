@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
+350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
