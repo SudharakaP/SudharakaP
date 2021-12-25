@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
