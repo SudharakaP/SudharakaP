@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-99 is the highest jersey number allowed in most major league sports.
+201 is the Saros cycle; the next solar eclipse in this cycle is predicted to take place in AD 3223.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
