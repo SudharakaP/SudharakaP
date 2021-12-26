@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3.457e+181 is the number of ways to arrange the tiles in English Scrabble on a standard 15-by-15 Scrabble board.
+200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
