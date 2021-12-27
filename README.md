@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
+480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
