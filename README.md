@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is the number of stories (by common reckoning) of the Sears Tower in Chicago.
+180 is the gent's clout shooting distance in archery measured in yards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
