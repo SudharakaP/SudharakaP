@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the single-season home run record in baseball set by Barry Bonds in 2001.
+155 is the number of episodes the TV series Sea Hunt ran in syndication from 1958 to 1961.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
