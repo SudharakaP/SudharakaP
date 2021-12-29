@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-183 is the id number of Issam Hamid Al Bin Ali Al Jayfi, a detainee at Guantanamo Bay.
+30 is the duration in years of the Thirty Years' War - 1618 to 1648.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
