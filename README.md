@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
+550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
