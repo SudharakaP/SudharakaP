@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the number of episodes that the The Mary Tyler Moore Show ran on CBS from 1970 to 1977.
+199 is the number of hits by Ron Davis in his MLB career from 1962-1969.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
