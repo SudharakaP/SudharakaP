@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is the distance in light years to Eta Aquarii,a star in the constellation Aquarius.
+50 is the gold or "golden" wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
