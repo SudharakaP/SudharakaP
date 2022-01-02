@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64 is the total number of black and white squares on the game board in chess or draughts.
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
