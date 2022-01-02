@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6909 is the number of estimate for the linguistic diversity of living human languages or dialects.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
