@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45 is the sapphire wedding anniversary in years of marriage.
+25 is the minimum age of candidates for election to the United States House of Representatives.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
