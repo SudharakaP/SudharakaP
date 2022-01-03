@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
+205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
