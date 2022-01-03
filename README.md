@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the number of Mbit/s of a non-standard extension of IEEE 802.11g wireless network using channel bonding.
+64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
