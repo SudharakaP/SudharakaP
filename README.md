@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
+23 is the number of enigma that plays a prominent role in the plot of The Illuminatus! Trilogy by Robert Shea and Robert Anton Wilson.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
