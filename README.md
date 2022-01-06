@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-170 is largest integer for which Google"s built-in calculator function can compute the factorial.
+120 is the height in inches of a regulation basketball hoop.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
