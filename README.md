@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-400000000000 is the number of stars in the Milky Way galaxy.
+142 is the number of home-based business ideas included in the 142 Now packet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
