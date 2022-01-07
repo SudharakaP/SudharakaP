@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-243 is the Calling code for Zaire.
+186 is the rank of Somaliland in countries by population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
