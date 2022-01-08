@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-285 is the total number of Rules of Acquisition in Star Trek.
+25 is the number of years of marriage marked in a silver wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
