@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-242 is the area code of The Bahamas located in the North West Atlantic Ocean.
+1400000 is the number of species that have been named by the World Resources Institute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
