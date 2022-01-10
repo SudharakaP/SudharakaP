@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
+169 is the first number of an automatic IPv4 address assigned by TCP/IP when no external networking device is contactable.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
