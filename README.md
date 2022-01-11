@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
+175 is years Harriet (1830–2006) the Galápagos tortoise lived.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
