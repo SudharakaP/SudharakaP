@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is the rank of Somaliland in countries by population density.
+197 is the rank of the Solomon Islands in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
