@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-749 is the pounds of paper products used by an American individual annually on average.
+62 is the number which Sigmund Freud has an irrational fear of.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
