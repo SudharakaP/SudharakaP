@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+390 is the speed in feet per second that nerve impulses for muscle position travel at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
