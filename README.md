@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25 is the minimum age of candidates for election to the United States House of Representatives.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
