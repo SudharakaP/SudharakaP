@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-27 is the number of grains in some Buddhist rosary (108 divided by 4).
+60 is the total number of cards in the game Racko.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
