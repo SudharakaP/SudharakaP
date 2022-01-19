@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the duration in years of the Thirty Years' War - 1618 to 1648.
+712 is the largest known number such that it and its 8th power have no common digits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
