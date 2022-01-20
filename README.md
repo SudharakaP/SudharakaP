@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
+613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
