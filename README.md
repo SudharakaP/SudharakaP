@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-61 is the number of points required to win a "standard" game of Cribbage.
+108 is the number of stitches in an official Major League Baseball baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
