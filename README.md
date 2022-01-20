@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the percentage of all bingo players are under the age of 35.
+146 is the Guinness World Record for the most languages a poem was recited in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
