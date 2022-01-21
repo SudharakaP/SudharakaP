@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-36 is the perfect score on the ACT.
+94 is the atomic number of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
