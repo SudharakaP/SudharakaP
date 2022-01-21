@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-183 is the id number of Issam Hamid Al Bin Ali Al Jayfi, a detainee at Guantanamo Bay.
+32 is the number of pages in the average comic book (not including the cover).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
