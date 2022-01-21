@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the rank of Finland in population density.
+6800 is the approximate number of languages in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
