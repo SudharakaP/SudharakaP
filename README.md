@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
+304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
