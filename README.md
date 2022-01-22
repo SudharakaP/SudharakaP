@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the approximate periodicity of a sunspot cycle in years.
+10 is the average thickness of the Arctic ice sheet in feet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
