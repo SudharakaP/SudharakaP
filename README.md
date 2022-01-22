@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
+2 is the number of polynucleotide strands in a DNA double helix.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
