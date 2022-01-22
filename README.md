@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8 is the number of bits in a byte.
+42 is the number of laws of cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
