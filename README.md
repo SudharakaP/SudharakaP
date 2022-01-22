@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-300 is the number of different beverages the Coca Cola company offers.
+121 is the official end score for Cribbage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
