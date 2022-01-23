@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-251 is the last and most powerful prime mover (engine) designed and built by the American Locomotive Company (ALCO).
+276 is the highest number of rounds in boxing history, in a bare-knuckle fight in 1825 that saw Jack Jones beat Patsy Tunney after 4hr 30min.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
