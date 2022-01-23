@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the standard TCP/IP port number used for HTTP connections.
+25 is the number of cents in a quarter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
