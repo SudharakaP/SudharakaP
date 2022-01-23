@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
+384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
