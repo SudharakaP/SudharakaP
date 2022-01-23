@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
+1728 is braces were first invented by Pierre Fauchard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
