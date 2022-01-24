@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the holy number of Discordianism, as dictated by the Law of Fives.
+11 is the number of players in a field hockey team.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
