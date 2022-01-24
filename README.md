@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the number of lasers in the National Ignition Facility (NIF) at Lawrence Livermore National Laboratory in Livermore, California.
+161 is the number of songs Pink Floyd recorded.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
