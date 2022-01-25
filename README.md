@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-360 is the number of degrees in a circle for the purpose of angular measurement.
+100 is the number of common administrative grouping unit of homesteads in Northern Europe and Great Britain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
