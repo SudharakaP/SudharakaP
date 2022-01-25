@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is the average brain mass of a baboon in grams.
+177 is the all-time titles record held by Tennis Hall of Famer Martina Navratilova.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
