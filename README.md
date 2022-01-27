@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3000 is the number of gowns Queen Elizabeth I of England owned when she died.
+1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
