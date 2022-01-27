@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-21 is the number of points required to win a game in badminton and table tennis (before 2001).
+76 is the atomic number of osmium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
