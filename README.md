@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-360 is the number of degrees in a circle for the purpose of angular measurement.
+29 is the number of days February has in leap years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
