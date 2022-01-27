@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
+150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
