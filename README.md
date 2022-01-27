@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50000000 is the approximate number of people who fish per year in the United States.
+273 is the zero of the Celsius temperature scale (to the nearest whole number) in Kelvin.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
