@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-218 is votes required in the US House of Representatives to achieve a majority as of 2008.
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
