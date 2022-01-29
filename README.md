@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-564000 is the number of words in War and Peace by Leo Tolstoy.
+64 is the size in bits of certain data types in some computer programming languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
