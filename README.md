@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the number of states in the United States of America.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
