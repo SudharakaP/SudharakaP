@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-215 is the Dewey Decimal Classification for Science and religion.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
