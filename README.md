@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-267 is the number of groups of order 64.
+110 is the age a person must attain in order to be considered a supercentenarian.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
