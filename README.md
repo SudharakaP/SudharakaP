@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16 is the minimum age that one can drop out of school in most states of the US (however, restrictions apply and vary depending on state).
+493 is the number of bronze knuts equivalent to one gold galleon, in the monetary system of the world of Harry Potter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
