@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-163 is the atomic number of an element temporarily called Unhextrium.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
