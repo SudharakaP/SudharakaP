@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
+32 is the freezing point of water at sea level in degrees Fahrenheit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
