@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the duration in years of the Thirty Years' War - 1618 to 1648.
+3400000000 is the number of total number of speakers of Indo-European languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
