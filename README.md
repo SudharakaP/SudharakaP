@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-171 is the top speed in miles per hours of the the Porsche Cayenne Turbo S automobile.
+57 is the number of cm that the smallest man measured, Gul Mohammed (1957-1997) of India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
