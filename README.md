@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the atomic number of the undiscovered chemical element Unbiunium.
+78 is the total number of gifts in the song The Twelve Days of Christmas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
