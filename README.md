@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-720 is the number of degrees in two circles (= 2 × 360).
+65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
