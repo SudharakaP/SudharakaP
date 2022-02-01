@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17 is 'the least random number' as described at MIT, according to hackers' lore.
+440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
