@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-218 is votes required in the US House of Representatives to achieve a majority as of 2008.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
