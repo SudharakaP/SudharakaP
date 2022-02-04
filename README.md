@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
+525998433 is the number of distinct websites as of November 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
