@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the highest speed limit allowed in the United States between 1974 and 1986 per the National Maximum Speed Law.
+614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
