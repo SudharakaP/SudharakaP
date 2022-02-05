@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-215 is the Dewey Decimal Classification for Science and religion.
+135 is the cartridge version of 35mm photographic film, used widely in still photogaphy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
