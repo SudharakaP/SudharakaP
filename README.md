@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the total number of years in a Sexagenary cycle.
+555 is the number of keyboard sonatas written by Domenico Scarlatti, according to the catalog by Ralph Kirkpatrick.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
