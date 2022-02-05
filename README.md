@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-209 is the basketball record for most three pointers in a row.
+3000 is the number of gowns Queen Elizabeth I of England owned when she died.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
