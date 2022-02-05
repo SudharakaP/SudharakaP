@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is a percentage in the expression "To give 110%", meaning to give a little more effort than one's maximum effort.
+66 is the total number of books in the Protestant edition of the Bible (Old Testament and New Testament) combined.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
