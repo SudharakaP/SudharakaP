@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
+10000000000 is the number of bacteria in the human oral cavity.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
