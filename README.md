@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the standard resolution of an Apple Macintosh screen in dots per inch.
+13 is the number of steps in the gallows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
