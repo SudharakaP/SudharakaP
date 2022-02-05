@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-90000 is the average number of hairs that redheads have.
+538 is the total number of votes in the Electoral College of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
