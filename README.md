@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-133 is the number of episodes of the TV series Good Times ran on CBS from 1974 to 1979.
+25 is the size of the full roster on a Major League Baseball team for most of the season, except for regular-season games on or after September 1, when teams may expand their roster to no more than 40 players.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
