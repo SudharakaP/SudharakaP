@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+119 is a number to report children / youth at risk in France.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
