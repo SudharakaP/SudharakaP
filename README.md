@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000000000000 is the number of bacteria on the surface of the human body.
+164 is the atomic number of an element temporarily called Unhexquadium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
