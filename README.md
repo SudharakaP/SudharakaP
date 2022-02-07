@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the focal length in millimeters of the normal lens in 35 mm photography.
+8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
