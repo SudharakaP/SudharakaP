@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000000000000 is the number of bacteria on the surface of the human body.
+44 is the number of candles in a box of Hanukkah candles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
