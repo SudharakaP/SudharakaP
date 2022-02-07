@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-68 is the ideal temperature (F) for developing black-and-white film.
+159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
