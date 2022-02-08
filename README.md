@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-712 is the largest known number such that it and its 8th power have no common digits.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
