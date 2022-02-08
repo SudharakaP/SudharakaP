@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-52 is the approximate number of weeks in a year.
+64 is the number of demons in the Dictionnaire Infernal.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
