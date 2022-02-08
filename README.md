@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the electricity emergency telephone number in Indonesia.
+64 is the total number of black and white squares on the game board in chess or draughts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
