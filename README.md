@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the price in cents per acre the USA bought Alaska from Russia.
+19 is the final year a person is a teenager.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
