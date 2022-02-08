@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-36 is the perfect score on the ACT.
+84 is the atomic number of polonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
