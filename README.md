@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1311000000 is the population of the People's Republic of China in 2007.
+201 is the title of an episode of South Park.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
