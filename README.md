@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-220 is the common voltage in many countries.
+8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
