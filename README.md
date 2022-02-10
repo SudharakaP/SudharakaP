@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
+3 is the number of novels or films in a trilogy and the number of interconnected works of art in a triptych.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
