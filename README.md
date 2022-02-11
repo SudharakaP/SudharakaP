@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-98 is the temperature (F) of the normal body.
+42 is the number of laws of cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
