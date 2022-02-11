@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
+53 is the port number of UDP and TCP for the Domain Name System protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
