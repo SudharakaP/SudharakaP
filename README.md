@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
+20 is the number of ounces in Venti size coffees at Starbucks coffee shops.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
