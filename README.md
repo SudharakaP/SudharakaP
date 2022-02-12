@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the number of completed, numbered piano sonatas by Ludwig van Beethoven.
+14 is the minimum age at which one can work in many U.S states.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
