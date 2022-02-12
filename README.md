@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-125 is years in a quasquicentennial.
+42 is the answer to the Ultimate Question of Life, the Universe, and Everything.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
