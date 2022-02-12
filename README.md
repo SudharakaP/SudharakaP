@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is a weight class in collegiate wrestling, 184 lb (83 kg).
+28 is the number of days in the average human menstrual cycle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
