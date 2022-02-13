@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7e+27 is the number of atoms in the average human body.
+30000 is the number of distinct Chinese characters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
