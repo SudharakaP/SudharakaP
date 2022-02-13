@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-131 is the medical emergency telephone number in Chile.
+113 is the intelligence Agency telephone number in Iran.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
