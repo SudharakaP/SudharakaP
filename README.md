@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-162 is total number of baseball games each team plays during a regular season in Major League Baseball.
+32 is the freezing point of water at sea level in degrees Fahrenheit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
