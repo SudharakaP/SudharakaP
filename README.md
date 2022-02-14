@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-210 is the world speed record (km/h) for a mountain bike on a ski slope.
+5 is the number of permanent members with veto power on the United Nations Security Council.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
