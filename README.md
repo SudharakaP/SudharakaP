@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-153 is the frequency in kHz of of the longwave transmitters Donebach, Ingøy, Braşov, and Kenadsa.
+43687 is the number of toilet related accidents in the United States in 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
