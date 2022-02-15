@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-251 is the last and most powerful prime mover (engine) designed and built by the American Locomotive Company (ALCO).
+60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
