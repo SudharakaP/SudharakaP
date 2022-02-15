@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-84 is the atomic number of polonium.
+46 is the number of human chromosomes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
