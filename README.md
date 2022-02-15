@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-99 is the highest jersey number allowed in most major league sports.
+1096000000 is the population of India in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
