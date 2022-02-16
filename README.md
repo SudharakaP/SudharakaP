@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-174 is the length in miles of the The Columbia University Library System collection, with over 9.3 million volumes, if stretched end-to-end.
+136 is the section of the Mental Health Act 1983 (UK law) details removing a mentally ill person from a public place to a place of safety.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
