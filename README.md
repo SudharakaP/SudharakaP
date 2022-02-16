@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
+172 is the number that appears on the back of the US $5 dollar bill (in the bushes at the base of the Lincoln Memorial).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
