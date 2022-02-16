@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1311000000 is the population of the People's Republic of China in 2007.
+30 is the percentage of methane on Earth produced from the flatulence of domesticated cows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
