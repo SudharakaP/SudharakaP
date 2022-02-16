@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the percentage of methane on Earth produced from the flatulence of domesticated cows.
+313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
