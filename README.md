@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is travis Pastrana's number for dirtbiking and rally car racing.
+110000 is the average number of hairs that people with black hair have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
