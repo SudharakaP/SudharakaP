@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-185 is the distance a single playing card was thrown in feet by Kevin St. Onge to set a Guinness World Record.
+196 is the rank of American Samoa in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
