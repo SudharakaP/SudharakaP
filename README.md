@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8e+60 is the number of Planck time intervals since the Big Bang.
+33 is the temperature at which water boils according to the Newton scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
