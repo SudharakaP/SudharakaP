@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
+128 is the number of ASCII characters (33 non-printing characters, mostly obsolete control characters that affect how text is processed, and 94 printable).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
