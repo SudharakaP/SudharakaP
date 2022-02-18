@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-111 is the number occasionally referred to as "eleventy-one", as read in The Fellowship of the Ring by J.R.R.
+31 is the number of days in the months January, March, May, July, August, October and December.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
