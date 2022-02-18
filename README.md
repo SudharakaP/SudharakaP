@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the number of pages in the average comic book (not including the cover).
+70 is the number of years of marriage until the platinum wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
