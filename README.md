@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the number of episodes that the Growing Pains ran on ABC from 1985 to 1992.
+56 is the number of consecutive games in baseball in which New York Yankees' Joe DiMaggio had a base hit in 1941, still a record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
