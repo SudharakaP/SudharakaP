@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-214 is the SMTP status code for help message.
+383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
