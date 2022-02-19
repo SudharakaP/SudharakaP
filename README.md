@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
+6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
