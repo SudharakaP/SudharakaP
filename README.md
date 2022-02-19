@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the number of Men of the Great Assembly who canonized the Books of the Tanakh and formulated the Jewish prayers.
+400000 is the number of morphine addicts the Civil War produced.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
