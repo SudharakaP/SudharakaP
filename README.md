@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000000000000000000 is the estimated insect population.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
