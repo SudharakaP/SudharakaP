@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the highest speed limit allowed in the United States between 1974 and 1986 per the National Maximum Speed Law.
+142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
