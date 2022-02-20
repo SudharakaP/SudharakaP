@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
+390 is the speed in feet per second that nerve impulses for muscle position travel at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
