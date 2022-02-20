@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the highest number on one end of a standard domino.
+225 is the longest distance in miles a deepwater lobster has been recorded to travel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
