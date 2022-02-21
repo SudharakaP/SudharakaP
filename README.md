@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-285 is the total number of Rules of Acquisition in Star Trek.
+179 is the number of episodes of I Love Lucy which ran on CBS.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
