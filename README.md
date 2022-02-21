@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-115 is the atomic number of an element temporarily called ununpentium.
+166 is luxembourg ranks #166 in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
