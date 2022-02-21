@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the percentage of water of which the human body is composed.
+100 is the number of pounds in an American short hundredweight.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
