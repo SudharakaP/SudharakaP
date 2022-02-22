@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000000000000000000 is the estimated insect population.
+9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
