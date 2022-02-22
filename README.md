@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000000 is the number of people buried in Père Lachaise Cemetery, the most visited cemetary in the world, opened in 1804.
+37 is the cost in cents of the Whopper Sandwich when Burger King first introduced it in 1957.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
