@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is the atomic number of an element not yet observed called Untriseptium.
+102 is the atomic number of nobelium, an actinide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
