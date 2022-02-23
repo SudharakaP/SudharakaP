@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3 is the number of words or phrases in a Tripartite motto.
+179 is the rank of Guam in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
