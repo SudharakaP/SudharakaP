@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
+650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
