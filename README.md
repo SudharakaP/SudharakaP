@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
+1096000000 is the population of India in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
