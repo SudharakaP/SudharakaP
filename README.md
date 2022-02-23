@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-155 is the maximum possible score in a single break in snooker, with a free ball at the start of the break (147 is the highest possible without a free ball).
+613 is a significant number in Judaism, as its metaphysics, the Kabbalah, views every full entity as divisible into 613 parts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
