@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the percentage of all bingo players are under the age of 35.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
