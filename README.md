@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16777216 is the number of different colors that can be generated using the hex code system in HTML.
+3 is the number of words or phrases in a Tripartite motto.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
