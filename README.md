@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-217 is the area code for central Illinois.
+56 is the number of Aubrey Holes in the first stage of Stonehenge.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
