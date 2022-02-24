@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-69 is the number Bill and Ted were thinking of when talking to their future selves.
+146 is the Guinness World Record for the most languages a poem was recited in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
