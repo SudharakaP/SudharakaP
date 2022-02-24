@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-178 is the rank of Estonia in world population density.
+4 is the number of human blood groups (A, B, O, AB).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
