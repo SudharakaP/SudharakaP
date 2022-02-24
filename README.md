@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is a radioactive isotope of Caesium formed by nuclear fission.
+4294967296 is the number of bytes in 4 gibibytes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
