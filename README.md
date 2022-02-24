@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the rank of Faroe Islands (Denmark) in world population density.
+181 is the number of 181 colleges, universities and other higher education institutions in Texas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
