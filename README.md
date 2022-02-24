@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4200 is the number of standard size of a legion in the Roman Republic.
+22 is the number of chapters of the Revelation of John in the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
