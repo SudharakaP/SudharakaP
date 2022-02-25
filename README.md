@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-202 is the area code assigned to Washington D.C.
+2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
