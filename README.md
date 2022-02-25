@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the speed of rush hour traffic on average in kilometres per hour in London.
+29 is the number of attributes existing according to The Strokes in You Only Live Once.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
