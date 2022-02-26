@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the number of orders of the Mishnah.
+100000 is the number of verses (shlokas) in the Mahabharata.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
