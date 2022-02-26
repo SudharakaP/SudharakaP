@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the life duration of the ovule in hours.
+177 is the rank of Netherlands Antilles in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
