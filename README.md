@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the single-season home run record in baseball set by Barry Bonds in 2001.
+15 is the number of days in each of the 24 cycles of the Chinese calendar.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
