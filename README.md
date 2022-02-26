@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the number of seconds in American composer John Cage's piano composition 4'33" of silence, in three movements.
+56 is the number of consecutive games in baseball in which New York Yankees' Joe DiMaggio had a base hit in 1941, still a record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
