@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the population density in square kilometers of Italy, the fifth-highest population density in Europe.
+20 is the number of questions in the popular party game Twenty Questions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
