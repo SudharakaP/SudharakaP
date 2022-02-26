@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-39 is the traditional number of times citizens of Ancient Rome hit their slaves when beating them, referred to as "Forty save one".
+199 is the position that Tom Brady was picked in the 2000 NFL draft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
