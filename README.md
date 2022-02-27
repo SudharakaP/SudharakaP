@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
+9220000000000000000 is the largest number which can fit into a signed (two's complement) 64-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
