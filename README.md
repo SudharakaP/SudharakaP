@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-125 is the atomic number of the yet-to-be-discovered element Unbipentium.
+88 is a standard length of playing cards in mm.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
