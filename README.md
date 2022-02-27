@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-365 is the number of solar days in the mean tropical year.
+6 is the number of feet below ground level a coffin is traditionally buried.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
