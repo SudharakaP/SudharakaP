@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
