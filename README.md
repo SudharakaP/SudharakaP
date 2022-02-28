@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the speed in miles per hour that cheetahs, the fastest land animal, can reach.
+1e+83 is the number of fundamental particles in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
