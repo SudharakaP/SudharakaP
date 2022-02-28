@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
+72 is the speed in miles per hour that cheetahs, the fastest land animal, can reach.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
