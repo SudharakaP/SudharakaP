@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is a number that in an astrological aspect is considered to be negative in influence.
+199 is steps to the top of the Cape May Lighthouse in Cape May, New Jersey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
