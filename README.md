@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the death toll of the 1995 Oklahoma City bombing.
+5e+30 is the number of bacterial cells on Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
