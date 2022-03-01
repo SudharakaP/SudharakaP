@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the length in minutes of the Right Stuff.
+6 is the number of feet below ground level a coffin is traditionally buried.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
