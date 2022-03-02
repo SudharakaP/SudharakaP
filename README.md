@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-127 is the atomic number of Unbiseptium, an element that has not yet been discovered.
+181 is the rank of SÃ£o TomÃ© and PrÃ­ncipe in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
