@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000000000000 is the number of cells in the the human body, of which only 10^{13} are human. The remaining 90% non-human cells are bacteria.
+177 is the second highest possible score in darts that can be obtained by throwing three darts in a single visit to the oche.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
