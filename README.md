@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
+80 is the standard TCP/IP port number used for HTTP connections.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
