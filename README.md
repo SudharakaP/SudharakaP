@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
+125000 is the number of average strands of hair in the human head.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
