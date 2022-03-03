@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4200 is the number of standard size of a legion in the Roman Republic.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
