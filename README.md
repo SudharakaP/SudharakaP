@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
+1311000000 is the population of the People's Republic of China in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
