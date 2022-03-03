@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-165 is miles of shoreline of Lake Berryessa in Napa County, California.
+390 is the speed in feet per second that nerve impulses for muscle position travel at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
