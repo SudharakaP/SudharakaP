@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-174 is the rank of Zimbabwe in world population density.
+73 is the percentage of girls in Bangladesh that are married by age 18.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
