@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the number of miles that Thomas Sopwith, an English aviation pioneer flew in 3 hours, 40 minutes on December 18, 1910.
+500 is the number of detectable earthquakes in the world each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
