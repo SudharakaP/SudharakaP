@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14500 is the number of unique English words occur in the King James Version of the Bible.
+30 is the number of tracks on The Beatles' eponymous album, usually known as The White Album.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
