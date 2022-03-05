@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the number of players that competed in badminton at the 2008 Summer Olympics in Beijing, China.
+83 is the highest UHF channel on older televisions made before the late 1970s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
