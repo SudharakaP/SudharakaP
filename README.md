@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is steps to the top of the Cape May Lighthouse in Cape May, New Jersey.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
