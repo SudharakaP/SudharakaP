@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-361 is the number of positions on a standard 19 x 19 Go board.
+43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
