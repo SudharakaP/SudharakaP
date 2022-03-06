@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-131 is the medical emergency telephone number in Chile.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
