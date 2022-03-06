@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-712 is the largest known number such that it and its 8th power have no common digits.
+197 is the rank of the Solomon Islands in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
