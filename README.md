@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+21 is the number of grains of sand on all the world's beaches put together.
+18 is the number of chapters into which James Joyce's epic novel Ulysses is divided.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
