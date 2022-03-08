@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-201 is the HTTP status code indicating a new resource was successfully created in response to the request.
+166 is the number of episodes that the Growing Pains ran on ABC from 1985 to 1992.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
