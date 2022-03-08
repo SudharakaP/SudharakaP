@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the speed of rush hour traffic on average in kilometres per hour in London.
+29 is the number of cups of milk needed to make one pound of butter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
