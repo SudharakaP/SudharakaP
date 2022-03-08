@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-171 is the top speed in miles per hours of the the Porsche Cayenne Turbo S automobile.
+149 is the number of legal proceedings against 149 communists in Estonia in 1924.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
