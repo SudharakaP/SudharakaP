@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is the pounds of oxygen that the adult human body requires daily.
+50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
