@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-352 is the number of international appearances by Kristine Lilly for the USA women's national soccer team, an all-time record.
+114 is the element with the highest number of protons yet discovered, Ununquadium with the highest number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
