@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-90 is the number of minutes in a football (soccer) match.
+32 is the size, in bits, of certain integer data types, used in computer representations of numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
