@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-136 is the hottest temperature ever recorded in Fahrenheits at Aziziya, Libya in September 1922.
+80 is the length (years) of the Eighty Years' War (1568–1648).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
