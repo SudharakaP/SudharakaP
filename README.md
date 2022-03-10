@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the number of men who signed the United States Declaration of Independence in 1776.
+121 is the electricity emergency telephone number in Egypt.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
