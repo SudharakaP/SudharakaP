@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the height of the World's tallest thermometer in feet located in Baker, California.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
