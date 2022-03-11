@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
+165 is the miles that twenty-mule teams, which were mules and horses attached to wagons, traveled from mines to the nearest railroad spur, 165 miles (275 km) away in Mojave, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
