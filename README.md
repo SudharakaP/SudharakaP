@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the record number of victories in an NBA season (1995-96 Chicago Bulls).
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
