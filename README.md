@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-12 is the largest number that has just one syllable.
+222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
