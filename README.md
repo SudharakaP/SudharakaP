@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-276 is the highest number of rounds in boxing history, in a bare-knuckle fight in 1825 that saw Jack Jones beat Patsy Tunney after 4hr 30min.
+100000000000000 is the number of cells in the the human body, of which only 10^{13} are human. The remaining 90% non-human cells are bacteria.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
