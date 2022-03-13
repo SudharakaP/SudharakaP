@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the number of days of the average life span of a single red blood cell.
+360000 is the number of words definitions in the New Oxford Dictionary of English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
