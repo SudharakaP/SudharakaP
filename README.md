@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
+4.52e+46 is the upper bound for the number of legal chess positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
