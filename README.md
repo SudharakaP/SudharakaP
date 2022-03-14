@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000 is the number of elephants it took to bring in the material to build the Taj Mahal from various parts of India.
+490 is the number of Pokémon available as of the release of Pokémon Diamond and Pearl (excluding event Pokémon).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
