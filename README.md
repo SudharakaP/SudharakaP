@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16 is the minimum age that one can drop out of school in most states of the US (however, restrictions apply and vary depending on state).
+15 is the approximate speed in miles per hour a penguin swims at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
