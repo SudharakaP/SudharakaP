@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64 is the number of Braille characters in the old 6-dot system.
+151 is the height of the Statue of Liberty from the base to the torch in feet (46 m).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
