@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-52 is the number of letters in the English alphabet, if majuscules are distinguished from minuscules.
+46 is the number of human chromosomes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
