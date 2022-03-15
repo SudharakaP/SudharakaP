@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-125000 is the number of average strands of hair in the human head.
+22 is the number of yards in a chain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
