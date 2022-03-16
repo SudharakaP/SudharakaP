@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-202 is the area code assigned to Washington D.C.
+90 is the number of minutes in a football (soccer) match.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
