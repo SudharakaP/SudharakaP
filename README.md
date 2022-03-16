@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+12 is the number of constellations in the ecliptic (or signs of the zodiac).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
