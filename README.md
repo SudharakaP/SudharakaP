@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25000000 is the number of different inhabited planets in the the Galactic Empire.
+179 is the number of episodes of I Love Lucy which ran on CBS.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
