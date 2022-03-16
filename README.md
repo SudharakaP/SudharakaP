@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the atomic number of the yet-to-be-discovered element unbitrium.
+10 is the average thickness of the Arctic ice sheet in feet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
