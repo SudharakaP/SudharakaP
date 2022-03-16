@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1728 is braces were first invented by Pierre Fauchard.
+127 is the atomic number of Unbiseptium, an element that has not yet been discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
