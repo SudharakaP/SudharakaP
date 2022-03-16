@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-98 is the highest jersey number allowed in the National Hockey League (as 99 was retired by the entire league to honor Wayne Gretzky).
+35 is the percentage of all bingo players are under the age of 35.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
