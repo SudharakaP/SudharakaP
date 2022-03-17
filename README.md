@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16777216 is the number of different colors that can be generated using the hex code system in HTML.
+138 is keith Deller's score in the 1983 BDO World Darts Championship trophy against Eric Bristow, amongst the most memorable in darting history.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
