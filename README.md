@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is a radioactive isotope of Caesium formed by nuclear fission.
+15 is the approximate speed in miles per hour a penguin swims at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
