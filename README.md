@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the number of episodes of InuYasha, a Japanese manga series which ran from 1996 to 2008.
+6909 is the number of estimate for the linguistic diversity of living human languages or dialects.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
