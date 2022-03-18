@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-193 is species of monkeys and apes.
+95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
