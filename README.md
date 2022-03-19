@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-400000 is the number of morphine addicts the Civil War produced.
+8e+60 is the number of Planck time intervals since the Big Bang.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
