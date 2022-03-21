@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-75 is the age limit for Canadian senators.
+73 is the single-season home run record in baseball set by Barry Bonds in 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
