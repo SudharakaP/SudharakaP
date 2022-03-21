@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-111 is the number occasionally referred to as "eleventy-one", as read in The Fellowship of the Ring by J.R.R.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
