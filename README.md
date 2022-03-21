@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-214 is the first area code of metropolitan Dallas, Texas.
+4 is the number of movements in a symphony.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
