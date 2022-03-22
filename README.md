@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-19 is the final year a person is a teenager.
+127 is the highest signed 8 bit integer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
