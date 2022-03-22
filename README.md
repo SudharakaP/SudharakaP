@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-695 is the number of people dead in the single deadliest tornado in United States history (the F5 Tri-State Tornado in 1925).
+158 is the number of episdoes the TV series The Dick Van Dyke Show ran on CBS from 1961 to 1966 with 158 episodes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
