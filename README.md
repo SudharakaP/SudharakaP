@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-104 is the atomic number of rutherfordium.
+55 is the number of Delegates who attended the United States Constitutional Convention in 1787.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
