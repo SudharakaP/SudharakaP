@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
+67890 is the number of largest decimal places of π that have been recited from memory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
