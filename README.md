@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+195 is the number of runs that Ollie Beard had in his MLB career from 1889-1891.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
