@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the price in cents per acre the USA bought Alaska from Russia.
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
