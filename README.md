@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-127 is the atomic number of Unbiseptium, an element that has not yet been discovered.
+132 is the number of episodes of the TV series Martin that ran on Fox from 1992 to 1997.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
