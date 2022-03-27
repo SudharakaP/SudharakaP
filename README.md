@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the number of 181 colleges, universities and other higher education institutions in Texas.
+7 is the number of seconds it takes "Superman: Escape from Krypton" roller coaster to go from 0 to 100 miles per hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
