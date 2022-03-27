@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is the distance in light years to Eta Aquarii,a star in the constellation Aquarius.
+188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
