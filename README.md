@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45 is the sapphire wedding anniversary in years of marriage.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
