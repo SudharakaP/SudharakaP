@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-78 is the number of lines that make up Metatron's Cube.
+140 is liters of water needed to produce 1 cup of coffee.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
