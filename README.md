@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-390 is the speed in feet per second that nerve impulses for muscle position travel at.
+26 is the number of red cards as well as the number of blue cards in a normal deck of cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
