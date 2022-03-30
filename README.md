@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is the distance in light years to Eta Aquarii,a star in the constellation Aquarius.
+52 is the number of cards in a standard deck of playing cards, not counting Jokers or advertisement cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
