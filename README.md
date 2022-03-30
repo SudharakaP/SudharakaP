@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the minimum age for United States senators.
+72 is the speed in miles per hour that cheetahs, the fastest land animal, can reach.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
