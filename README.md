@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
