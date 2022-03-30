@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is the number of characters in the ASCII character set.
+30000 is the number of distinct Chinese characters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
