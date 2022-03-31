@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+40 is the Eddington–Dirac number.
+60 is the number of seconds in a minute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
