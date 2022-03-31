@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the number of workers trapped for more than 24 hours in the Blyvooruitzicht gold mine in Johannesburg, South Africa on January 18, 2008.
+6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
