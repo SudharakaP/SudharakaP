@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the Notation for national and international telephone numbers Recommendation ITU-T Recommendation E.123 defines a standard way to write telephone numbers, e-mail addresses, and web addresses.
+123 is the telephone number of the speaking clock for the correct time in the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
