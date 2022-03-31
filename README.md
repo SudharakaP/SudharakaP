@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-125000 is the number of average strands of hair in the human head.
+100000000000 is the number of neurons in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
