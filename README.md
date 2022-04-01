@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-194 is the number of historic building in the Braden Castle Park Historic District in Bradenton, Florida.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
