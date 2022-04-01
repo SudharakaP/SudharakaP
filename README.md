@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20000000000 is the approximate number of coconuts produced worldwide each year.
+191 is a common flight number for flights involved in crashes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
