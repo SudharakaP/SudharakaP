@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
