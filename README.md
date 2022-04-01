@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
+37 is the cost in cents of the Whopper Sandwich when Burger King first introduced it in 1957.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
