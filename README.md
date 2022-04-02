@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the number of unlabeled topologies with 5 elements.
+61 is the number of points required to win a "standard" game of Cribbage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
