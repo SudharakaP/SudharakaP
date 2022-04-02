@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
+46 is the number of slices of pizza an average American kid eats in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
