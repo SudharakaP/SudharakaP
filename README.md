@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
+128 is the number of ASCII characters (33 non-printing characters, mostly obsolete control characters that affect how text is processed, and 94 printable).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
