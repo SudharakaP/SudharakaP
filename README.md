@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-225 is the longest distance in miles a deepwater lobster has been recorded to travel.
+900000000 is the approximate number of trees cut down in a year to make the raw materials for US pulp mills and paper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
