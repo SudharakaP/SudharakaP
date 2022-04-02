@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-61000 is the average number of people airborne over the US at any given hour.
+80 is the length (years) of the Eighty Years' War (1568–1648).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
