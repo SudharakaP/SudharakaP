@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is luxembourg ranks #166 in world population.
+208 is the heaviest stable isotope of any element (lead).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
