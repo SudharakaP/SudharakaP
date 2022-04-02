@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-179 is the number of demands laid out by chess master Bobby Fischer laid for the World Chess Federation prior to a 1975 match against Anatoly Karpov.
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
