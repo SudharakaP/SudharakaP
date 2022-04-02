@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4.52e+46 is the upper bound for the number of legal chess positions.
+82 is the number of games in an NBA or NHL regular season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
