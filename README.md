@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the most common number of gears for automobiles with manual transmission.
+138 is the number of constellations of the Triakis tetrahedron.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
