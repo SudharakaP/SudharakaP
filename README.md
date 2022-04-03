@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-66 is the total number of books in the Protestant edition of the Bible (Old Testament and New Testament) combined.
+101 is the first course in a subject taught at a college or university in Australia, Canada, South Africa, or the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
