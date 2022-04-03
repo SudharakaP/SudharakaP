@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is is the atomic number of mendelevium, an actinide.
+62 is the atomic number of samarium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
