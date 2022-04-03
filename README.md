@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-155 is the number of episodes the TV series Sea Hunt ran in syndication from 1958 to 1961.
+44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
