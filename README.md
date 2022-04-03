@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the zero of the Celsius temperature scale (to the nearest whole number) in Kelvin.
+151 is the number of episodes that TV series Malcolm in the Middle ran on the Fox Network from 2000 to 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
