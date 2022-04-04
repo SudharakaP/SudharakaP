@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the number of curls Shirley Temple, as a child, wore in her hair.
+1 is the number of dimensions of a line.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
