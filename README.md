@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-142600 is tonnes of gold mined in the world by the end of 2000.
+27 is the number of bones in the human foot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
