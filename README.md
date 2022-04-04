@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1728 is braces were first invented by Pierre Fauchard.
+1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
