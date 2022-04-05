@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
