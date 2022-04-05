@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-162 is total number of baseball games each team plays during a regular season in Major League Baseball.
+136 is the section of the Mental Health Act 1983 (UK law) details removing a mentally ill person from a public place to a place of safety.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
