@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the total number of major and minor keys in Western tonal music, including enharmonic equivalents.
+470 is the minimum length in yards from the tee to the hole on a Par 5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
