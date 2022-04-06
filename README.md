@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-162 is total number of baseball games each team plays during a regular season in Major League Baseball.
+280000000000000 is the number of possible unique physical addresses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
