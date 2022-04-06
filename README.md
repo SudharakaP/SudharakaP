@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-58 is the number of counties in California.
+267 is the number of groups of order 64.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
