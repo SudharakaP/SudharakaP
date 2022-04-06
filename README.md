@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-490 is the number of Pokémon available as of the release of Pokémon Diamond and Pearl (excluding event Pokémon).
+153 is the frequency in kHz of of the longwave transmitters Donebach, Ingøy, Braşov, and Kenadsa.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
