@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7e+22 is the number of stars within range of telescopes (as of 2003).
+243 is the Calling code for Zaire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
