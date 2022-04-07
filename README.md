@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the number of tennis titles Martina Navratilova has, an all-time record for men or women.
+562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
