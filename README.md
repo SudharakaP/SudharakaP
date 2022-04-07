@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-175 is the rank of Belize in world population.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
