@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-27 is the current number of Amendments to the United States Constitution (2012 February).
+6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
