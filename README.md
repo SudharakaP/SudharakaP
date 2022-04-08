@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110000 is the average number of hairs that people with black hair have.
+195 is the rank of Waco, Texas by largest city population in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
