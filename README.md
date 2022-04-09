@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44 is the percentage of kids who watch television before they go to sleep in the US.
+88 is the number of constellations in the sky as defined by the International Astronomical Union.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
