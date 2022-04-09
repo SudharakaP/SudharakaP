@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-69 is the atomic number of thulium, a lanthanide.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
