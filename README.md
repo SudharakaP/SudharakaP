@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is the number of characters in the ASCII character set.
+195 is the rank of South Ossetia Georgia in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
