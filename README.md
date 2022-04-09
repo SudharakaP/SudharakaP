@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10 is the number of spacetime dimensions in some superstring theories.
+107 is the number of Nobel Prize in Literature laureates.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
