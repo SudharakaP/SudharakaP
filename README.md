@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-70 is the distance (meter) from archer to targets in Olympic Archery.
+176 is the rank of Madagascar 176 world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
