@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the number of Aubrey Holes in the first stage of Stonehenge.
+10 is the number of spacetime dimensions in some superstring theories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
