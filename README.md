@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
+18 is the number of wheels on the most common type of North American tractor-trailer truck, which are hence often called 18-wheelers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
