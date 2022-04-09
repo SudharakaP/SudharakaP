@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-197 is the number of years that Fu Xi lived for altogether.
+1982 is the average price for a major league baseball game ticket in 2004 in cents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
