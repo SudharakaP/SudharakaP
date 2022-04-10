@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-129 is the number of episodes of the TV series Becker that ran on CBS from 1998 to 2004.
+173 is the number of players that competed in badminton at the 2008 Summer Olympics in Beijing, China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
