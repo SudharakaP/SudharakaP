@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15250 is the number of times the average driver will honk in a lifetime.
+100 is the number of pounds in an American short hundredweight.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
