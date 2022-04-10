@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the gold or "golden" wedding anniversary in years of marriage.
+3825000 is the number of entries on Wikipedia in the English language.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
