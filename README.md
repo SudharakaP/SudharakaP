@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-300 is the approximate number of Spartans who fought to death at the Battle of Thermopylae.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
