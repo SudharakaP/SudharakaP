@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-255 is the largest representable integer in an unsigned byte.
+130 is the approximate maximum height in meters of trees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
