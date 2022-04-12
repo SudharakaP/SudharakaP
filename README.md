@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the number of goals scored by Randy Burridge in his NHL career between 1985-1998.
+163 is the atomic number of an element temporarily called Unhextrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
