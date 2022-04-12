@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64 is the size in bits of certain data types in some computer programming languages.
+199 is steps to the top of the Cape May Lighthouse in Cape May, New Jersey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
