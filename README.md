@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-256 is the number of NFL regular season football games.
+162 is total number of baseball games each team plays during a regular season in Major League Baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
