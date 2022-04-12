@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the number of feet below ground level a coffin is traditionally buried.
+53 is the total number of national football associations of UEFA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
