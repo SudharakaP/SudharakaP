@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-364 is the total number of gifts received in the song "The Twelve Days of Christmas".
+132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
