@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-150 is the number of estimated distinct phonemes in the Taa language.
+120 is the max number of shine sprites in Super Mario Sunshine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
