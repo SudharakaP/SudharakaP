@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-31 is the number of musical triads (12 major, 12 minor, 4 diminished, and 3 augmented).
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
