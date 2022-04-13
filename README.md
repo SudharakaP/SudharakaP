@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
+28 is the number of days in the shortest month of the Gregorian calendar, February (except in leap years, when there are twenty-nine).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
