@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-156 is the number of years that Hong Kong was under British colony rule.
+364 is the total number of gifts received in the song "The Twelve Days of Christmas".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
