@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-23 is the number of enigma that plays a prominent role in the plot of The Illuminatus! Trilogy by Robert Shea and Robert Anton Wilson.
+33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
