@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-203 is the HTTP status code indicating partial information.
+37 is the number of plays William Shakespeare is thought to have written (counting Henry IV as three parts).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
