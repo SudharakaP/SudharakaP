@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
+88 is the approximate number of days it takes Mercury to complete its orbit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
