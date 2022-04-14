@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-212 is the boiling point of water at sea level in Fahrenheit degrees.
+400000000000 is the number of stars in the Milky Way galaxy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
