@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-59 is the number of days, approximately in two lunar months.
+191 is a common flight number for flights involved in crashes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
