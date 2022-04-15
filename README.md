@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the number of lasers in the National Ignition Facility (NIF) at Lawrence Livermore National Laboratory in Livermore, California.
+114 is the number of chapters in the Quran.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
