@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
+190 is the length in minutes of the Right Stuff.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
