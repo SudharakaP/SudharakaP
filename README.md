@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17 is the number of flames emanating from the grenade cap-badge of the Grenadier Guards.
+95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
