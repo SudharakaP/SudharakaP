@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is years it takes for all the water in Lake Superior to be changed.
+54 is the number of cards in a deck of playing cards, if two jokers are included.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
