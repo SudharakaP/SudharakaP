@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-538 is the total number of votes in the Electoral College of the United States.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
