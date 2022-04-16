@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the atomic number of the yet-to-be-discovered element unbitrium.
+195 is the rank of Dominica ranks in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
