@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8e+120 is the ratio of the mass-energy in the observable universe to the energy of a photon with a wavelength the size of the observable universe.
+141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
