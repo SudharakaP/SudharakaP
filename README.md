@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-267 is the number of groups of order 64.
+13 is the number of steps in the gallows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
