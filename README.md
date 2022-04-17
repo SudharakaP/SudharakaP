@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-29 is the number of attributes existing according to The Strokes in You Only Live Once.
+56 is the maximum speed of analog data transmission over a POTS in the 20th century measured in kbit/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
