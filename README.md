@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-146 is the Guinness World Record for the most languages a poem was recited in.
+5500000000000000 is the number of estimated ants on Earth alive at any one time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
