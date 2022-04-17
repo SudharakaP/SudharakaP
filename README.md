@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45 is the sapphire wedding anniversary in years of marriage.
+10 is the number of letters used in the traditional Snellen chart.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
