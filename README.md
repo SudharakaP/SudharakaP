@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9220000000000000000 is the largest number which can fit into a signed (two's complement) 64-bit integer on a computer.
+26 is the number of red cards as well as the number of blue cards in a normal deck of cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
