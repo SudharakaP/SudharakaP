@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is the standard number of days in the school year in most areas of the USA.
+130 is the approximate maximum height in meters of trees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
