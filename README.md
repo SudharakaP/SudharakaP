@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3000 is the number of gowns Queen Elizabeth I of England owned when she died.
+336 is the number of dimples on an American golf ball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
