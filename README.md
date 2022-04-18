@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
+55 is the percentage of movies released that are Rated R.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
