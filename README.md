@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the population density in square kilometers of Italy, the fifth-highest population density in Europe.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
