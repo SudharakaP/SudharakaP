@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20000000 is the weight in tons of the average iceberg.
+1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
