@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-174 is the rank of Zimbabwe in world population density.
+6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
