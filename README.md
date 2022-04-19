@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the length in miles of the Adda River in Italy.
+61 is the code for international direct dial phone calls to Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
