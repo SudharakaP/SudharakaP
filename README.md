@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-930000 is the number of words in the King James Version of the Bible.
+125000 is the number of average strands of hair in the human head.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
