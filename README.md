@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the number of US gallons in a barrel of oil.
+30 is the number of hours of the longest kiss on record, by Dror Orpaz and Carmit Tsubara in 1999 at a kissing contest.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
