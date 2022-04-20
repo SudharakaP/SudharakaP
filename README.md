@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-248 is the number of organs in the human body as traditionally depicted.
+31 is the number of flavors of Baskin-Robbins ice cream.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
