@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-175 is the number of films that actress Rose Tapley appeared in.
+57 is the number of cm that the smallest man measured, Gul Mohammed (1957-1997) of India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
