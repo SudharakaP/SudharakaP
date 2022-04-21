@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the average number of heartbeats per minute for a resting adult.
+1e+83 is the number of fundamental particles in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
