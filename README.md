@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-162 is 162 is the total number of baseball games each team plays during a regular season in Major League Baseball.
+73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
