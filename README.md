@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-52 is the number of cards in a standard deck of playing cards, not counting Jokers or advertisement cards.
+168 is the number of episodes that the The Practice ran on ABC from 1997 to 2004.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
