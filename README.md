@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
+39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
