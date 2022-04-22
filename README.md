@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-26 is the number of miles in a marathon rounded down (26 miles and 385 yards).
+1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
