@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-43687 is the number of toilet related accidents in the United States in 1996.
+198 is the rank of Marshall Islands in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
