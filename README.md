@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
+7 is the number of main stars in the constellations of the Big Dipper and Orion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
