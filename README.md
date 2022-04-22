@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-136 is the hottest temperature ever recorded in Fahrenheits at Aziziya, Libya in September 1922.
+2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
