@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-171 is the record number of goals scored by France at the 1998 World Cup.
+1096000000 is the population of India in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
