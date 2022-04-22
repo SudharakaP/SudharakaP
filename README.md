@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the rank of Marshall Islands in world population.
+178 is the atomic number of an element temporarily called Unseptoctium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
