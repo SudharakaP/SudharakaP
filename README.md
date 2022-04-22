@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1728 is braces were first invented by Pierre Fauchard.
+192 is the distance in feet the Hampstead London Underground station is below ground level.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
