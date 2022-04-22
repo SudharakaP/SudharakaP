@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the number of law enforcement officers killed in the line of duty in 1998.
+1000000 is the number of people buried in Père Lachaise Cemetery, the most visited cemetary in the world, opened in 1804.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
