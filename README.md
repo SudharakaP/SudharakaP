@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the zero of the Celsius temperature scale (to the nearest whole number) in Kelvin.
+998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
