@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the number of episodes of the TV series CHiPs that ran on NBC from 1977 to 1983.
+14500 is the number of unique English words occur in the King James Version of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
