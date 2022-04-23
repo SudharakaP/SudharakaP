@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-712 is the largest known number such that it and its 8th power have no common digits.
+998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
