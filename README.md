@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-194 is the NHL record number of saves, set by Bruce Sutter in 1982.
+172 is the temperature in Farenheit at which alcohol boils.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
