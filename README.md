@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2055001 is the number of people employed by Wal-mart in 2007.
+80 is the standard TCP/IP port number used for HTTP connections.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
