@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1311000000 is the population of the People's Republic of China in 2007.
+273 is the death toll of the air crash of American Airlines Flight 191.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
