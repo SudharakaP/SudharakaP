@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-187 is the atomic number of an element temporarily called Unoctseptium.
+9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
