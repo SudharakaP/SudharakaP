@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the number of athletes from Belarus competed in 28 events at the 2008 Olympics in Beijing.
+31 is the number of flavors of Baskin-Robbins ice cream.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
