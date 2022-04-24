@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-119 is the default port for unencrypted NNTP connections.
+171 is the rank of Bahamas in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
