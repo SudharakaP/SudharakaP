@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188 is the rank of Tonga in world population.
+206 is bones in the typical adult human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
