@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-649 is the number of Pokémon as of Pokémon Black and White versions.
+35 is the percentage of all bingo players are under the age of 35.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
