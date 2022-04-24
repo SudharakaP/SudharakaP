@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
+216 is the number of colors formed by a 6 color cube, sometimes known as the web-safe color palette.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
