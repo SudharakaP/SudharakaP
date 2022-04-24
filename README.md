@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is a sacred number honored by Beans for many generations.
+184 is a number believed to be a magic number in nuclear physics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
