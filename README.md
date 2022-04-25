@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-239 is the number of chapters in the Book of Mormon.
+200 is the minimum number of varieties of watermelons grown in the U.S.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
