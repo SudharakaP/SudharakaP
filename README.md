@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172000 is tons of chocolate produced in Belgium in a year.
+54 is the number of countries in Africa.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
