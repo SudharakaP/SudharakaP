@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-91 is the atomic number of protactinium.
+195 is the number of episodes of The Ed Allen Show, which began in 1948.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
