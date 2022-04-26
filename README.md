@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-116 is the record for number of wins in a single season of Major League Baseball achieved by the Chicago Cubs in 1906 and the Seattle Mariners in 2001.
+222 is the score in the 1916 Cumberland vs. Georgia Tech football game, with Georgia Tech winning 222-0, which was the record for most points scored by one team in an American football game.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
