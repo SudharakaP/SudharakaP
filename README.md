@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-470 is the minimum length in yards from the tee to the hole on a Par 5.
+11 is the number of pounds one gallon of pure maple syrup weighs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
