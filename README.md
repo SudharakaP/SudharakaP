@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the average number of heartbeats per minute for a resting adult.
+42 is the angle in degrees for which a rainbow appears or the critical angle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
