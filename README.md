@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-154 is the period in days that the sun follows on gamma-ray flares.
+52 is the number of white keys (notes in the C major scale).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
