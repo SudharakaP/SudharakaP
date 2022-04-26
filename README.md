@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-23 is the number of minutes that all flashbacks take place before the assassination attempt on the president in the film Vantage Point.
+100 is the approximate number of eyes a scallop has around the edge of its shell.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
