@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-400000 is the number of morphine addicts the Civil War produced.
+181 is the rider number given to Lance Armstrong in 1999 when he won his first of seven Tour de France consecutive victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
