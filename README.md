@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the number of members in the U.S. Senate needed to defeat a cloture vote and sustain a filibuster indefinitely.
+402000000 is the number of native speakers of English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
