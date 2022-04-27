@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5e+30 is the number of bacterial cells on Earth.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
