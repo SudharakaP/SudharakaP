@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-450 is a perfect score in Canadian five-pin bowling.
+129 is the atomic number of Unbiennium, an element yet to be discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
