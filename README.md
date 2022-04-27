@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-129 is the atomic number of Unbiennium, an element yet to be discovered.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
