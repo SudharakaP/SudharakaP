@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56000000000 is the number of web pages indexed by Google as of 2010.
+4000 is the weight in pounds that the Great White Shark can grow to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
