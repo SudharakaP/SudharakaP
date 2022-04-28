@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-118 is the medical and Alpine rescue emergency telephone number in Italy.
+191 is a common flight number for flights involved in crashes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
