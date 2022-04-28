@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000000 is the number of people buried in Père Lachaise Cemetery, the most visited cemetary in the world, opened in 1804.
+56 is the number of consecutive games in baseball in which New York Yankees' Joe DiMaggio had a base hit in 1941, still a record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
