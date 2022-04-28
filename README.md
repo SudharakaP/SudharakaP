@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
+162 is total number of baseball games each team plays during a regular season in Major League Baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
