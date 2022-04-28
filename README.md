@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-23 is the number of times Julius Caesar was stabbed.
+13 is the number of colonies that formed the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
