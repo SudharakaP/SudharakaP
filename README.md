@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-98 is the highest jersey number allowed in the National Hockey League (as 99 was retired by the entire league to honor Wayne Gretzky).
+10000000000 is the number of times the original Pac Man has been played as estimated by Namco, the manufacturers of Pac Man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
