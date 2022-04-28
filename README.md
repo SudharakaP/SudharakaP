@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the number of consecutive games in baseball in which New York Yankees' Joe DiMaggio had a base hit in 1941, still a record.
+1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
