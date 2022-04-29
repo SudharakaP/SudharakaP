@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-70 is the number of years of marriage until the platinum wedding anniversary.
+85 is the atomic number of astatine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
