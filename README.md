@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20000000000 is the approximate number of coconuts produced worldwide each year.
+101 is the HTTP status code indicating that a client should switch protocols.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
