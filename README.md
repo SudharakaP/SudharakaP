@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149000000 is the number of kilometres from the Earth the sun is.
+9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
