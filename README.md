@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-109 is the atomic number of meitnerium.
+100000 is the number of verses (shlokas) in the Mahabharata.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
