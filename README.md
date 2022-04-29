@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-153 is the ordinal number of the coat of arms of Komi Republic in the State Heraldic Register of the Russian Federation.
+189 is the atomic number of an element temporarily called Unoctennium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
