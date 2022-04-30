@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-84 is the atomic number of polonium.
+273 is the death toll of the air crash of American Airlines Flight 191.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
