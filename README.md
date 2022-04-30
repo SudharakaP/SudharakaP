@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
