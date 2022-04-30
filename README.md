@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-255 is the largest representable integer in an unsigned byte.
+45000000000 is the approximate number of fat cells in an average adult.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
