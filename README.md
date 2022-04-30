@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
+13 is the speed of rush hour traffic on average in kilometres per hour in London.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
