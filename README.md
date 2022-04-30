@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the estimation of the game-tree complexity in the game of Go.
+137 is the atomic number of an element not yet observed called Untriseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
