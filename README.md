@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the number of eggs that female alligators lay, which hatch in 60 - 70 days.
+166 is the number of points the Dow Jones Industrials fell on June 24, 2005.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
