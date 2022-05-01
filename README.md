@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
+6 is the highest number on one end of a standard domino.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
