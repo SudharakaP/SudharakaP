@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
+117 is the substitute for the number 17, which is considered unlucky in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
