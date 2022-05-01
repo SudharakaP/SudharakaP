@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the basic film gauge in mm most commonly used for both analog photography and motion pictures.
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
