@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-75 is the age in years that the Saguaro Cactus, found in southwestern US, must be to grow branches.
+5 is the number of Justices on the Supreme Court of the United States necessary to render a majority decision.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
