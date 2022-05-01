@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-176 is the number of verses in the longest chapter, the Psalm 119 of the Bible.
+72 is the record number of victories in an NBA season (1995-96 Chicago Bulls).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
