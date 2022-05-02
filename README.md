@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
+172 is the number that appears on the back of the US $5 dollar bill (in the bushes at the base of the Lincoln Memorial).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
