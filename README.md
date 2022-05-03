@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+21 is the number of grains of sand on all the world's beaches put together.
+714 is the number of home runs Babe Ruth scored in his career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
