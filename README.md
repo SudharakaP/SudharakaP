@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is steps to the top of the Cape May Lighthouse in Cape May, New Jersey.
+144 is the Intel 8086 instruction for no operation (NOP).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
