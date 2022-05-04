@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-175 is the number of films that actress Rose Tapley appeared in.
+180 is the number of Death in the In the Final Destination series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
