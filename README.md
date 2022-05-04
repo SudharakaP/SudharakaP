@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the earliest age that the emancipation of minors can occur in the U.S.
+45 is the sapphire wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
