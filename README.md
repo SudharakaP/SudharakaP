@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-124 is a stable isotope of tellurium.
+5 is the number of babies born in a quintuplet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
