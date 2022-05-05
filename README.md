@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-46 is the number of slices of pizza an average American kid eats in a year.
+5500000000000000 is the number of estimated ants on Earth alive at any one time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
