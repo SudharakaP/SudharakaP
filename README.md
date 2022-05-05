@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-94 is the atomic number of plutonium.
+173 is the rank of Maldives in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
