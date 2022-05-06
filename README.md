@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5200 is the number of standard size of a legion in the Roman Empire.
+118 is the number of decibels of the loudest burp, held by record-holder Paul Hunn, which is as loud as a chainsaw.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
