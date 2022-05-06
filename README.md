@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-0 is the coldest possible temperature old the Kelvin scale.
+850 is the maximum possible Fair Isaac credit score.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
