@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-151 is the height of the Statue of Liberty from the base to the torch in feet (46 m).
+8674 is the number of unique words in the Hebrew Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
