@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the number of uprights that formed the Sarsen Circle at Stonehenge, also the supposed number of holes forming the arrays of Y and Z Holes at Stonehenge.
+151 is the height of the Statue of Liberty from the base to the torch in feet (46 m).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
