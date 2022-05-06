@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the approximate periodicity of a sunspot cycle in years.
+218 is votes required in the US House of Representatives to achieve a majority as of 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
