@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10 is the Number of dots in a tetractys.
+100000 is the number of verses (shlokas) in the Mahabharata.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
