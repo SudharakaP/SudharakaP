@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-91 is the code for international direct dial phone calls to India.
+75 is the age limit for Canadian senators.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
