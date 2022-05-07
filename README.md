@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-229 is the lowest individual batting score not achieved by any player in test match cricket.
+50 is the height in kilometres that a volcano can shoot ash into the sky.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
