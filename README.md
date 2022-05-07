@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-54 is the number of milligrams of caffeine Mountain Dew has.
+9 is the number of circles of Hell in Dante's Divine Comedy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
