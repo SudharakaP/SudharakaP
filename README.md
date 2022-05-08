@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-70 is the distance (meter) from archer to targets in Olympic Archery.
+538 is the total number of votes in the Electoral College of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
