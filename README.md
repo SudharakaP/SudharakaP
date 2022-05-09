@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1400000 is the number of species that have been named by the World Resources Institute.
+13 is the number of Oscar nominations of actress Meryl Streep, who holds the record for the most Oscar nominated actress.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
