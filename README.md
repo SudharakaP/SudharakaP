@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the atomic number of a recently discovered element temporarily called ununseptium.
+221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
