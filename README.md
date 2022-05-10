@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
+61 is the code for international direct dial phone calls to Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
