@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the atomic number of the chemical element unbibium.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
