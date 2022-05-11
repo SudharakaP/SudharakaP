@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-216 is the number of stitches on a baseball, according to the Ken Burns series "Baseball".
+116 is the number of pages in the Lost pages, the original manuscript of what Joseph Smith, Jr. said was the translation of the Book of Lehi, of the Golden plates revealed to him in 1827.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
