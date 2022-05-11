@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
