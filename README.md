@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
+400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
