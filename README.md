@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
+104 is the number of Corinthian columns in the Temple of Olympian Zeus, the largest temple ever built in Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
