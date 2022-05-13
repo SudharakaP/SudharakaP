@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-187 is the number of the California Penal Code section describing murder.
+153 is the ordinal number of the coat of arms of Komi Republic in the State Heraldic Register of the Russian Federation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
