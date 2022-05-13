@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+63 is the estimate by Archimedes in The Sand Reckoner of the total number of grains of sand that could fit into the entire cosmos.
+87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
