@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3500000000000 is the estimated population of fish in the ocean.
+1e+83 is the number of fundamental particles in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
