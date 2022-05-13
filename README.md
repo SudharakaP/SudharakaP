@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the number of hair strands used to animate Rapunzel's 70 meter long hair in Tangled (2010).
+390 is the speed in feet per second that nerve impulses for muscle position travel at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
