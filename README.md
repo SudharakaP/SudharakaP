@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-300 is the approximate number of Spartans who fought to death at the Battle of Thermopylae.
+6909 is the number of estimate for the linguistic diversity of living human languages or dialects.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
