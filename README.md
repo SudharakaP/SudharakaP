@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-83 is the atomic number of bismuth.
+17 is the number of the raka'ahs that Muslims perform during Salah on a daily basis.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
