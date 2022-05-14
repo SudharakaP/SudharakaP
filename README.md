@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
+206 is bones in the typical adult human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
