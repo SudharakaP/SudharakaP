@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the number of games pitched by MLB pitcher Art Herring from 1929-1947.
+186 is the number of odd numbered days during a non-leap year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
