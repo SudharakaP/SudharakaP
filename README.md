@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17 is the number of the raka'ahs that Muslims perform during Salah on a daily basis.
+106 is the number of surat Quraysh in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
