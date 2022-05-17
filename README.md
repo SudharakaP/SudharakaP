@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-178 is the rank of Estonia in world population density.
+134 is the rank of Mauritania in terms of world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
