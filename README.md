@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
+212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
