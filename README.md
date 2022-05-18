@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10 is the number of official inkblots in the Rorschach inkblot test.
+150 is the number of runs in cricket that's a milestone for a batsman.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
