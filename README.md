@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-29 is the highest possible score in a hand of Cribbage or Khanhoo.
+243 is the Calling code for Zaire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
