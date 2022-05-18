@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-525 is the number of scan lines in the NTSC television standard.
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
