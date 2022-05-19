@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the number of tennis titles that Martina Navratilova has, which is an all-time record for men or women.
+3000000000 is the number of base pairs in the human genome.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
