@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20000000 is the weight in tons of the average iceberg.
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
