@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the standard TCP/IP port number used for HTTP connections.
+24 is the number of teams that participated in each FIFA World Cup finals tournament between 1982 and 1994.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
