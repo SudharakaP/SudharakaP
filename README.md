@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the percentage of U.S. paper currency in circulation that was counterfeit by the end of the Civil War.
+4e+185 is the number of planck volumes in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
