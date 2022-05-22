@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is the bytes of memory of the Atari 2600 console.
+45 is the sapphire wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
