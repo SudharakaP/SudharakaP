@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-251 is the last and most powerful prime mover (engine) designed and built by the American Locomotive Company (ALCO).
+7 is the number of main stars in the constellations of the Big Dipper and Orion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
