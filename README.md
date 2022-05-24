@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is miles that the Thames River flows through Ontario, Canada.
+197 is the rank of the Solomon Islands in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
