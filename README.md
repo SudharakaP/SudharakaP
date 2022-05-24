@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
+184 is the distance in light years to Eta Aquarii,a star in the constellation Aquarius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
