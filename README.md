@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-62 is the number which Sigmund Freud has an irrational fear of.
+384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
