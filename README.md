@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-62 is the number which Sigmund Freud has an irrational fear of.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
