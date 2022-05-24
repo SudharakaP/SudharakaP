@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
+27 is the number of bones in the human hand.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
