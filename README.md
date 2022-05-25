@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-70 is the distance (meter) from archer to targets in Olympic Archery.
+189 is the rank of Brazil in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
