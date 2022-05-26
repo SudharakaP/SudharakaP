@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22 is the typical length in minutes of a half hour sitcom not including commercials.
+256 is the number of NFL regular season football games.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
