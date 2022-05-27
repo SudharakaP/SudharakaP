@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-165 is miles of shoreline of Lake Berryessa in Napa County, California.
+198 is the number of sacks by Reggie White in his NFL career from 1985-2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
