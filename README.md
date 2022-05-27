@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
+165 is miles of shoreline of Lake Berryessa in Napa County, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
