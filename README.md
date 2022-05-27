@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-134 is the number of episodes in the TV series Hawaiian Eye that ran on ABC from 1959 to 1963.
+3500000000000 is the estimated population of fish in the ocean.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
