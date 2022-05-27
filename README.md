@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-213 is the code for character "Õ" in codepages such as ISO-8859-1 and UTF-8.
+78 is the total number of gifts in the song The Twelve Days of Christmas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
