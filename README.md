@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-70 is the distance (meter) from archer to targets in Olympic Archery.
+105 is the number of surat al-Fil in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
