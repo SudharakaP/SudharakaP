@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the rank of South Ossetia Georgia in population density.
+121 is the atomic number of the undiscovered chemical element Unbiunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
