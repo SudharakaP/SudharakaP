@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the length (years) of the Eighty Years' War (1568–1648).
+78 is the number of lines that make up Metatron's Cube.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
