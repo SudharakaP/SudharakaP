@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000000000 is the number of bacteria in the human oral cavity.
+12 is the number of keys in any standard digital telephone (1 through 9, 0, * and #).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
