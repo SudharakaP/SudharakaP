@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
+92 is the percentage of water in watermelons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
