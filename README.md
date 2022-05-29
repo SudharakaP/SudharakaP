@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the death toll of the air crash of American Airlines Flight 191.
+3825000 is the number of entries on Wikipedia in the English language.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
