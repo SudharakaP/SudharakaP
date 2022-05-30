@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
+24 is the number of cycles in the Chinese solar year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
