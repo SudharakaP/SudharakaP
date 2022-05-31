@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-154 is the period in days that the sun follows on gamma-ray flares.
+176 is the number of verses in the longest chapter in the Bible, Psalm 119.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
