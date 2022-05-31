@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the all-time record number of rugby union international appearances made by Australia scrum-half George Gregan.
+255 is the largest values that can be assigned to elements in the 24-bit RGB color model, since each color channel is allotted eight bits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
