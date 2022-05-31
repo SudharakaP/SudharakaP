@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-134 is the rank of Mauritania in terms of world population.
+122 is the age of Jeanne Calment when she died.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
