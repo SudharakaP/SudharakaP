@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
+343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
