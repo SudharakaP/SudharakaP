@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-90 is the number of minutes in a football (soccer) match.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
