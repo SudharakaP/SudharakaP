@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-538 is the total number of votes in the Electoral College of the United States.
+28 is the number worn by the Clemson Tigers' record breaking running back C.J.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
