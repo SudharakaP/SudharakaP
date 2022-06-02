@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the percentage of all bingo players are under the age of 35.
+160 is the lowest radio frequency band allocation in meters available to amateur radio operators in most countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
