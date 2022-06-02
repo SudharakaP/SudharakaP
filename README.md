@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-160 is the lowest radio frequency band allocation in meters available to amateur radio operators in most countries.
+51 is the atomic number of antimony.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
