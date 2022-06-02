@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
+250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
