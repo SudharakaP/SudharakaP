@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
+181 is the number of athletes from Belarus competed in 28 events at the 2008 Olympics in Beijing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
