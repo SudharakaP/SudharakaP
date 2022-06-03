@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+167 is the branch spread in feet of Santa Barbara's Moreton Bay Fig Tree in Santa Barbara, California, which is believed to be the largest Ficus macrophylla in the United States).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
