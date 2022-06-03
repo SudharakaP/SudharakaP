@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the atomic number of the chemical element unbibium.
+4294967296 is the number of bytes in 4 gibibytes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
