@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-197 is the rank of the Solomon Islands in population density.
+3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
