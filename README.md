@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the first course in a subject taught at a college or university in Australia, Canada, South Africa, or the United States.
+70 is the distance (meter) from archer to targets in Olympic Archery.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
