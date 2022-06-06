@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
+111 is the lowest positive integer requiring six syllables to name in American English, or seven syllables (including "and") in Canadian and British English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
