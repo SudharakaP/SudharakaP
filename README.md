@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
+3 is the number of sets needed to be won to win the whole match in volleyball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
