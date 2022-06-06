@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-69 is the number Bill and Ted were thinking of when talking to their future selves.
+8 is the number of planets in the Solar System.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
