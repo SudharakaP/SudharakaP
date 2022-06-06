@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56000000000 is the number of web pages indexed by Google as of 2010.
+493 is the number of Pokémon species, from the first set through the fourth generation as of August 2009.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
