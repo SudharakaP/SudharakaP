@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the height in metres of the tallest tree recorded, located in Humboldt Redwoods State Park, California.
+41 is the number of times Paul McCartney sings the phrase "Let It Be" in the Beatles' hit Let It Be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
