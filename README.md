@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the height in kilometres that a volcano can shoot ash into the sky.
+120 is the medical telephone number in China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
