@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-105 is the number of surat al-Fil in the Qur'an.
+39 is the number of books in the Old Testament according to Protestant canon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
