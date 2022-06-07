@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the number of unique ranks in a suit in a pack of cards.
+1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
