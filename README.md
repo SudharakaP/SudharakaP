@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-104 is the number of guns on Admiral Horatio Nelson's flagship HMS Victory.
+159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
