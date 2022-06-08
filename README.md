@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
+100000000000 is the number of neurons in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
