@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the approximate speed in miles per hour a penguin swims at.
+366 is the number of days in a leap year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
