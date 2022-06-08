@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+187 is a signature wrestling move by wrestler New Jack (diving elbow drop while holding a steel chair underneath his arm).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
