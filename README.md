@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-158 is the number of international goals scored by Mia Hamm for the USA women's team, an all-time record for either sex in soccer.
+400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
