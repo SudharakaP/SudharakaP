@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the height of Mount Victoria, Wellington, a prominent hill near Wellington, New Zealand.
+1000 is the number of words a picture is worth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
