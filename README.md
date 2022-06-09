@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-131 is the number serving a monkiker for Indie music.
+20000000000 is the approximate number of coconuts produced worldwide each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
