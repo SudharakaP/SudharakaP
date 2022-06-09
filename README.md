@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+66 is the number of hot dogs eaten by World record holder Joey Chestnut in 15 minutes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
