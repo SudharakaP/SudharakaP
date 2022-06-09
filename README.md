@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
+166 is the number of athletes (104 men and 62 women) that represented Scotland in the 2006 Commonwealth Games in Melbourne, Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
