@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the approximate number of times a mother hen turns her egg in a day so the yolk does not stick to the shell.
+1750000 is the number of entries in the freedb database of CD track listings as of June 2005.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
