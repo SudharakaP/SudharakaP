@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
+142600 is tonnes of gold mined in the world by the end of 2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
