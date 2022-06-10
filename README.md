@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the speed of rush hour traffic on average in kilometres per hour in London.
+20 is the number of questions in the popular party game Twenty Questions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
