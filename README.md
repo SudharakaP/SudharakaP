@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000 is the number of verses (shlokas) in the Mahabharata.
+59 is the number of days, approximately in two lunar months.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
