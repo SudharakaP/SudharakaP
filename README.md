@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-21 is the number of points required to win a game in badminton and table tennis (before 2001).
+143 is the number of episodes of the TV series The Adventures of Robin Hood on CBS from 1955 to 1959.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
