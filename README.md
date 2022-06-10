@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the rank of "Maybe" (1957) by The Chantels on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
+116 is the number of pages in the Lost pages, the original manuscript of what Joseph Smith, Jr. said was the translation of the Book of Lehi, of the Golden plates revealed to him in 1827.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
