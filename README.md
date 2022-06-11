@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-214 is the number of Chinese radicals for the writing of Chinese characters according to the 1716 Kangxi Dictionary.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
