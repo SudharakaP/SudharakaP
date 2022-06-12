@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-133 is the common processor speed in MHz for common 32-bit processor CPUs circa 1995 such as the Intel Pentium and AMD AMD K5.
+5 is the holy number of Discordianism, as dictated by the Law of Fives.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
