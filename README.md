@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-26 is the number of letters in the English and Interlingua alphabets.
+19 is the number of years in 235 lunations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
