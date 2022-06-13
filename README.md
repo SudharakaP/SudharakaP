@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-185 is the distance a single playing card was thrown in feet by Kevin St. Onge to set a Guinness World Record.
+383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
