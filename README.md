@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-93 is the atomic number of neptunium.
+192 is the number of episodes with Moose, a dog, playing Eddie Crane on Frasier.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
