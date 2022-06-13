@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
+13 is the speed of rush hour traffic on average in kilometres per hour in London.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
