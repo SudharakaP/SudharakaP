@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the speed of rush hour traffic on average in kilometres per hour in London.
+998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
