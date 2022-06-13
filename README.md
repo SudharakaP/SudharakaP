@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-712 is the largest known number such that it and its 8th power have no common digits.
+58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
