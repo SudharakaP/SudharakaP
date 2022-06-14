@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-511 is the number of collaborators mathematician Paul Erdős had.
+27 is the total number of letters in the Spanish alphabet (5 vowels and 22 consonants).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
