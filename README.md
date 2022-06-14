@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6800 is the approximate number of languages in the world.
+60 is the number of miles per hour an automobile accelerates from rest as one of the standard measurements of performance.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
