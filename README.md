@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-176 is the rank of Rocks (1976) by Aerosmith on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
+198 is the number of episodes that Woody Harrelson appeared as Woody Boyd in Cheers (of 273 episodes) between 1985-1993.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
