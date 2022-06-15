@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000000000000 is the number of bacteria on the surface of the human body.
+511 is the number of collaborators mathematician Paul Erdős had.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
