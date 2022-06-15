@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
+176 is the rank of Vanuatu in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
