@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
