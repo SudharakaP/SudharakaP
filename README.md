@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
+480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
