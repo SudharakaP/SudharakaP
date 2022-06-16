@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1400000 is the number of species that have been named by the World Resources Institute.
+3000 is the number of gowns Queen Elizabeth I of England owned when she died.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
