@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is essendon's losing margin against Adelaide in round 10 of the 2006 AFL season.
+1311000000 is the population of the People's Republic of China in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
