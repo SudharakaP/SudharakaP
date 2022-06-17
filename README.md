@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6000000 is the number of parts in the Boeing 747-400.
+169 is miles that the Thames River flows through Ontario, Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
