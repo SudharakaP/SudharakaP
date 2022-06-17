@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10 is the highest score possible in Olympics gymnastics competitions.
+177 is the elevation of Borgarvirki, in the north of Iceland, in meteres above sea level.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
