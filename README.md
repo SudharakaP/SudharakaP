@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
+188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
