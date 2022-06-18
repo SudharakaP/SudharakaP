@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the jersey number worn by the starting stand-off half/five-eighth in most rugby league competitions.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
