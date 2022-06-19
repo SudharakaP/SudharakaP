@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is the average brain mass of a baboon in grams.
+1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
