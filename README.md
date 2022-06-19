@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is a number believed to be a magic number in nuclear physics.
+511 is the number of collaborators mathematician Paul Erdős had.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
