@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the element with the highest number of protons yet discovered, Ununquadium with the highest number.
+4000 is the weight in pounds that the Great White Shark can grow to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
