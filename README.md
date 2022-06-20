@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is a weight class in collegiate wrestling, 184 lb (83 kg).
+162 is total number of baseball games each team plays during a regular season in Major League Baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
