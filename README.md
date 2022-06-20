@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the rank of Best of Little Walter (1964) by Little Walter on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
+20 is the number of ounces in Venti size coffees at Starbucks coffee shops.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
