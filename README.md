@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-179 is the number of episodes of I Love Lucy which ran on CBS.
+113 is a number that is a rare lucky number, and has been written about by anthropologist Emily Anne McDonald.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
