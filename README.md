@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the number of days in a week.
+196 is the rank of American Samoa in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
