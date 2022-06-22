@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is width in feet of the Lincoln Memorial Reflecting Pool, which is is 2,029 feet (618 m) long and 167 feet (51 m) wide.
+213 is the code for character "Õ" in codepages such as ISO-8859-1 and UTF-8.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
