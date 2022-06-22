@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is the common voltage in England and Australia before conversion to 230V standard.
+40 is the number of eggs that female alligators lay, which hatch in 60 - 70 days.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
