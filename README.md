@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-441 is the number of squares on a Super Scrabble board.
+114 is the number of chapters in the Quran.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
