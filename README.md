@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the official end score for Cribbage.
+30000 is the number of distinct Chinese characters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
