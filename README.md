@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-213 is the code for character "Õ" in codepages such as ISO-8859-1 and UTF-8.
+5 is the number of Justices on the Supreme Court of the United States necessary to render a majority decision.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
