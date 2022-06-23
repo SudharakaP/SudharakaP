@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the number of Justices on the Supreme Court of the United States necessary to render a majority decision.
+16777216 is the number of different colors that can be generated using the hex code system in HTML.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
