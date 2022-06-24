@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
+101 is the number of the Vault that is the starting area of Fallout 3.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
