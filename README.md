@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25 is the minimum age of candidates for election to the United States House of Representatives.
+72 is the life duration of the ovule in hours.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
