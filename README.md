@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
+168 is the nubmer of performances that A Day in Hollywood / A Night in the Ukraine ran for.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
