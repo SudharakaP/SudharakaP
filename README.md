@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
+133 is the common processor speed in MHz for common 32-bit processor CPUs circa 1995 such as the Intel Pentium and AMD AMD K5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
