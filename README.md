@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5500000 is the number of jews killed in the Holocaust.
+7 is the number of periods, or horizontal rows of elements, in the periodic table.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
