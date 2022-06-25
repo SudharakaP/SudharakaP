@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-197 is the approximate atomic mass of Gold.
+59 is the number corresponding to the last minute in a given hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
