@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
+17 is the number of the raka'ahs that Muslims perform during Salah on a daily basis.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
