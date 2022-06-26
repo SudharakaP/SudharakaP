@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-164 is the number of home runs the Baltimore Orioles hit in 2006.
+67890 is the number of largest decimal places of π that have been recited from memory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
