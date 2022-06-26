@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-155 is the number of episodes the TV series Sea Hunt ran in syndication from 1958 to 1961.
+200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
