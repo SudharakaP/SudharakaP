@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-61000 is the average number of people airborne over the US at any given hour.
+729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
