@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-450 is a perfect score in Canadian five-pin bowling.
+119 is the default port for unencrypted NNTP connections.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
