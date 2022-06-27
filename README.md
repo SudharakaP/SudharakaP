@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1 is the loneliest number.
+2 is the first magic number in physics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
