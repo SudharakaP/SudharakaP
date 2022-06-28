@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the focal length in millimeters of the normal lens in 35 mm photography.
+3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
