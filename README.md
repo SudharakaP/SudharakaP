@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the all-time record number of rugby union international appearances made by Australia scrum-half George Gregan.
+65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
