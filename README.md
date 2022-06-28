@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-256 is the number of NFL regular season football games.
+20 is the number of baby teeth in the deciduous dentition.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
