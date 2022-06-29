@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the number of member states of the United Nations.
+7 is the approximate number of years in the lifespan of Irish Wolfhound dogs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
