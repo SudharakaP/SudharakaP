@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the estimation of the game-tree complexity in the game of Go.
+171 is the atomic number of an element called Ununseptunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
