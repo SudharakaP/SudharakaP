@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the atomic number of an element temporarily called Unseptseptium.
+81 is the number of stanzas or chapters in the Tao te Ching (in the most common arrangements).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
