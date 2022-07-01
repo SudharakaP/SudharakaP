@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-51 is the atomic number of antimony.
+171 is the atomic number of an element called Ununseptunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
