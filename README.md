@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-201 is the Saros cycle; the next solar eclipse in this cycle is predicted to take place in AD 3223.
+167 is the number of workers trapped for more than 24 hours in the Blyvooruitzicht gold mine in Johannesburg, South Africa on January 18, 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
