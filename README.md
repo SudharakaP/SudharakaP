@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-28 is the number of grams in an ounce (approximately), and used as such in the illegal drug trade.
+49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
