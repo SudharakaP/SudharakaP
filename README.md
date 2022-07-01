@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the total number of years in a Sexagenary cycle.
+206 is bones in the typical adult human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
