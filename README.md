@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6000000000000000000 is the number of transistor produced worldwide in 2008.
+334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
