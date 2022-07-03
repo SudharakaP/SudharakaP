@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
+626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
