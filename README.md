@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is a trick used in extreme sports where a rider rotates half a turn while airborne and lands.
+200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
