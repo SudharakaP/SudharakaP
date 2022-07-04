@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-26 is the number of episodes in a television program each year (usually).
+108 is the number of pressure points in the human body according to Marma Adi and Ayurveda, where consciousness and flesh intersect to give life to the living being.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
