@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-126 is the atomic number of unbihexium, an element that has not yet been discovered.
+4000 is the weight in pounds that the Great White Shark can grow to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
