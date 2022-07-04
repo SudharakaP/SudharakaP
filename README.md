@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44 is the percentage of kids who watch television before they go to sleep in the US.
+1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
