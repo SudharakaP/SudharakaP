@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the lowest channel of television in the United States, Canada, Argentina and Mexico on which television signals are broadcast.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
