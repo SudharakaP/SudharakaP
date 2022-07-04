@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-364 is the total number of gifts received in the song "The Twelve Days of Christmas".
+182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
