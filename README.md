@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-47 is the number of El-Aurians Scotty manages to beam up before their ship is destroyed by the energy ribbon.
+204 is the HTTP status code indicating the request was received but there is no response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
