@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
+184 is a weight class in collegiate wrestling, 184 lb (83 kg).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
