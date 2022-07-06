@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the number of seconds in American composer John Cage's piano composition 4'33" of silence, in three movements.
+343 is the number of frames in which U.S. President John F. Kennedy's presidential limousine can be seen in the Zapruder film.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
