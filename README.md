@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-62 is the number which Sigmund Freud has an irrational fear of.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
