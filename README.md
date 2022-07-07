@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1300 is the number of babies born prematurely in the USA every day.
+45000000000 is the approximate number of fat cells in an average adult.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
