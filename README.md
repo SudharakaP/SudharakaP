@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-587 is the outgoing port for email message submission.
+90 is the latitude of the North Pole and the South Pole.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
