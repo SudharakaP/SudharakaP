@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
+198 is the number of episodes that Woody Harrelson appeared as Woody Boyd in Cheers (of 273 episodes) between 1985-1993.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
