@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-82 is the atomic number of lead.
+196 is the rank of Vanuatu in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
