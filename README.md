@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-187 is 187th Street in the Washington Heights section of Manhattan.
+67890 is the number of largest decimal places of π that have been recited from memory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
