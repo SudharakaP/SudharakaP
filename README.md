@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-160 is the number of characters permitted in a standard short message service in Australia and Europe.
+38 is the number of years it took the Israelites to travel from Kadesh Barnea to the Zered valley in Deuteronomy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
