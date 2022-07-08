@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-39 is the traditional number of times citizens of Ancient Rome hit their slaves when beating them, referred to as "Forty save one".
+49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
