@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+59 is the number corresponding to the last second in a given minute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
