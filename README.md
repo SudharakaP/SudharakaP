@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+189 is the rank of Stayin' Alive (1977) by the Bee Gees on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
