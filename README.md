@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
+155 is the maximum possible score in a single break in snooker, with a free ball at the start of the break (147 is the highest possible without a free ball).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
