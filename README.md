@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1096000000 is the population of India in 2007.
+404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
