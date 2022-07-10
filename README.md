@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
+60 is the maximum number of marbles (game pieces) in Chinese checkers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
