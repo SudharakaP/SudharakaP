@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the number of miles polar bears have been known to swim without a rest.
+87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
