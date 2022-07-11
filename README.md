@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the death toll of the 1995 Oklahoma City bombing.
+140 is liters of water needed to produce 1 cup of coffee.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
