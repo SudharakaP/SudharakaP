@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-18 is the number of holes in a stipulated round of golf.
+496 is what the dimension of the gauge group must be for a superstring theory to make sense.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
