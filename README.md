@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
+62 is the number which Sigmund Freud has an irrational fear of.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
