@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is a card game related to Forty-five (card game).
+73 is the single-season home run record in baseball set by Barry Bonds in 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
