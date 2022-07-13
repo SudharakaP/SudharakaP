@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-360 is the number of degrees in a circle for the purpose of angular measurement.
+7e+27 is the number of atoms in the average human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
