@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
+5600 is the number of metres above sea level of the highest bridge in the world, located in the Himalayan mountains.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
