@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14500 is the number of unique English words occur in the King James Version of the Bible.
+144 is the Intel 8086 instruction for no operation (NOP).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
