@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-154 is the period in days that the sun follows on gamma-ray flares.
+194 is the NHL record number of saves, set by Bruce Sutter in 1982.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
