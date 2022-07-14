@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the rank of American Samoa in world population.
+69 is the atomic number of thulium, a lanthanide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
