@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the figurative number of seas.
+10000 is the gallons of saliva an average human produces in a lifetime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
