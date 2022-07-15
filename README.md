@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-216 is the number of stitches on a baseball.
+211 is the SMTP status code system status.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
