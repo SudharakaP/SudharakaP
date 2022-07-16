@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-600 is the advertised number of miles that NASCAR runs in the Coca-Cola 600, the longest race on any of the NASCAR circuits.
+613 is a significant number in Judaism, as its metaphysics, the Kabbalah, views every full entity as divisible into 613 parts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
