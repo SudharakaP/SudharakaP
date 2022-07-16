@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+168 is the number of hours in a week, or 7 x 24 hours.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
