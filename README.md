@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-432 is three-dozen sets of a dozen, making it three gross.
+110 is the TCP port used for POP3 email protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
