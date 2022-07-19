@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-220 is the SMTP code meaning "service ready".
+30000 is the number of distinct Chinese characters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
