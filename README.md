@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-183 is the rank of Laos in countries by population density.
+230 is the country code for Mauritius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
