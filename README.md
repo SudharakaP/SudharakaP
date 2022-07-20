@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-511 is the number of collaborators mathematician Paul Erdős had.
+137 is the atomic number of an element not yet observed called Untriseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
