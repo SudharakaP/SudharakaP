@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
+22 is the number of stars in the Paramount Films logo.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
