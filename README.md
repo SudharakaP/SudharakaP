@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-103 is the atomic number of lawrencium, an actinide.
+6800 is the approximate number of languages in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
