@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
+58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
