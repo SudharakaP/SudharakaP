@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the standard TCP/IP port number used for HTTP connections.
+82 is the number of games in an NBA or NHL regular season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
