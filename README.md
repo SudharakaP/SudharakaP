@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-63 is the atomic number of europium.
+24 is the number of cycles in the Chinese solar year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
