@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
+140 is liters of water needed to produce 1 cup of coffee.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
