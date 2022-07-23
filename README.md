@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-39 is the traditional number of times citizens of Ancient Rome hit their slaves when beating them, referred to as "Forty save one".
+147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
