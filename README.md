@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-270 is the average number of days in human pregnancy.
+39 is the number of books in the Old Testament according to Protestant canon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
