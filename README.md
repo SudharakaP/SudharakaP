@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-116 is the prefix for several EU-wide telephone helplines designated as harmonised service of social value.
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
