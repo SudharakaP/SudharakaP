@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is the common voltage in England and Australia before conversion to 230V standard.
+123 is the electricity emergency telephone number in Indonesia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
