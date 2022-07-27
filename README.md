@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
+139 is the number of episdoes of the TV series MacGyver that ran on ABC from 1985 to 1992.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
