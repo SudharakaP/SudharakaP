@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the TV series Third Watch ran on NBC from 1999 to 2005 with 132 episodes.
+200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
