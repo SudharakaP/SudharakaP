@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
+58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
