@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the rider number given to Lance Armstrong in 1999 when he won his first of seven Tour de France consecutive victories.
+174 is the length in miles of the The Columbia University Library System collection, with over 9.3 million volumes, if stretched end-to-end.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
