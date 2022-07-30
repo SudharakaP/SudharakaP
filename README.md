@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
+142600 is tonnes of gold mined in the world by the end of 2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
