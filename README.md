@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-231 is the number of cubic inches in a U.S. liquid gallon.
+72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
