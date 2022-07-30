@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000000000 is the number of bacteria in the human oral cavity.
+192 is the length in miles of the The Coast to Coast Walk in England.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
