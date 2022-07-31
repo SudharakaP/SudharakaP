@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
+193 is the number of member states of the United Nations as of 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
