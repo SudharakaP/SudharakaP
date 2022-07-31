@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
+30 is the number of days in the months April, June, September and November (and in unusual circumstances February).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
