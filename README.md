@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-136 is the lower frequency band in kHz that amateur radio operators are allowed to transmit.
+295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
