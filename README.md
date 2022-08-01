@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+97 is the number of different characters that can be used with a standard English Keyboard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
