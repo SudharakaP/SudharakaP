@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-555 is the number of keyboard sonatas written by Domenico Scarlatti, according to the catalog by Ralph Kirkpatrick.
+100 is the number of yards in an American football field (not including the end zones).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
