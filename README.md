@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5500000 is the number of jews killed in the Holocaust.
+118 is the beginning of directory enquiries numbers in the United Kingdom,France, Germany, Latvia, Sweden, Ireland, and Turkey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
