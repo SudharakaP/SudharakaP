@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17 is 'the least random number' as described at MIT, according to hackers' lore.
+76 is the atomic number of osmium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
