@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the approximate speed in miles per hour a penguin swims at.
+193 is the number of member states of the United Nations as of 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
