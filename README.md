@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the number of lasers in the National Ignition Facility (NIF) at Lawrence Livermore National Laboratory in Livermore, California.
+600 is the maximum credit score considered poor, thus limiting available credit in the USA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
