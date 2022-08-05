@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the rank of Highway to Hell (1979) by AC/DC on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
+44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
