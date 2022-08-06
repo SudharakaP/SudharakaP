@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-666 is the number of the devil.
+99 is the highest jersey number allowed in most major league sports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
