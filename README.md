@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-230 is the common voltage in the European Union.
+146 is the Guinness World Record for the most languages a poem was recited in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
