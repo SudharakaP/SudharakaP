@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22 is the number of letters in the Hebrew alphabet.
+24 is the number of hours in a day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
