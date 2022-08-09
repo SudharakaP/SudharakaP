@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-213 is the name of a hip hop, active 1990-2004.
+29 is the number of Knuts in one Sickle in the fictional currency in the Harry Potter novels.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
