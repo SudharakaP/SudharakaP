@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
+50 is the traditional number of years in a jubilee period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
