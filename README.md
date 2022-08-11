@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the number of sacks by Reggie White in his NFL career from 1985-2000.
+166 is the number of points the Dow Jones Industrials fell on June 24, 2005.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
