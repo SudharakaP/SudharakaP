@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3 is the number of witches in William Shakespeare's Macbeth.
+587 is the outgoing port for email message submission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
