@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
--Infinity is negative infinity.
+173 is the atomic number of an element temporarily called Unsepttrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
