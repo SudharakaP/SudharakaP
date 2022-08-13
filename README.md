@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-47 is the number of El-Aurians Scotty manages to beam up before their ship is destroyed by the energy ribbon.
+361 is the number of positions on a standard 19 x 19 Go board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
