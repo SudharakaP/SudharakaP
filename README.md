@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-201 is the HTTP status code indicating a new resource was successfully created in response to the request.
+100000000000 is the number of neurons in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
