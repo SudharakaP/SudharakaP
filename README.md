@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-69 is the number Bill and Ted were thinking of when talking to their future selves.
+204 is the HTTP status code indicating the request was received but there is no response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
