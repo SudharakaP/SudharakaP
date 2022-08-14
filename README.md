@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-118 is the medical and Alpine rescue emergency telephone number in Italy.
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
