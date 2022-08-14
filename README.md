@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
+118 is the medical and Alpine rescue emergency telephone number in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
