@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6909 is the number of estimate for the linguistic diversity of living human languages or dialects.
+525998433 is the number of distinct websites as of November 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
