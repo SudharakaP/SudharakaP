@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the percentage of girls in Bangladesh that are married by age 18.
+480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
