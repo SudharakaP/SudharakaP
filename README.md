@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
+18 is the number of holes in a stipulated round of golf.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
