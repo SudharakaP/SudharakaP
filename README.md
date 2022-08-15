@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the speed of rush hour traffic on average in kilometres per hour in London.
+57 is the number of cm that the smallest man measured, Gul Mohammed (1957-1997) of India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
