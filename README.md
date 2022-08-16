@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
+14 is the maximum number of electrons that can fit in an f sublevel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
