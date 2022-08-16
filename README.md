@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the number of bytes in an Asynchronous Transfer Mode packet.
+42 is the number of spots (or pips, circular patches or pits) on a pair of standard six-sided dice.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
