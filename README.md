@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the number worn by LeBron James in the NBA.
+193 is species of monkeys and apes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
