@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-183 is the rank of the U.S. Virgin Islands in world population.
+2 is the price in cents per acre the USA bought Alaska from Russia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
