@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-86 is the device number for a lockout relay function in electrical circuit protection schemes.
+0 is the coldest possible temperature old the Kelvin scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
