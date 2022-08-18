@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-243 is the number of Earth Days for the planet Venus to complete one Venetian day, one revolution.
+42 is the result given by the web search engines Google, Wolfram Alpha and Bing when the query "the answer to life the universe and everything" is entered as a search.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
