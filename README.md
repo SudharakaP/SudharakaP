@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-343 is the number of New York City Firefighters who died on September 11, 2001.
+138 is the number of constellations of the Triakis tetrahedron.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
