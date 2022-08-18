@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is the number of odd numbered days during a non-leap year.
+8 is the number of principles of Yong in Chinese calligraphy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
