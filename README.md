@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-161 is the the number of theatrical shorts of Tom and Jerry cartoons between 1940 and 1967.
+6 is the jersey number worn by the starting stand-off half/five-eighth in most rugby league competitions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
