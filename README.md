@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-171 is the record number of goals scored by France at the 1998 World Cup.
+116 is the prefix for several EU-wide telephone helplines designated as harmonised service of social value.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
