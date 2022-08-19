@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-525 is the number of scan lines in the NTSC television standard.
+216 is the number of colors formed by a 6 color cube, sometimes known as the web-safe color palette.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
