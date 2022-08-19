@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the police non-emergency number in Denmark.
+300 is the number of different beverages the Coca Cola company offers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
