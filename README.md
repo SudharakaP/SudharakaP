@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
+60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
