@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-496 is what the dimension of the gauge group must be for a superstring theory to make sense.
+71 is the number of different characters that can be used with a standard English Keyboard, excluding uppercase letters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
