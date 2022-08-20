@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+166 is the number of Warner Bros. cartoons Bugs Bunny starred in from 1940 to 1964.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
