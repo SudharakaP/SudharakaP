@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-28 is the number worn by the Clemson Tigers' record breaking running back C.J.
+464 is the number of legal positions of the kings in chess, not counting mirrored positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
