@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6000000000000000000 is the number of transistor produced worldwide in 2008.
+195 is the population of Guedanga, in the Ouo Department of ComoÃ© Province, Burkina Faso.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
