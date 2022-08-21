@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the population of Bide Arm in Newfoundland and Labrador, Canada.
+205 is the world speed record (mph) of a car on ice.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
