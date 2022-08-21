@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-85 is the atomic number of astatine.
+64 is the number of Braille characters in the old 6-dot system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
