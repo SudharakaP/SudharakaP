@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-911 is the number of days after September 11th that the Madrid Attack took place.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
