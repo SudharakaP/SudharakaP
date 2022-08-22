@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-511 is the number of collaborators mathematician Paul Erdős had.
+227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
