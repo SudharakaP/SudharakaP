@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the death toll of the air crash of American Airlines Flight 191.
+93 is that approximate distance in millions of miles the Sun is away from the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
