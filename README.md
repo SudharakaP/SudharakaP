@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-267000 is the number of words in James Joyce's Ulysses.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
