@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
+65 is the minimum grade required to pass an exam, or class, in many areas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
