@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-343 is the number of New York City Firefighters who died on September 11, 2001.
+49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
