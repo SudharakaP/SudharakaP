@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the medical emergency telephone number in Egypt.
+19 is the final year a person is a teenager.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
