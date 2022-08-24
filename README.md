@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the rank of Seychelles in world population.
+191 is a common flight number for flights involved in crashes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
