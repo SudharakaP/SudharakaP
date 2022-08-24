@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the number of museums in Amsterdam (Netherlands has the highest concentration of museums in the world).
+490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
