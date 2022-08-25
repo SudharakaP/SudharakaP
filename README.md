@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-23 is the number of crosses on Calvary in the Monty Python film Life Of Brian.
+196 is the population density in square kilometers of Italy, the fifth-highest population density in Europe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
