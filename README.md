@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-111 is the atomic number of the element roentgenium (Rg).
+121 is the number for voicemail for mobile phones on the Vodafone network.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
