@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
+75 is the age limit for Canadian senators.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
