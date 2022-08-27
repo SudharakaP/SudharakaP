@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is the number of characters in the ASCII character set.
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
