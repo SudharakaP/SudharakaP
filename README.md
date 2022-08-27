@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the standard TCP/IP port number used for HTTP connections.
+240 is the cholesterol level above which is considered high risk.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
