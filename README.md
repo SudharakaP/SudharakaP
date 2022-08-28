@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
+135 is the height of the World's tallest thermometer in feet located in Baker, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
