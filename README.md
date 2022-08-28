@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
+97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
