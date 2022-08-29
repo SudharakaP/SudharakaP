@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64 is the number of Braille characters in the old 6-dot system.
+10000000000 is the number of bacteria in the human oral cavity.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
