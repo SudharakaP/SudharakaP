@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
+64 is the number of Braille characters in the old 6-dot system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
