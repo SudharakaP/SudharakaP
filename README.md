@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
+500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
