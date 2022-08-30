@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-125 is the atomic number of the yet-to-be-discovered element Unbipentium.
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
