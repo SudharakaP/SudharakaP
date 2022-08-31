@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-119 is a number to report children / youth at risk in France.
+108 is the number of stitches in an official Major League Baseball baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
