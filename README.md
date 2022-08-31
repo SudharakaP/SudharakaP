@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the first course in a subject taught at a college or university in Australia, Canada, South Africa, or the United States.
+39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
