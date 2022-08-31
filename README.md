@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the number of athletes that Canada had in 15 sports at the 2006 Winter Olympics.
+30 is the duration in years of the Thirty Years' War - 1618 to 1648.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
