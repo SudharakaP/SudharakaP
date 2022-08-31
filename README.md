@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1728 is braces were first invented by Pierre Fauchard.
+99 is a common price ending in psychological pricing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
