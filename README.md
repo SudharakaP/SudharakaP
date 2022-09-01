@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-178 is the atomic number of an element temporarily called Unseptoctium.
+4 is the number of completed, numbered symphonies by Johannes Brahms.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
