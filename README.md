@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-211 is the SMTP status code system status.
+179 is the rank of Guam in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
