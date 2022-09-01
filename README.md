@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-142600 is tonnes of gold mined in the world by the end of 2000.
+28 is the number of a car formerly run in the NASCAR Sprint Cup Series by Yates Racing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
