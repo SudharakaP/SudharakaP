@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-86 is the device number for a lockout relay function in electrical circuit protection schemes.
+10 is the number of spacetime dimensions in some superstring theories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
