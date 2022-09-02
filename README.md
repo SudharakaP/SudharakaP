@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17 is the maximum number of strokes of a Chinese radical.
+131 is the number serving a monkiker for Indie music.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
