@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the atomic number of berkelium.
+4 is the number of chambers the mammalian heart consists of.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
