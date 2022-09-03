@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45000000000 is the approximate number of fat cells in an average adult.
+60 is the years of marriage until the diamond wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
