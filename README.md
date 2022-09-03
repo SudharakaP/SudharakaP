@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
+27 is the number of countries in the European Union (as of August 2011).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
