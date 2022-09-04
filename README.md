@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
+97 is the number of leap days that the Gregorian calendar contains in its cycle of 400 years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
