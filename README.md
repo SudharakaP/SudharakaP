@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
