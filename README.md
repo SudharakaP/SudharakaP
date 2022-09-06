@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-366 is the number of days in a leap year.
+47 is the number of phonemes in English phonology in Received Pronunciation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
