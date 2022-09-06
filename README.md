@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-76 is the atomic number of osmium.
+179 is the rank of Estonia in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
