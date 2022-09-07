@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-361 is the number of positions on a standard 19 x 19 Go board.
+Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
