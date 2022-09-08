@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the angle in degrees for which a rainbow appears or the critical angle.
+78 is the number of chromosomes in canine DNA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
