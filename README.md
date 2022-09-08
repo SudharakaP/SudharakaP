@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the number of runs that Ollie Beard had in his MLB career from 1889-1891.
+14500 is the number of unique English words occur in the King James Version of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
