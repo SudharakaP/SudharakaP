@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-95 is the atomic number of americium.
+8 is the number of principles of Yong in Chinese calligraphy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
