@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-119 is a number to report children / youth at risk in France.
+248 is the number of organs in the human body as traditionally depicted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
