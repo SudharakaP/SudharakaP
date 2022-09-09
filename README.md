@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
+156 is the number of hourly gongs a clock strikes in one day (78 AM gongs and 78 PM gongs).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
