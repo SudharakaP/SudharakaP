@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-251 is the last and most powerful prime mover (engine) designed and built by the American Locomotive Company (ALCO).
+600 is the maximum credit score considered poor, thus limiting available credit in the USA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
