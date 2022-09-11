@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-217 is the area code for central Illinois.
+195 is the number of episodes of Chickenman series which began in 1966.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
