@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the traffic emergency telephone number in China.
+114 is the police non-emergency number in Denmark.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
