@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-179 is the rank of Guam in world population.
+6 is the highest number on one end of a standard domino.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
