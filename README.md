@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-105 is the number of surat al-Fil in the Qur'an.
+28 is the number of grams in an ounce (approximately), and used as such in the illegal drug trade.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
