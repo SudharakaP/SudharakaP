@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the number of laws of cricket.
+6800 is the approximate number of languages in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
