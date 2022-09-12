@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the wing area of a Boeing 757 airplane in meters.
+240 is the cholesterol level above which is considered high risk.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
