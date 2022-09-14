@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the number of nucleobase types in DNA and RNA – adenine, guanine, cytosine, thymine (uracil in RNA).
+164 is the number of home runs the Baltimore Orioles hit in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
