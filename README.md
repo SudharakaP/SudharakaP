@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the miles long of the Hetch Hetchy Aqueduct in Yosemite National Park.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
