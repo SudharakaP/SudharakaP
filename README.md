@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is years it takes for all the water in Lake Superior to be changed.
+40000000 is the number of Americans that have "chronic halitosis," which is bad breath that never goes away.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
