@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
+56 is the number of layers of the Universe according to Aristotle (Earth plus 55 crystalline spheres above it).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
