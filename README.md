@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the age of Mao Zedong when the People's Republic of China was established on Oct. 1, 1949.
+440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
