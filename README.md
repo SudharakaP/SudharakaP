@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-81 is the number of stanzas or chapters in the Tao te Ching (in the most common arrangements).
+8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
