@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-175 is years Harriet (1830–2006) the Galápagos tortoise lived.
+15250 is the number of times the average driver will honk in a lifetime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
