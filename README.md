@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-220 is the SMTP code meaning "service ready".
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
