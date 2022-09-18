@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9220000000000000000 is the largest number which can fit into a signed (two's complement) 64-bit integer on a computer.
+3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
