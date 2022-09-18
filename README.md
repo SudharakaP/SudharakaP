@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
+177 is the rank of the United States in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
