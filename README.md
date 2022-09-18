@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the nubmer of performances that A Day in Hollywood / A Night in the Ukraine ran for.
+850 is the maximum possible Fair Isaac credit score.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
