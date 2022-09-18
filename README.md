@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-129 is the combined 2-year total of home runs for baseball's Sammy Sosa with 66 home runs in 1999 and 63 in 2000.
+240 is the number of pence in a pound in the British currency until 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
