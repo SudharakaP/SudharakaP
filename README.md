@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-203 is the HTTP status code indicating partial information.
+88 is a standard length of playing cards in mm.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
