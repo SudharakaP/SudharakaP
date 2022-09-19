@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-390 is the speed in feet per second that nerve impulses for muscle position travel at.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
