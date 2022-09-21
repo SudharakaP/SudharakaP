@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
+169 is the height in feet that Buddha Dordenma, a Shakyamuni Buddha statue under construction in the mountains of Bhutan, once completed, would be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
