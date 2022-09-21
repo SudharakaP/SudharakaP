@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-94 is the length of an NBA court in feet.
+52 is the approximate number of weeks in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
