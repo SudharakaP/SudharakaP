@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
+195 is the length in miles of The Wild West Relay team running relay race held annually in August in Colorado.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
