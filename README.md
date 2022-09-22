@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106 is the maximum number of characters filenames can have in Joliet, an extension to the ISO 9660 file system.
+128 is the number of ASCII characters (33 non-printing characters, mostly obsolete control characters that affect how text is processed, and 94 printable).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
