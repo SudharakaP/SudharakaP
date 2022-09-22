@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-400000 is the number of morphine addicts the Civil War produced.
+112 is the number of surat al-Ikhlas in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
