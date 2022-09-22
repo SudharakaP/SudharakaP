@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the number of loaves in a "baker's dozen".
+212 is the boiling point of water at sea level in Fahrenheit degrees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
