@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the age of Mao Zedong when the People's Republic of China was established on Oct. 1, 1949.
+1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
