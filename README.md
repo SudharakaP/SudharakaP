@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
+218 is votes required in the US House of Representatives to achieve a majority as of 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
