@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172000 is tons of chocolate produced in Belgium in a year.
+142 is the number of 6-vertex planar graphs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
