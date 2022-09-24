@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
+1982 is the average price for a major league baseball game ticket in 2004 in cents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
