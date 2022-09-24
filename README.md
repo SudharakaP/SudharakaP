@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1979 is a song by American alternative rock band The Smashing Pumpkins.
+56 is the age of Mao Zedong when the People's Republic of China was established on Oct. 1, 1949.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
