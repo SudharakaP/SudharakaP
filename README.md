@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the number of different characters that can be used with a standard English Keyboard.
+196 is the number of athletes that Canada had in 15 sports at the 2006 Winter Olympics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
