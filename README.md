@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-47 is the total numbers of balloons that a player can collect in Rareware's Nintendo 64 game Diddy Kong Racing.
+170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
