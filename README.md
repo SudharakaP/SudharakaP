@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-133 is the common processor speed in MHz for common 32-bit processor CPUs circa 1995 such as the Intel Pentium and AMD AMD K5.
+245 is the number of Jewish singers who returned from captivity in Babylon in circa 538 BCE BC following the rise of Cyrus the Great and the Persian Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
