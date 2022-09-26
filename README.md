@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
+900000000 is the approximate number of trees cut down in a year to make the raw materials for US pulp mills and paper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
