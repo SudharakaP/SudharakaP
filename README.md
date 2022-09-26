@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the fire emergency telephone number in Austria.
+2055001 is the number of people employed by Wal-mart in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
