@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-171 is the rank of Bahamas in world population.
+144 is a gross (a dozen dozen).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
