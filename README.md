@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the rank of the United States in world population density.
+235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
