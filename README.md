@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3825000 is the number of entries on Wikipedia in the English language.
+72 is the number of the Immortals of Taoism.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
