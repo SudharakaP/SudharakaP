@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17 is the minimum driving age for a car or van in the United Kingdom.
+8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
