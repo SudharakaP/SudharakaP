@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
+30 is the number of variations in Bach's Goldberg Variations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
