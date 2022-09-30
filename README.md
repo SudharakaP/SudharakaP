@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-911 is the number of days after September 11th that the Madrid Attack took place.
+463 is the number of days in the synodic period of Ceres.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
