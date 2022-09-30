@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
+147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
