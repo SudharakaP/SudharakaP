@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
+1 is the loneliest number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
