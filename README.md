@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-46 is the number of human chromosomes.
+230 is the country code for Mauritius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
