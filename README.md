@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
+649 is the number of Pokémon as of Pokémon Black and White versions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
