@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
+80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
