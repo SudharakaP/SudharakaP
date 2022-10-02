@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45 is the sapphire wedding anniversary in years of marriage.
+13 is the number of loaves in a "baker's dozen".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
