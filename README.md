@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the distance in feet the Hampstead London Underground station is below ground level.
+68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
