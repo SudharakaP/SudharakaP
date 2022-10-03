@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the number of colonies that formed the United States.
+10 is the number of Provinces in Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
