@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20 is the number of baby teeth in the deciduous dentition.
+273 is the number of seconds in American composer John Cage's piano composition 4'33" of silence, in three movements.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
