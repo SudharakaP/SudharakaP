@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-54 is the score in golf colloquially referred to as a perfect round.
+221 is sMTP status code for service closing transmission channel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
