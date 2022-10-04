@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-433 is the perfect score in the game show Fifteen To One, only ever achieved once in over 2000 shows.
+10000000000 is the number of times the original Pac Man has been played as estimated by Namco, the manufacturers of Pac Man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
