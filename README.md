@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106 is the number of surat Quraysh in the Qur'an.
+50 is the gold or "golden" wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
