@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is a number considred unlucky in enduro, given to a race entrant and is colloquially known as a "blind pew".
+8 is the number of planets in the Solar System.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
