@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is the California Penal Code for "Offer bribe to influence testimony".
+40000000 is the number of Americans that have "chronic halitosis," which is bad breath that never goes away.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
