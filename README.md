@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-0 is the atomic number of the theoretical element tetraneutron.
+35000 is the number of genes in a human being.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
