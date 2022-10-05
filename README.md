@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-189 is the atomic number of an element temporarily called Unoctennium.
+93 is the atomic number of neptunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
