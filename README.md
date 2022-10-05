@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the first number of an automatic IPv4 address assigned by TCP/IP when no external networking device is contactable.
+231 is the number of cubic inches in a U.S. liquid gallon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
