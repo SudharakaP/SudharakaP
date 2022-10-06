@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-911 is the number of days after September 11th that the Madrid Attack took place.
+216 is the ISO's standard for paper sizes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
