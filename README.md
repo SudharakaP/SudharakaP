@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-111 is the atomic number of the element roentgenium (Rg).
+45000000000 is the number of galaxies in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
