@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-360 is the number of degrees in a circle for the purpose of angular measurement.
+555 is the number of keyboard sonatas written by Domenico Scarlatti, according to the catalog by Ralph Kirkpatrick.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
