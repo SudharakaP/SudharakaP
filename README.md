@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the length (years) of the Eighty Years' War (1568–1648).
+4.52e+46 is the upper bound for the number of legal chess positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
