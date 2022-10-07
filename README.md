@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4.52e+46 is the upper bound for the number of legal chess positions.
+199 is the population of Woodstock, Newfoundland and Labrador, Newfoundland and Labrador Canada according to the 2006 Census.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
