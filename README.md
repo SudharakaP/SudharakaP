@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the number of chapters in the Quran.
+27 is the current number of Amendments to the United States Constitution (2012 February).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
