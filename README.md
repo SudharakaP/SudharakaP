@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3000000000 is the number of base pairs in the human genome.
+26 is the number of miles in a marathon rounded down (26 miles and 385 yards).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
