@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64 is the size in bits of certain data types in some computer programming languages.
+30 is the number of variations in Bach's Goldberg Variations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
