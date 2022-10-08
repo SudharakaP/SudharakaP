@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-116 is the record for number of wins in a single season of Major League Baseball achieved by the Chicago Cubs in 1906 and the Seattle Mariners in 2001.
+160 is the number of characters permitted in a standard short message service in Australia and Europe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
