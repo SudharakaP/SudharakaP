@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-930000 is the number of words in the King James Version of the Bible.
+139 is the number of law enforcement officers killed in the line of duty in 1998.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
