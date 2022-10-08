@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the number of hours in a week, or 7 x 24 hours.
+22 is the number of players on the field in a football (soccer) match.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
