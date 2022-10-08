@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-116 is the record for number of wins in a single season of Major League Baseball achieved by the Chicago Cubs in 1906 and the Seattle Mariners in 2001.
+364 is the total number of gifts received in the song "The Twelve Days of Christmas".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
