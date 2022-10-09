@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25 is the (critical) number of Florida electoral votes for the 2000 U.S. presidential election.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
