@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the basic film gauge in mm most commonly used for both analog photography and motion pictures.
+168 is the highest test score of Australian cricket captain Michael Clarke.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
