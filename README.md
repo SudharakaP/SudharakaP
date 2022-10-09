@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-221 is sMTP status code for service closing transmission channel.
+101 is a number used to define the number of keys on a computer keyboard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
