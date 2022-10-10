@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-165 is miles of shoreline of Lake Berryessa in Napa County, California.
+122 is the atomic number of the chemical element unbibium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
