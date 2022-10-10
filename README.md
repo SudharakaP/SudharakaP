@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-360000 is the number of words definitions in the New Oxford Dictionary of English.
+950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
