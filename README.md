@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
+139 is the margin in St Kilda's win over the Brisbane Lions in the last round of the 2005 season in the Australian Football League.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
