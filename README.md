@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-0 is the atomic number of the theoretical element tetraneutron.
+214 is the first area code of metropolitan Dallas, Texas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
