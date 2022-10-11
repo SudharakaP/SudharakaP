@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8e+60 is the number of Planck time intervals since the Big Bang.
+180 is the gent's clout shooting distance in archery measured in yards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
