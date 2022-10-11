@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
+295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
