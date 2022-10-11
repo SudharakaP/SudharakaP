@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-930000 is the number of words in the King James Version of the Bible.
+1e+83 is the number of fundamental particles in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
