@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the number of games pitched by MLB pitcher Art Herring from 1929-1947.
+361 is the number of positions on a standard 19 x 19 Go board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
