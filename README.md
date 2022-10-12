@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-214 is the number of Chinese radicals for the writing of Chinese characters according to the 1716 Kangxi Dictionary.
+1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
