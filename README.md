@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44 is the number of candles in a box of Hanukkah candles.
+17 is the number of syllables in a haiku (5+7+5).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
