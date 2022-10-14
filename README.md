@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the traffic emergency telephone number in China.
+198 is the population of Perlethorpe, Nottinghamshire England.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
