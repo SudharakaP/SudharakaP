@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-160 is the number of characters permitted in a standard short message service in Australia and Europe.
+3 is the number of novels or films in a trilogy and the number of interconnected works of art in a triptych.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
