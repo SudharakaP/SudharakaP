@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-23 is the number of enigma that plays a prominent role in the plot of The Illuminatus! Trilogy by Robert Shea and Robert Anton Wilson.
+24 is the number of bits a computer needs to represent falseColor images (for a maximum of 16,777,216 colours).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
