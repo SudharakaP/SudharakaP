@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the atomic number of berkelium.
+109 is the atomic number of meitnerium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
