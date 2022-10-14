@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the number of columns of a Line printer printing in landscape mode on 14-inch paper.
+72 is the total number of books in the Holy Bible in the Catholic version.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
