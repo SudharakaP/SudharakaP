@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-155 is the number of performances Ivanhoe, the romantic opera that opened in January 31, 1891, ran for.
+129 is the number of episodes of the TV series Becker that ran on CBS from 1998 to 2004.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
