@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25000000 is the number of different inhabited planets in the the Galactic Empire.
+720 is five gross (= 500 duodecimal, 5 × 144).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
