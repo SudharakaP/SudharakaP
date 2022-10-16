@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the electricity emergency telephone number in Indonesia.
+2055001 is the number of people employed by Wal-mart in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
