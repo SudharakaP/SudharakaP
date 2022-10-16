@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the size, in bits, of certain integer data types, used in computer representations of numbers.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
