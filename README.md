@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-63 is the number of groats in a guinea in British pre-decimal currency.
+300 is the approximate number of Spartans who fought to death at the Battle of Thermopylae.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
