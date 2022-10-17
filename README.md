@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is the atomic number of an element temporarily called Unocthexium.
+114 is the police non-emergency number in Denmark.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
