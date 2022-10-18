@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-65 is the minimum grade required to pass an exam, or class, in many areas.
+186 is the atomic number of an element temporarily called Unocthexium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
