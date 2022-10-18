@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-361 is the number of positions on a standard 19 x 19 Go board.
+1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
