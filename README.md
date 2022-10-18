@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-26 is the number of Cantons of Switzerland.
+666 is the number of the devil.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
