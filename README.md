@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-217 is the area code for central Illinois.
+144 is a gross (a dozen dozen).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
