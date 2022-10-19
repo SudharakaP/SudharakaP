@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-96 is the rating of Skyrim on metacritic.com.
+121 is the number for voicemail for mobile phones on the Vodafone network.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
