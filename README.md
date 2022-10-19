@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-191 is a common flight number for flights involved in crashes.
+217 is the area code for central Illinois.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
