@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-36 is the perfect score on the ACT.
+22 is the number of letters in the Hebrew alphabet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
