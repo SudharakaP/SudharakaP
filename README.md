@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the number of years of marriage as the ruby wedding anniversary.
+175 is the number of films that actress Rose Tapley appeared in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
