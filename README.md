@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64 is the maximum number of strokes in any Chinese character.
+400000000000 is the number of stars in the Milky Way galaxy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
