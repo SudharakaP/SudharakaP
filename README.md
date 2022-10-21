@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the careers home runs given up by MLB pitcher Brian Meadows from 1998 to 2006.
+242 is the area code of The Bahamas located in the North West Atlantic Ocean.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
