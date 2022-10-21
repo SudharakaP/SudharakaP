@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the atomic number of an element temporarily called Unseptseptium.
+64 is the size in bits of certain data types in some computer programming languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
