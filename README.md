@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
+998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
