@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the telephone number of the speaking clock for the correct time in the United Kingdom.
+50000000 is the approximate number of people who fish per year in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
