@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the maximum number of marbles (game pieces) in Chinese checkers.
+105 is the number of surat al-Fil in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
