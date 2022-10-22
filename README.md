@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the highest test score of Australian cricket captain Michael Clarke.
+104 is the atomic number of rutherfordium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
