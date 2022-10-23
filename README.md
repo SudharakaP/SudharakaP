@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-525998433 is the number of distinct websites as of November 2011.
+5 is the number of appendages on most starfish, which exhibit pentamerism.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
