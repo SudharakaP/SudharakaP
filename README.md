@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the number of appendages on most starfish, which exhibit pentamerism.
+267000 is the number of words in James Joyce's Ulysses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
