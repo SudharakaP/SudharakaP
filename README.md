@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the speed limit, in kilometers per hour, of Australian roads with unspecified limits.
+183 is the rank of the U.S. Virgin Islands in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
