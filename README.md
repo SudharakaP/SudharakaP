@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
+61 is the code for international direct dial phone calls to Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
