@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is a card game related to Forty-five (card game).
+285 is the total number of Rules of Acquisition in Star Trek.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
