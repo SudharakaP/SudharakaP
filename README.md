@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
+168 is the feet that three-time Olympic gold medalist John Flanagan achieved in the hammer throw in 1904 (168 feet, 1 inch).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
