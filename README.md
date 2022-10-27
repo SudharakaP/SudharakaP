@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
+190 is the atomic number of an element temporarily called Unenntrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
