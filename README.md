@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the approximate periodicity of a sunspot cycle in years.
+158 is the number of verses of the national anthem of Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
