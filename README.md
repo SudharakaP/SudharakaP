@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the number of games pitched by MLB pitcher Art Herring from 1929-1947.
+175 is the rank of Belize in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
