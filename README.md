@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
+56 is the number of layers of the Universe according to Aristotle (Earth plus 55 crystalline spheres above it).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
