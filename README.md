@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
+42 is the angle in degrees for which a rainbow appears or the critical angle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
