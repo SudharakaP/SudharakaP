@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the temperature in Farenheit at which alcohol boils.
+400000000000 is the number of stars in the Milky Way galaxy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
