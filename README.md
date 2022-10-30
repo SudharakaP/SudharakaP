@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-70 is the distance (meter) from archer to targets in Olympic Archery.
+28 is the number of a car formerly run in the NASCAR Sprint Cup Series by Yates Racing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
