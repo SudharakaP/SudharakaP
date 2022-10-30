@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the percentage of all bingo players are under the age of 35.
+175 is the number of touchdowns by Former NFL running back Emmitt Smith, ranking him second to Jerry Rice's 207.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
