@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is hours in a week.
+0 is the coldest possible temperature old the Kelvin scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
