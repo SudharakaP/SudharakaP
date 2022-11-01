@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-270 is the average number of days in human pregnancy.
+25 is the percentage of all scald burns to children from hot tap water.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
