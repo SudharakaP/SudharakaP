@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-215 is the Dewey Decimal Classification for Science and religion.
+40000000 is the number of times lightning hits the ground 40 million times a year in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
