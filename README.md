@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
+177 is the all-time titles record held by Tennis Hall of Famer Martina Navratilova.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
