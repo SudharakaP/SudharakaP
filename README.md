@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15250 is the number of times the average driver will honk in a lifetime.
+14 is the number of lines in a sonnet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
