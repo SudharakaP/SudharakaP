@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-215 is the Dewey Decimal Classification for Science and religion.
+167 is the kilometers in length of Andros, Bahamas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
