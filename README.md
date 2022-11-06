@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the legal age for sexual intercourse in many countries.
+100000 is the number of verses (shlokas) in the Mahabharata.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
