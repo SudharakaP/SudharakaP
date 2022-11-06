@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is hours in a week.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
