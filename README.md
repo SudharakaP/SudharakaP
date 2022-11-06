@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the atomic number of an element temporarily called Unennbium.
+97 is the atomic number of berkelium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
