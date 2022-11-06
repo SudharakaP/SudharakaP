@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-47 is the total numbers of balloons that a player can collect in Rareware's Nintendo 64 game Diddy Kong Racing.
+180 is the number of films American film actor John Wayne starred in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
