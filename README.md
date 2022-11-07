@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-105 is the atomic number of hahnium, also known as dubnium.
+100000 is the number of verses (shlokas) in the Mahabharata.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
