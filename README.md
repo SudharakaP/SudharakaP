@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-194 is the NHL record number of saves, set by Bruce Sutter in 1982.
+31 is the number of flavors of Baskin-Robbins ice cream.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
