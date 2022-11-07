@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-148 is the number of episodes of the TV series The Fresh Prince of Bel-Air on NBC from 1990 to 1996.
+3 is the number of words or phrases in a Tripartite motto.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
