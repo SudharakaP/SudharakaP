@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-720 is five gross (= 500 duodecimal, 5 × 144).
+194 is the NHL record number of saves, set by Bruce Sutter in 1982.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
