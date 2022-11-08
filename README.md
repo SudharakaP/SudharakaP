@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110000 is the average number of hairs that people with black hair have.
+139 is the all-time record number of rugby union international appearances made by Australia scrum-half George Gregan.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
