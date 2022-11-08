@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
+3 is the number of witches in William Shakespeare's Macbeth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
