@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
