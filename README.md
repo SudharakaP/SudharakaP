@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
+129 is the number of episodes of the TV series Becker that ran on CBS from 1998 to 2004.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
