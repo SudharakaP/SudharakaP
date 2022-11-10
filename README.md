@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the number of days in a week.
+50 is the focal length in millimeters of the normal lens in 35 mm photography.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
