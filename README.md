@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
+181 is the number of 181 colleges, universities and other higher education institutions in Texas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
