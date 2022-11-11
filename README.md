@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-127 is the atomic number of Unbiseptium, an element that has not yet been discovered.
+490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
