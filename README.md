@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the name of a community of and for open source developers, created by Red Hat.
+1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
