@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
+93 is that approximate distance in millions of miles the Sun is away from the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
