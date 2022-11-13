@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the number of stitches in an official Major League Baseball baseball.
+1000000000000 is the number of bacteria on the surface of the human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
