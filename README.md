@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is years it takes for all the water in Lake Superior to be changed.
+230 is the common voltage in the European Union.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
