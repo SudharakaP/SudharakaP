@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the rank of Bluesbreakers (1966) by John Mayall With Eric Clapton on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
+180 is a trick used in extreme sports where a rider rotates half a turn while airborne and lands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
