@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-115 is the atomic number of an element temporarily called ununpentium.
+61000 is the average number of people airborne over the US at any given hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
