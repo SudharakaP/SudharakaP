@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the number of teeth of a full set of teeth in an adult human, including wisdom teeth.
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
