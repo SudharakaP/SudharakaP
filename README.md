@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is the pounds of oxygen that the adult human body requires daily.
+123 is the emergency telephone number in Colombia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
