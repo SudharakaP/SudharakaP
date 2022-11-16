@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the careers home runs given up by MLB pitcher Brian Meadows from 1998 to 2006.
+1400000 is the number of species that have been named by the World Resources Institute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
