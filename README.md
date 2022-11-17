@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6000000 is the number of parts in the Boeing 747-400.
+66 is the number of years of the longest hiccups on record by an American pig farmer from 1922 to 1987.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
