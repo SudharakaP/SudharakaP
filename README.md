@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+181 is the rank of SÃ£o TomÃ© and PrÃ­ncipe in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
