@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+56 is the number of consecutive games in baseball in which New York Yankees' Joe DiMaggio had a base hit in 1941, still a record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
