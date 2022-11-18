@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000000000 is the number of bacteria in the human oral cavity.
+149 is the number of legal proceedings against 149 communists in Estonia in 1924.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
