@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+150 is the estimation of the game-tree complexity of xiangqi.
+72 is the standard resolution of an Apple Macintosh screen in dots per inch.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
