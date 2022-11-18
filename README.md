@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the nubmer of performances that A Day in Hollywood / A Night in the Ukraine ran for.
+39 is the duration, in nanoseconds, of the nuclear reaction in the largest nuclear explosion ever performed (Tsar bomb).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
