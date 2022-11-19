@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-47 is the number of phonemes in English phonology in Received Pronunciation.
+50 is the focal length in millimeters of the normal lens in 35 mm photography.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
