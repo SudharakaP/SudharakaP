@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-463 is the number of days in the synodic period of Ceres.
+24 is the number of bits a computer needs to represent falseColor images (for a maximum of 16,777,216 colours).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
