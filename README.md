@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-712 is the largest known number such that it and its 8th power have no common digits.
+194 is the number of historic building in the Braden Castle Park Historic District in Bradenton, Florida.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
