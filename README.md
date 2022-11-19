@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-38 is the number of minutes in the shortest war in history in which Zanzibar surrendered to England in 1896.
+384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
