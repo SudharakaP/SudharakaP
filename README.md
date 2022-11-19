@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the gold or "golden" wedding anniversary in years of marriage.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
