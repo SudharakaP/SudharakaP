@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-33 is the temperature at which water boils according to the Newton scale.
+1600000 is the number of people employed by the Indian railway system in India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
