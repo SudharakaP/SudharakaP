@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000000000000000000 is the estimated insect population.
+500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
