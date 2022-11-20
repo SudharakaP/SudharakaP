@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-82 is the number of games in an NBA or NHL regular season.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
