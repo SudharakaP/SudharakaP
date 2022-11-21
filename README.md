@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is the cholesterol level above which is considered high risk.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
