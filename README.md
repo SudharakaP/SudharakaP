@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-749 is the pounds of paper products used by an American individual annually on average.
+186 is a police term for a murder or homicide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
