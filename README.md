@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-243 is the number of Earth Days for the planet Venus to complete one Venetian day, one revolution.
+216 is the number of stitches on a baseball, according to the Ken Burns series "Baseball".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
