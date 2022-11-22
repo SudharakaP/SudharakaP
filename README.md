@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-78 is the total number of gifts in the song The Twelve Days of Christmas.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
