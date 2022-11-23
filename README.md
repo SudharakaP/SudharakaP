@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
+168 is the number of touchdowns that NFL quarterback Drew Brees had with the San Diego Chargers (2001–2005) and New Orleans Saints (2006 through the 2008 season).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
