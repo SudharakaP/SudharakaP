@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-450 is a perfect score in Canadian five-pin bowling.
+587 is the outgoing port for email message submission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
