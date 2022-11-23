@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the feet above sea level at Turriff in Aberdeenshire, Scotland.
+12 is the largest number that has just one syllable.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
