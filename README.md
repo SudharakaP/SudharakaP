@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the max number of shine sprites in Super Mario Sunshine.
+172000 is tons of chocolate produced in Belgium in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
