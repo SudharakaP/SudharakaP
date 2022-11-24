@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the atomic number of Untriennium, an unsynthesized chemical element.
+130 is the approximate maximum height in meters of trees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
