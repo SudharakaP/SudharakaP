@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-152 is the number of diapers solder in a Pampers Swaddlers pack.
+273 is the death toll of the air crash of American Airlines Flight 191.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
