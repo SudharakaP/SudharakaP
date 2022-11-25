@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-185 is the name of an improve improv game where, given a subject from the audience, players make up jokes beginning with "185 (blanks) walk into a bar.
+117 is the height in metres of the tallest tree recorded, located in Humboldt Redwoods State Park, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
