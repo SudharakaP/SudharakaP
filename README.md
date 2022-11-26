@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the angle between two planets in degrees so that they are in an astrological aspect called a sesquiquadrate.
+350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
