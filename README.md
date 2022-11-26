@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the number of points on a Star of David.
+178 is the rank of Samoa in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
