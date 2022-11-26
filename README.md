@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-65 is the minimum grade required to pass an exam, or class, in many areas.
+402000000 is the number of native speakers of English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
