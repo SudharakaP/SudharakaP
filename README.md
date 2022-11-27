@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-213 is the radical meaning "turtle", one of only two of the 214 Kangxi radicals that are composed of 16 strokes.
+300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
