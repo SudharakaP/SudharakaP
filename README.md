@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10 is the Number of dots in a tetractys.
+666 is the number of the devil.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
