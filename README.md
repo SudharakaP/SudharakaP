@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-217 is the area code for central Illinois.
+7 is the figurative number of seas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
