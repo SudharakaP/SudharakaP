@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the figurative number of seas.
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
