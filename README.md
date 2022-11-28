@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the angle in degrees for which a rainbow appears or the critical angle.
+62 is the number which Sigmund Freud has an irrational fear of.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
