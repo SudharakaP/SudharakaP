@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-230 is the common voltage in the European Union.
+17 is the maximum number of strokes of a Chinese radical.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
