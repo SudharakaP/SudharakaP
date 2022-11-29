@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-360000 is the number of words definitions in the New Oxford Dictionary of English.
+179 is the number of games played in the MLB with 162 games in the regular season and the potential 17 post-season games.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
