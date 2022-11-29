@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is years it takes for all the water in Lake Superior to be changed.
+204 is the HTTP status code indicating the request was received but there is no response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
