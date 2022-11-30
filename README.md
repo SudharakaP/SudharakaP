@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
+30 is the percentage of methane on Earth produced from the flatulence of domesticated cows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
