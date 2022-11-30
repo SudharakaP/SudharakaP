@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188 is the rank of Tonga in world population.
+55 is the percentage of movies released that are Rated R.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
