@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the maximum number of power stars a player can get in Super Mario 64 for the Nintendo 64.
+650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
