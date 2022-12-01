@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2500 is the number of letters on a typical typed page of text.
+145 is the atomic number of Unquadpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
