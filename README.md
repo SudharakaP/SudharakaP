@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-174 is the rank of Zimbabwe in world population density.
+197 is the number of years that Fu Xi lived for altogether.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
