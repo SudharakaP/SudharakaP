@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-143 is the number of milligrams of caffeine in AMP Energy.
+120 is the drop in meters of the world's tallest freefall ride, The Giant Drop located in Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
