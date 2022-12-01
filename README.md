@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the percentage volume expansion of freezing water.
+255 is the largest representable integer in an unsigned byte.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
