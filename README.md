@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
+613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
