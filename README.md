@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-201 is the Saros cycle; the next solar eclipse in this cycle is predicted to take place in AD 3223.
+138 is the Saros number of the solar eclipse series which began on June 6, 1472 and will end on July 11, 2716.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
