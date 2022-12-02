@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the height in inches of a regulation basketball hoop.
+613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
