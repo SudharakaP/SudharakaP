@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-600 is the advertised number of miles that NASCAR runs in the Coca-Cola 600, the longest race on any of the NASCAR circuits.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
