@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the number of stars in a binary star system (a stellar system consisting of two stars orbiting around their center of mass).
+1982 is the average price for a major league baseball game ticket in 2004 in cents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
