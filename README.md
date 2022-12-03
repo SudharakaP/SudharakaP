@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-164 is the atomic number of an element temporarily called Unhexquadium.
+99 is a common price ending in psychological pricing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
