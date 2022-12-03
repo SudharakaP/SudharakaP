@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the consumption in pounds of candy annually per person in Denmark, the country with the highest candy consumption.
+160 is the number of characters permitted in a standard short message service in Australia and Europe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
