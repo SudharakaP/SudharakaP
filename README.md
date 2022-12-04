@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-75 is the age limit for Canadian senators.
+198 is the rank of Finland in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
