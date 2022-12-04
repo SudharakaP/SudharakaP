@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
--Infinity is negative infinity.
+12 is the pairs of ribs normally in the human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
