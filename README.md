@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
