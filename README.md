@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the nubmer of performances that A Day in Hollywood / A Night in the Ukraine ran for.
+129 is the number of episodes of the TV series Becker that ran on CBS from 1998 to 2004.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
