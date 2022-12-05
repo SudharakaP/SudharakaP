@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-144 is the number of square inches in a square foot.
+172 is the temperature in Farenheit at which alcohol boils.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
