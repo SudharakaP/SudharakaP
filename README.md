@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16 is the minimum age for getting an adult job in most states and provinces across the globe.
+4000 is the weight in pounds that the Great White Shark can grow to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
