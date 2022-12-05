@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
+250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
