@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-0 is the atomic number of the theoretical element tetraneutron.
+124 is the rank of the Palestinian territories in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
