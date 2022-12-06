@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
+5 is the number of Justices on the Supreme Court of the United States necessary to render a majority decision.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
