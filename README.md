@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
+695 is the number of people dead in the single deadliest tornado in United States history (the F5 Tri-State Tornado in 1925).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
