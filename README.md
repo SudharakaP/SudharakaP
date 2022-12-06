@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-212 is the boiling point of water at sea level in Fahrenheit degrees.
+24 is the number of frames per second at which motion picture film is usually projected.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
