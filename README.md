@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-364 is the total number of gifts received in the song "The Twelve Days of Christmas".
+160 is the number of characters permitted in a standard short message service in Australia and Europe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
