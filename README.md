@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-230 is the country code for Mauritius.
+Infinity is the estimation of the game-tree complexity in the game of Go.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
