@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the official end score for Cribbage.
+90000 is the average number of hairs that redheads have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
