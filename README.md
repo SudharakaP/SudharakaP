@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the length in miles of the Adda River in Italy.
+900000000 is the approximate number of trees cut down in a year to make the raw materials for US pulp mills and paper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
