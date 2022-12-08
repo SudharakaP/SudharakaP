@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-119 is the default port for unencrypted NNTP connections.
+136 is the lower frequency band in kHz that amateur radio operators are allowed to transmit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
