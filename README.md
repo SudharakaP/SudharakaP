@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the maximum number of facial muscles a smile can require.
+1096000000 is the population of India in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
