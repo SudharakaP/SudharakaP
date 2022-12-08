@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1 is the number of dimensions of a line.
+500 is the number of detectable earthquakes in the world each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
