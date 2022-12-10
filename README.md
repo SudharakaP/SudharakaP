@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
+11 is the number of players in an American football team on the field at one time during play.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
