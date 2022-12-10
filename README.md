@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is the rank of Somaliland in countries by population density.
+192 is the number of lasers in the National Ignition Facility (NIF) at Lawrence Livermore National Laboratory in Livermore, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
