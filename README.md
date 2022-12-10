@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the number of players in an American football team on the field at one time during play.
+20 is the number of questions in the popular party game Twenty Questions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
