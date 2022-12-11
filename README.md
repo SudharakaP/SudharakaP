@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35000 is the number of genes in a human being.
+50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
