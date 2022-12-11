@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-29 is the number of cups of milk needed to make one pound of butter.
+19 is the number of years in 235 lunations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
