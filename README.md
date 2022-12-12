@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the percentage of U.S. paper currency in circulation that was counterfeit by the end of the Civil War.
+138 is the estimated number of ATP molecules produced by one molecule of fatty acid, for the mixture that comprises human adipose tissue.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
