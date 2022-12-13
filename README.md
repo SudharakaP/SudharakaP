@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-19 is the final year a person is a teenager.
+5000 is the number of base pairs in the DNA of the simplest viruses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
