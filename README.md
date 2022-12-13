@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
+78 is the number of lines that make up Metatron's Cube.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
