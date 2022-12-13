@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-27 is the current number of Amendments to the United States Constitution (2012 February).
+192 is the atomic number of an element temporarily called Unennbium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
