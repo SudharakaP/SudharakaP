@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the name of a community of and for open source developers, created by Red Hat.
+104 is the number of Corinthian columns in the Temple of Olympian Zeus, the largest temple ever built in Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
