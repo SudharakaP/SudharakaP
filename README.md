@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
+12 is the number of ounces in a troy pound (used for precious metals).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
