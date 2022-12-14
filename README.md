@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the kilometers in length of Andros, Bahamas.
+18 is the number of levels in hell in the Chinese mythos.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
