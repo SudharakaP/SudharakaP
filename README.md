@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
+5 is the number of interlocked rings in the symbol of the Olympic Games, representing the number of inhabited continents represented by the Olympians (counting North America and South America as one continent).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
