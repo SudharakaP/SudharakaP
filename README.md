@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
+3 is the minimum odd number of voting components for simple easy redundancy checks by direct comparison.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
