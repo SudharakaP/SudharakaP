@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the number of nucleobase types in DNA and RNA – adenine, guanine, cytosine, thymine (uracil in RNA).
+400000 is the number of morphine addicts the Civil War produced.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
