@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-160 is the number of characters permitted in a standard short message service in Australia and Europe.
+214 is the number of Chinese radicals for the writing of Chinese characters according to the 1716 Kangxi Dictionary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
