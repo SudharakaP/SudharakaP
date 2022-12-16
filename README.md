@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-714 is the number of home runs Babe Ruth scored in his career.
+173 is years it takes for all the water in Lake Superior to be changed.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
