@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-70 is the number of years of marriage until the platinum wedding anniversary.
+6 is the standard length (year) of a term in office for a United States senator.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
