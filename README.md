@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-124 is the rank of the Palestinian territories in world population.
+56 is the number of curls Shirley Temple, as a child, wore in her hair.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
