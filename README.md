@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the death toll of the air crash of American Airlines Flight 191.
+729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
