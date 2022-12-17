@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
+7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
