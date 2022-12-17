@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-386 is the number of Pokémon in the 3rd Generation National Pokédex.
+138 is keith Deller's score in the 1983 BDO World Darts Championship trophy against Eric Bristow, amongst the most memorable in darting history.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
