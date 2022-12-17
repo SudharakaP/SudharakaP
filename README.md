@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3 is the minimum odd number of voting components for simple easy redundancy checks by direct comparison.
+78 is the number of lines that make up Metatron's Cube.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
