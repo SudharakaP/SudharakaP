@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-130 is the approximate maximum height in meters of trees.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
