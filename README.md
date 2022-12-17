@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-714 is the number of home runs Babe Ruth scored in his career.
+147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
