@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
