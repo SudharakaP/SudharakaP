@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-63 is the atomic number of europium.
+89 is the atomic number of actinium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
