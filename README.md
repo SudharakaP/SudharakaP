@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the approximate number of years in the lifespan of Irish Wolfhound dogs.
+267000 is the number of words in James Joyce's Ulysses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
