@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9220000000000000000 is the largest number which can fit into a signed (two's complement) 64-bit integer on a computer.
+68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
