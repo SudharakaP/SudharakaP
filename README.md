@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the telephone number "to report a car breakdown on the highway in Austria.
+1728 is braces were first invented by Pierre Fauchard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
