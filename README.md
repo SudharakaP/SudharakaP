@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-155 is the number of performances Ivanhoe, the romantic opera that opened in January 31, 1891, ran for.
+240 is the cholesterol level above which is considered high risk.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
