@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is the age a person must attain in order to be considered a supercentenarian.
+120 is the telephone number "to report a car breakdown on the highway in Austria.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
