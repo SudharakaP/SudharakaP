@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-143 is the number of episodes of the TV series The Adventures of Robin Hood on CBS from 1955 to 1959.
+188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
