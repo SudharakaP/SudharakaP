@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-133 is the number of career touchdowns from 1983 - 1996 of Canadian Football League quarterback Danny Barrett.
+1e+21 is the number of grains of sand on all the world's beaches put together.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
