@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
+64 is the size in bits of certain data types in some computer programming languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
