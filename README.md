@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-525998433 is the number of distinct websites as of November 2011.
+911 is the number of days after September 11th that the Madrid Attack took place.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
