@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the Exit status indicated by Mac App Store software when receipt validation fails.
+6000000000000000000 is the number of transistor produced worldwide in 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
