@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
+3.457e+181 is the number of ways to arrange the tiles in English Scrabble on a standard 15-by-15 Scrabble board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
