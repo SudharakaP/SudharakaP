@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45000000000 is the approximate number of fat cells in an average adult.
+68 is the ideal temperature (F) for developing black-and-white film.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
