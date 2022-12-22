@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-146 is the Guinness World Record for the most languages a poem was recited in.
+39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
