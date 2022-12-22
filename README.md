@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-538 is the total number of votes in the Electoral College of the United States.
+30 is the number of days in the months April, June, September and November (and in unusual circumstances February).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
