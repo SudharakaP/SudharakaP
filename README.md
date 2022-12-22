@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5500000000000000 is the number of estimated ants on Earth alive at any one time.
+72 is the number of languages spoken at the Tower of Babylon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
