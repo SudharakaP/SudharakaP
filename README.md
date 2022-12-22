@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the standard length (year) of a term in office for a United States senator.
+8e+60 is the number of Planck time intervals since the Big Bang.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
