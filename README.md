@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the number of the Vault that is the starting area of Fallout 3.
+112 is the number of surat al-Ikhlas in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
