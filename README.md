@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-130 is the approximate maximum height in meters of trees.
+189 is the rank of Brazil in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
