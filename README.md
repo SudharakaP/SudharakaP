@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3 is the number of words or phrases in a Tripartite motto.
+10 is the number of official inkblots in the Rorschach inkblot test.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
