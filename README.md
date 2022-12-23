@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
+1337 is the weight in pounds of the biggest pumpkin in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
