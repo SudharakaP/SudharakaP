@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the total number of years in a Sexagenary cycle.
+124 is the atomic number of the yet-to-be-discovered element unbiquadium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
