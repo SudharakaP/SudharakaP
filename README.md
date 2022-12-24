@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-432 is three-dozen sets of a dozen, making it three gross.
+23 is the number of crosses on Calvary in the Monty Python film Life Of Brian.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
