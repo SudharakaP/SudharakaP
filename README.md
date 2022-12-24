@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1728 is braces were first invented by Pierre Fauchard.
+38 is the number of years it took the Israelites to travel from Kadesh Barnea to the Zered valley in Deuteronomy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
