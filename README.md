@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the number of members in the U.S. Senate needed to defeat a cloture vote and sustain a filibuster indefinitely.
+142600 is tonnes of gold mined in the world by the end of 2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
