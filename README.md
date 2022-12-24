@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
+156 is the number of strikes a clock will strike in the course of a day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
