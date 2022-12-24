@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
+38 is the number of slots on an American Roulette wheel (0, 00, and 1 through 36; European roulette does not use the 00 slot and has only 37 slots).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
