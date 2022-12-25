@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
+184 is a weight class in collegiate wrestling, 184 lb (83 kg).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
