@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-130 is the approximate maximum height in meters of trees.
+47 is the number of phonemes in English phonology in Received Pronunciation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
