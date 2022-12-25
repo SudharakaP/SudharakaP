@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-749 is the pounds of paper products used by an American individual annually on average.
+255 is the largest values that can be assigned to elements in the 24-bit RGB color model, since each color channel is allotted eight bits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
