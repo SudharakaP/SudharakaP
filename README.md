@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the number of basic tastes (sweet, salty, sour, bitter, and umami).
+63 is the atomic number of europium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
