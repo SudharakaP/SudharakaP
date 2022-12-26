@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
+120 is the max number of shine sprites in Super Mario Sunshine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
