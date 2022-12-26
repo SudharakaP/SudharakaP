@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000 is the number of thunderstorms that occur in the USA every year, of which 10% are classified as severe.
+164 is the number of episodes that the TV show Mad About You ran on NBC from 1992 to 1999.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
