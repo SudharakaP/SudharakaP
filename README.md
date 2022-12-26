@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-255 is the largest values that can be assigned to elements in the 24-bit RGB color model, since each color channel is allotted eight bits.
+56000000000 is the number of web pages indexed by Google as of 2010.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
