@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
+360 is the number of degrees in a circle for the purpose of angular measurement.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
