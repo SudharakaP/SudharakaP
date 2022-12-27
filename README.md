@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-107 is a common police code denoting a suspicious person.
+35000 is the number of genes in a human being.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
