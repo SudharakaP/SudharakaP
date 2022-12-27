@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the official end score for Cribbage.
+102 is the number of floors in Empire State Building in New York City.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
