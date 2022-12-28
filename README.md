@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-107 is the number of Nobel Prize in Literature laureates.
+5 is the number of dots in a quincunx.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
