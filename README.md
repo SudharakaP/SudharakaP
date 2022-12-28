@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-52 is the approximate number of weeks in a year.
+196 is the population density in square kilometers of Italy, the fifth-highest population density in Europe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
