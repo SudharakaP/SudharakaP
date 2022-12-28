@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
