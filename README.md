@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8e+60 is the number of Planck time intervals since the Big Bang.
+4 is the number of human blood groups (A, B, O, AB).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
