@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
+26 is the number of letters in the English and Interlingua alphabets.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
