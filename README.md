@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-33 is the temperature at which water boils according to the Newton scale.
+480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
