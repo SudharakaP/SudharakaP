@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-86 is the device number for a lockout relay function in electrical circuit protection schemes.
+12 is the number of people who have walked on Earth's moon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
