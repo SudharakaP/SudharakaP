@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-12 is the number of keys in any standard digital telephone (1 through 9, 0, * and #).
+26 is the number of letters in the Latin-derived English alphabet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
