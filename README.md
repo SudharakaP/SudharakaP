@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
+202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
