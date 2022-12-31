@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
+7 is the maximum number of times a letter-sized paper can be folded in half.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
