@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the number of Warner Bros. cartoons Bugs Bunny starred in from 1940 to 1964.
+712 is the largest known number such that it and its 8th power have no common digits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
