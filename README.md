@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-59 is the number on a button commonly worn by feminist activists in the 1970s (based on the claim that a woman earned 59 cents to an equally qualified man's dollar).
+176 is the rank of Rocks (1976) by Aerosmith on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
