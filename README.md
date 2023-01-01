@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the number of seconds in American composer John Cage's piano composition 4'33" of silence, in three movements.
+142600 is tonnes of gold mined in the world by the end of 2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
