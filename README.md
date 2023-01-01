@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10 is the number of official inkblots in the Rorschach inkblot test.
+8 is the number of planets in the Solar System.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
