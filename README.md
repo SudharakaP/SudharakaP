@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
+44 is the percentage of kids who watch television before they go to sleep in the US.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
