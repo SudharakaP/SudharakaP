@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-61 is the number of points required to win a "standard" game of Cribbage.
+53 is the maximum number of players on a National Football League roster.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
