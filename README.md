@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+15 is the number of days in each of the 24 cycles of the Chinese calendar.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
