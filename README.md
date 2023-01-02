@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
+39 is the traditional number of times citizens of Ancient Rome hit their slaves when beating them, referred to as "Forty save one".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
