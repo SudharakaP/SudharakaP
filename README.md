@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
+52 is the number of letters in the English alphabet, if majuscules are distinguished from minuscules.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
