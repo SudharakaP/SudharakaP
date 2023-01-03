@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-280000000000000 is the number of possible unique physical addresses.
+360 is the number of degrees in a circle for the purpose of angular measurement.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
