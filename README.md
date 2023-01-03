@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
+28 is the number of dominoes in standard domino sets.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
