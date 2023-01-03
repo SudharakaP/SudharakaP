@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-587 is the outgoing port for email message submission.
+139 is the all-time record number of rugby union international appearances made by Australia scrum-half George Gregan.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
