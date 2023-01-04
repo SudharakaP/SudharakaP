@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is the intelligence Agency telephone number in Iran.
+172000 is tons of chocolate produced in Belgium in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
