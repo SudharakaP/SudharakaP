@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5500000000000000 is the number of estimated ants on Earth alive at any one time.
+150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
