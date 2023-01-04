@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-267 is the number of groups of order 64.
+177 is the all-time titles record held by Tennis Hall of Famer Martina Navratilova.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
