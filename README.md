@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
+135 is the angle between two planets in degrees so that they are in an astrological aspect called a sesquiquadrate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
