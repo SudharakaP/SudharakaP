@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the percentage of employees in the USA who eat lunch and work at the same time.
+3 is the cost in cents to make a $1 bill in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
