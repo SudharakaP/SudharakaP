@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-33 is the temperature at which water boils according to the Newton scale.
+555 is the number of keyboard sonatas written by Domenico Scarlatti, according to the catalog by Ralph Kirkpatrick.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
