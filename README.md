@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the position that Tom Brady was picked in the 2000 NFL draft.
+451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
