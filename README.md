@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5200 is the number of standard size of a legion in the Roman Empire.
+39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
