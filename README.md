@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-98 is the highest jersey number allowed in the National Hockey League (as 99 was retired by the entire league to honor Wayne Gretzky).
+695 is the number of people dead in the single deadliest tornado in United States history (the F5 Tri-State Tornado in 1925).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
