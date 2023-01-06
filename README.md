@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10 is the highest score possible in Olympics gymnastics competitions.
+205 is the world speed record (mph) of a car on ice.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
