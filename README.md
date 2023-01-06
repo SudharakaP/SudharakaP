@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1982 is the average price for a major league baseball game ticket in 2004 in cents.
+998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
