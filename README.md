@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the number of men who signed the United States Declaration of Independence in 1776.
+135 is the angle between two planets in degrees so that they are in an astrological aspect called a sesquiquadrate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
