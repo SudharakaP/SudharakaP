@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the maximal number of horses in one row for carriage.
+44 is the percentage of kids who watch television before they go to sleep in the US.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
