@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is the intelligence Agency telephone number in Iran.
+195 is minuscule 195 is a Greek minuscule manuscript of the New Testament, on parchment.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
