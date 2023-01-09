@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-525 is the number of scan lines in the NTSC television standard.
+203 is the HTTP status code indicating partial information.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
