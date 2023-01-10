@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-239 is the atomic mass number of the most common isotope of plutonium.
+15 is the length in miles of a train of boxcars that can be filled from recycled paper in the USA every day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
