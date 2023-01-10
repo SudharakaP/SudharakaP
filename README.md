@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the lowest channel of television in the United States, Canada, Argentina and Mexico on which television signals are broadcast.
+171 is the record number of goals scored by France at the 1998 World Cup.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
