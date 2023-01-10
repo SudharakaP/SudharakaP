@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-179 is the rank of Guam in world population.
+119 is the default port for unencrypted NNTP connections.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
