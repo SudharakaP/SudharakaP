@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is the atomic number of unbioctium, an element yet to be discovered.
+3 is the number of notes in a triad, the basic form of any chord.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
