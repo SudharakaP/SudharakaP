@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the zero of the Celsius temperature scale (to the nearest whole number) in Kelvin.
+7e+27 is the number of atoms in the average human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
