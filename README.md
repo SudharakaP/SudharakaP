@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
+128 is the atomic number of unbioctium, an element yet to be discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
