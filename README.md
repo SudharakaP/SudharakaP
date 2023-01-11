@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is the number of keys on a piano (36 black and 52 white).
+334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
