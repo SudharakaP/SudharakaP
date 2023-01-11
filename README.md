@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the wing area of a Boeing 757 airplane in meters.
+63 is the number of groats in a guinea in British pre-decimal currency.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
