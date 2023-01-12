@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is hours in a week.
+89 is the atomic number of actinium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
