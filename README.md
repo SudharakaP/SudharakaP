@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
+101 is the number identifying number of several infantry units in various militaries across the world, such as the American and Israeli paratrooper brigades.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
