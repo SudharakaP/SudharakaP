@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the feet that three-time Olympic gold medalist John Flanagan achieved in the hammer throw in 1904 (168 feet, 1 inch).
+133 is the number of career touchdowns from 1983 - 1996 of Canadian Football League quarterback Danny Barrett.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
