@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the number of passengers aboard TAM Airlines Flight 3054 which crashed upon landing in SÃ£o Paulo on July 17, 2007.
+146 is the Guinness World Record for the most languages a poem was recited in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
