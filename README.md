@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the holy number of Discordianism, as dictated by the Law of Fives.
+4.52e+46 is the upper bound for the number of legal chess positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
