@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-900000000 is the approximate number of trees cut down in a year to make the raw materials for US pulp mills and paper.
+1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
