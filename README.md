@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the customary number of hours in a regular workweek in some Western countries.
+4200 is the number of standard size of a legion in the Roman Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
