@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-235 is the atomic mass number of an important isotope of the element uranium, the fissile isotope which is used as the fuel for nuclear reactors and in some nuclear weapons.
+177 is the second highest possible score in darts that can be obtained by throwing three darts in a single visit to the oche.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
