@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the height in feet of The Oak Island Lighthouse on Oak Island, North Carolina.
+197 is the rank of the Solomon Islands in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
