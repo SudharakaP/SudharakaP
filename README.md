@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the second highest possible score in darts that can be obtained by throwing three darts in a single visit to the oche.
+166 is the number of Warner Bros. cartoons Bugs Bunny starred in from 1940 to 1964.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
