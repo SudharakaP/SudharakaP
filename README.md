@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110000 is the average number of hairs that people with black hair have.
+25 is the number of points needed to win a set in volleyball under rally scoring rules.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
