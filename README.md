@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
