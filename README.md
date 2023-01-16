@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-107 is the number of Nobel Prize in Literature laureates.
+32 is the number of teeth of a full set of teeth in an adult human, including wisdom teeth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
