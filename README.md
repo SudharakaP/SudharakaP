@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+181 is the number of athletes from Belarus competed in 28 events at the 2008 Olympics in Beijing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
