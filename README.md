@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25 is the minimum age of candidates for election to the United States House of Representatives.
+159 is the number of counties in the state of Georgia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
