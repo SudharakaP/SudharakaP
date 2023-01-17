@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the number of museums in Amsterdam (Netherlands has the highest concentration of museums in the world).
+28 is the number of letters in the Danish and Swedish alphabets (not counting W), and also in the Arabic and Esperanto alphabets.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
