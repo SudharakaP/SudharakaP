@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
+97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
