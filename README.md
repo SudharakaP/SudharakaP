@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
+166 is the number of points the Dow Jones Industrials fell on June 24, 2005.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
