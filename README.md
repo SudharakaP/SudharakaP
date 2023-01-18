@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-146 is the Guinness World Record for the most languages a poem was recited in.
+110 is the age a person must attain in order to be considered a supercentenarian.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
