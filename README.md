@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-164 is the number of home runs the Baltimore Orioles hit in 2006.
+17 is the number of the raka'ahs that Muslims perform during Salah on a daily basis.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
