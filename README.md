@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-54 is the number of cards in a deck of playing cards, if two jokers are included.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
