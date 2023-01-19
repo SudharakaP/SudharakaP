@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-59 is the number corresponding to the last minute in a given hour.
+156 is the number of strikes a clock will strike in the course of a day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
