@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
+562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
