@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40000000 is the number of times lightning hits the ground 40 million times a year in the United States.
+98 is the highest jersey number allowed in the National Hockey League (as 99 was retired by the entire league to honor Wayne Gretzky).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
