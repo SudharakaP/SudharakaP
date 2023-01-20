@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-145 is the atomic number of Unquadpentium.
+441 is the number of squares on a Super Scrabble board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
