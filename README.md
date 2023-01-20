@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-61 is the code for international direct dial phone calls to Australia.
+106 is the maximum number of characters filenames can have in Joliet, an extension to the ISO 9660 file system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
