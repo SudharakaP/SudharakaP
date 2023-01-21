@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-84 is the code for international direct dial phone calls to Vietnam.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
