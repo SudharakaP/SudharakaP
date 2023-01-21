@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is days between the spring and fall equinoxes.
+83 is the atomic number of bismuth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
