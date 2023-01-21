@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
+11 is the number of points on the stylized maple leaf on the Flag of Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
