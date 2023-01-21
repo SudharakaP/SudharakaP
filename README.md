@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the standard size of drum in US gallons.
+143 is the number of milligrams of caffeine in AMP Energy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
