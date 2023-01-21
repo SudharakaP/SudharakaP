@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-140 is liters of water needed to produce 1 cup of coffee.
+3 is the cost in cents to make a $1 bill in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
