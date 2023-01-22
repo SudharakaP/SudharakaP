@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the number of athletes that Canada had in 15 sports at the 2006 Winter Olympics.
+100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
