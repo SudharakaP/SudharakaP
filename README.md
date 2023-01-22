@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-343 is the number of frames in which U.S. President John F. Kennedy's presidential limousine can be seen in the Zapruder film.
+36 is the number of vehicles that run in each race of NASCAR's Camping World Truck Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
