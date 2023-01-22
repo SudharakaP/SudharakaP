@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the number of games pitched by MLB pitcher Art Herring from 1929-1947.
+213 is the name of a hip hop, active 1990-2004.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
