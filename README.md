@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-129 is the atomic number of Unbiennium, an element yet to be discovered.
+214 is the first area code of metropolitan Dallas, Texas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
