@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10 is the number of kingdoms in Five Dynasties and Ten Kingdoms Period.
+11 is the number of incarnations of The Doctor in BBC sci-fi series Doctor Who.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
