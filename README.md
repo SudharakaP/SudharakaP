@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the population of Woodstock, Newfoundland and Labrador, Newfoundland and Labrador Canada according to the 2006 Census.
+80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
