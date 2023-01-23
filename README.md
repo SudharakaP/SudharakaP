@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
+144 is the Intel 8086 instruction for no operation (NOP).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
