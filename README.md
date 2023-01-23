@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is a number believed to be a magic number in nuclear physics.
+75 is the age limit for Canadian senators.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
