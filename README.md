@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64 is the number of classical arts listed in many Indian scriptures.
+120 is the number of days of the average life span of a single red blood cell.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
