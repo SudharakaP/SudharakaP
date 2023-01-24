@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64 is number of golden disks in the myth of the Tower of Hanoi.
+172000 is tons of chocolate produced in Belgium in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
