@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-153 is the frequency in kHz of of the longwave transmitters Donebach, Ingøy, Braşov, and Kenadsa.
+123 is the atomic number of the yet-to-be-discovered element unbitrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
