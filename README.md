@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-104 is the number of Corinthian columns in the Temple of Olympian Zeus, the largest temple ever built in Greece.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
