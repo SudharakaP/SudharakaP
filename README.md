@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the maximum speed of analog data transmission over a POTS in the 20th century measured in kbit/s.
+204 is the HTTP status code indicating the request was received but there is no response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
