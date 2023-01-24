@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
+304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
