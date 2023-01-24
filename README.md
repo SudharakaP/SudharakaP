@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3 is the minimum odd number of voting components for simple easy redundancy checks by direct comparison.
+626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
