@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is the pounds of oxygen that the adult human body requires daily.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
