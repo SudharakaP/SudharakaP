@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-248 is the number of organs in the human body as traditionally depicted.
+70 is the number of years of marriage until the platinum wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
