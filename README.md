@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the element with the highest number of protons yet discovered, Ununquadium with the highest number.
+28 is the number of a car formerly run in the NASCAR Sprint Cup Series by Yates Racing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
