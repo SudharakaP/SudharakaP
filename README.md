@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+11 is the possible age of the youngest elected pope, Benedict IX.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
