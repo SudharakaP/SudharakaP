@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-63 is the atomic number of europium.
+192 is the number of days it took to form the 2007 Belgian government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
