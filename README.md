@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
+40 is the number of years of marriage as the ruby wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
