@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the number of days it took to form the 2007 Belgian government.
+63 is the number of groats in a guinea in British pre-decimal currency.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
