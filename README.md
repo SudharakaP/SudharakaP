@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-83 is the atomic number of bismuth.
+108 is the number of cards in a deck of UNO cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
