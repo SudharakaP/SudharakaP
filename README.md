@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-227 is the highest score ever in the Eurovision Song Contest, achieved by Katrina and the Waves of the UK in 1997, before the Semi-final system was introduced in 2004.
+158 is the number of international goals scored by Mia Hamm for the USA women's team, an all-time record for either sex in soccer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
