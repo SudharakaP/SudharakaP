@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-496 is what the dimension of the gauge group must be for a superstring theory to make sense.
+110 is a common name for mains electricity in North America, despite the nominal voltage actually being 120V (range 110-120).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
