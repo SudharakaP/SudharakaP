@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-98 is the temperature (F) of the normal body.
+239 is the number of chapters in the Book of Mormon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
