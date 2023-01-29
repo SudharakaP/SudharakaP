@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the minimum age of candidates for election to the United States Presidency.
+12 is the pairs of ribs normally in the human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
