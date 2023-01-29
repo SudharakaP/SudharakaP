@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is the estimated number of ATP molecules produced by one molecule of fatty acid, for the mixture that comprises human adipose tissue.
+80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
