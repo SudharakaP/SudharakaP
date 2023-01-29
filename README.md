@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-125 is the atomic number of the yet-to-be-discovered element Unbipentium.
+64 is the total number of black and white squares on the game board in chess or draughts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
