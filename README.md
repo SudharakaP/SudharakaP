@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
+231 is the number of cubic inches in a U.S. liquid gallon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
