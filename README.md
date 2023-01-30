@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1096000000 is the population of India in 2007.
+182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
