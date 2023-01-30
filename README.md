@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6000000 is the number of parts in the Boeing 747-400.
+33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
