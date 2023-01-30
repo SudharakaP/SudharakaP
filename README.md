@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the length in miles of The Wild West Relay team running relay race held annually in August in Colorado.
+75 is the age in years that the Saguaro Cactus, found in southwestern US, must be to grow branches.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
