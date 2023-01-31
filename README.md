@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
+16 is the number of teams that qualified for the finals of the FIFA World Cup from 1934 through 1978 (although for various reasons, only 15 competed in the 1938 and 1950 finals).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
