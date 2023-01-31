@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the number of Oscar nominations of actress Meryl Streep, who holds the record for the most Oscar nominated actress.
+384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
