@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-208 is the heaviest stable isotope of any element (lead).
+135 is the angle between two planets in degrees so that they are in an astrological aspect called a sesquiquadrate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
