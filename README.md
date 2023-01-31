@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
+101 is a number used to define the number of keys on a computer keyboard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
