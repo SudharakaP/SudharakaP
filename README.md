@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-225 is the longest distance in miles a deepwater lobster has been recorded to travel.
+81 is the number of prayers said in the Rosary in each night.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
