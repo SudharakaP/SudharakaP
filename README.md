@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-470 is the minimum length in yards from the tee to the hole on a Par 5.
+166 is the number of cartoons that Bugs Bunny starred in Warner Bros. from 1940 to 1964.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
