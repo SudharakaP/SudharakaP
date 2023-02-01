@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-92 is the number of letters in the longest place name: Taumatawhakatangihangakoauauotamateaurehaeaturipukakapikimaungahoronukupokaiwhenuakitanatahu.
+108 is the name of a community of and for open source developers, created by Red Hat.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
