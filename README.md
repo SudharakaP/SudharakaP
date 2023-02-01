@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-229 is the lowest individual batting score not achieved by any player in test match cricket.
+295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
