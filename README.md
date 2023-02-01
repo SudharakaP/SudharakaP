@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the temperature in Fahrenheit of milk when it leaves the body of a cow.
+210 is the world speed record (km/h) for a mountain bike on a ski slope.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
