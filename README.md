@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-208 is the area code for the US state of Idaho.
+280000000000000 is the number of possible unique physical addresses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
