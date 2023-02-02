@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-176 is the rank of Rocks (1976) by Aerosmith on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
+120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
