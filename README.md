@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the number of appendages on most starfish, which exhibit pentamerism.
+110 is the TCP port used for POP3 email protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
