@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1600000 is the number of people employed by the Indian railway system in India.
+64 is the total number of black and white squares on the game board in chess or draughts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
