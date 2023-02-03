@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the height in feet that Buddha Dordenma, a Shakyamuni Buddha statue under construction in the mountains of Bhutan, once completed, would be.
+123 is the atomic number of the yet-to-be-discovered element unbitrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
