@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
+10000 is the number of other neurons each neuron is connected to in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
