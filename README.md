@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-214 is the SMTP status code for help message.
+5000 is the number of base pairs in the DNA of the simplest viruses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
