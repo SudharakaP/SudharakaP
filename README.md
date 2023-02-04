@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
+46 is the number of slices of pizza an average American kid eats in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
