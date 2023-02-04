@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is the number of pence in a pound in the British currency until 1971.
+153 is the code for malignant neoplasm of the colon in the International Statistical Classification of Diseases and Related Health Problems.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
