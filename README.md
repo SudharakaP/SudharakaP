@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-493 is the number of Pokémon species, from the first set through the fourth generation as of August 2009.
+31 is the number of musical triads (12 major, 12 minor, 4 diminished, and 3 augmented).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
