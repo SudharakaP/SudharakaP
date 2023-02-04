@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-153 is the code for malignant neoplasm of the colon in the International Statistical Classification of Diseases and Related Health Problems.
+194 is the number of episodes of I Love Lucy that ran on CBS from 1951 to 1960.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
