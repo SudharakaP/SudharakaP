@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16 is the number of teams that qualified for the finals of the FIFA World Cup from 1934 through 1978 (although for various reasons, only 15 competed in the 1938 and 1950 finals).
+91 is the amount of money one has if one has one coin of each U.S. denomination less than a dollar (penny, nickel, dime, quarter, half dollar) in cents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
