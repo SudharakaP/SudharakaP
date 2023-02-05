@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5600 is the number of metres above sea level of the highest bridge in the world, located in the Himalayan mountains.
+8674 is the number of unique words in the Hebrew Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
