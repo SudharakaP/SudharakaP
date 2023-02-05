@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17 is the minimum driving age for a car or van in the United Kingdom.
+208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
