@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-239 is the atomic mass number of the most common isotope of plutonium.
+167 is the number of tennis titles Martina Navratilova has, an all-time record for men or women.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
