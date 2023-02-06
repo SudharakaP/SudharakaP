@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
+8e+120 is the ratio of the mass-energy in the observable universe to the energy of a photon with a wavelength the size of the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
