@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
+16 is the number of personality types in the Myers-Briggs classification system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
