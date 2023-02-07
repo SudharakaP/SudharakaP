@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-23 is the number of times Julius Caesar was stabbed.
+53 is the maximum number of players on a National Football League roster.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
