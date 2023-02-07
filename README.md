@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-800000000 is the number of active users on Facebook as of December 2011.
+94 is the length of an NBA court in feet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
