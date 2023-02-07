@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-211 is the SMTP status code system status.
+0 is the atomic number of the theoretical element tetraneutron.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
