@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-270 is the average number of days in human pregnancy.
+7 is the number of SI base units.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
