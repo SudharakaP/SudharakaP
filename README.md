@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1982 is the average price for a major league baseball game ticket in 2004 in cents.
+55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
