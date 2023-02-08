@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1982 is the average price for a major league baseball game ticket in 2004 in cents.
+65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
