@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the fire emergency telephone number in Austria.
+211 is the SMTP status code system status.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
