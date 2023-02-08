@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is a weight class in collegiate wrestling, 184 lb (83 kg).
+79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
