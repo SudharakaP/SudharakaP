@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8e+120 is the ratio of the mass-energy in the observable universe to the energy of a photon with a wavelength the size of the observable universe.
+5 is the holy number of Discordianism, as dictated by the Law of Fives.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
