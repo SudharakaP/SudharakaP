@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-255 is the largest values that can be assigned to elements in the 24-bit RGB color model, since each color channel is allotted eight bits.
+116 is the number of years that the Hundred Years' War between France and England, from 1337 to 1453, actually lasted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
