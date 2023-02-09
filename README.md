@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-720 is five gross (= 500 duodecimal, 5 × 144).
+97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
