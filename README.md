@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-124 is the rank of the Palestinian territories in world population.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
