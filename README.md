@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-229 is the lowest individual batting score not achieved by any player in test match cricket.
+243 is the number of Earth Days for the planet Venus to complete one Venetian day, one revolution.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
