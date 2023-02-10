@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-68 is the ideal temperature (F) for developing black-and-white film.
+36 is the perfect score on the ACT.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
