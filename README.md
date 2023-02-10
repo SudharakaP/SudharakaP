@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the Exit status indicated by Mac App Store software when receipt validation fails.
+45000000000 is the number of galaxies in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
