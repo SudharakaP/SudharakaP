@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-174 is the populatiokn of Aupaluk, Quebec (as of 2006).
+138 is the number of constellations of the Triakis tetrahedron.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
