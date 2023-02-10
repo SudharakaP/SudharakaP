@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
+451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
