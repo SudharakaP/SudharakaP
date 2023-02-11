@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the percentage volume expansion of freezing water.
+65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
