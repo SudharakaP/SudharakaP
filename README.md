@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-99 is a common price ending in psychological pricing.
+202 is the area code assigned to Washington D.C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
