@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45000000000 is the number of galaxies in the observable universe.
+72 is the number of names of God, according to Kabbalah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
