@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the elevation of Borgarvirki, in the north of Iceland, in meteres above sea level.
+96 is the rating of Skyrim on metacritic.com.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
