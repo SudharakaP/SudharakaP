@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the police emergency telephone number in Egypt.
+7 is the number of types of viruses according to the Baltimore classification.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
