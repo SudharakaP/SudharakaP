@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the number of episodes that Woody Harrelson appeared as Woody Boyd in Cheers (of 273 episodes) between 1985-1993.
+164 is the number of episodes that the TV show Mad About You ran on NBC from 1992 to 1999.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
