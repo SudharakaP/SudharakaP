@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-86 is the device number for a lockout relay function in electrical circuit protection schemes.
+267 is the number of groups of order 64.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
