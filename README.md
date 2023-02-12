@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
+181 is the number of 181 colleges, universities and other higher education institutions in Texas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
