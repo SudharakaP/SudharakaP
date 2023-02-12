@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-336 is the number of dimples on an American golf ball.
+150 is years in a sesquicentennial.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
