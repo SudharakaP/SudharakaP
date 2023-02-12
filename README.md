@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the estimation of the game-tree complexity in the game of Go.
+153 is the code for "mental processes & intelligence" in the Dewey Decimal Classification.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
