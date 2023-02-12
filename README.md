@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
+3 is the number of sets needed to be won to win the whole match in volleyball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
