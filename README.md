@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the total number of national football associations of UEFA.
+35 is the minimum age of candidates for election to the United States Presidency.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
