@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1600000 is the number of people employed by the Indian railway system in India.
+2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
