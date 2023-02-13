@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the number of polynucleotide strands in a DNA double helix.
+364 is the total number of gifts received in the song "The Twelve Days of Christmas".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
