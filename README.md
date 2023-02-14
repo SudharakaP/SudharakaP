@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
+111 is the number occasionally referred to as "eleventy-one", as read in The Fellowship of the Ring by J.R.R.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
