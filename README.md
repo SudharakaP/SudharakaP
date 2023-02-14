@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1982 is the average price for a major league baseball game ticket in 2004 in cents.
+221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
