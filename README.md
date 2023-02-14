@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16 is the number of teams that qualified for the finals of the FIFA World Cup from 1934 through 1978 (although for various reasons, only 15 competed in the 1938 and 1950 finals).
+26 is the number of red cards as well as the number of blue cards in a normal deck of cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
