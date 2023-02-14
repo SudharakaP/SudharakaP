@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-70 is the number of years of marriage until the platinum wedding anniversary.
+6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
