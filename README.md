@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-69 is the number Bill and Ted were thinking of when talking to their future selves.
+536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
