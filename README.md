@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-206 is the number of bones in the typical adult human body.
+53 is the number of bytes in an Asynchronous Transfer Mode packet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
