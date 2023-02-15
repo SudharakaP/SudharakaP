@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the rank of Maldives in world population.
+172 is the temperature in Farenheit at which alcohol boils.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
