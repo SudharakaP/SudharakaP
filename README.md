@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3825000 is the number of entries on Wikipedia in the English language.
+173 is the rank of Maldives in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
