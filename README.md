@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-163 is the atomic number of an element temporarily called Unhextrium.
+142600 is tonnes of gold mined in the world by the end of 2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
