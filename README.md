@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-37 is the normal human body temperature in degrees Celsius.
+203 is the HTTP status code indicating partial information.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
