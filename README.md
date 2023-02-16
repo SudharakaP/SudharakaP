@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17 is the minimum driving age for a car or van in the United Kingdom.
+56 is the number of officially recognized ethnic groups in the list of ethnic groups in China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
