@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the number of seconds in American composer John Cage's piano composition 4'33" of silence, in three movements.
+2055001 is the number of people employed by Wal-mart in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
