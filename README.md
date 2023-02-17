@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-146 is the Guinness World Record for the most languages a poem was recited in.
+5 is the number of appendages on most starfish, which exhibit pentamerism.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
