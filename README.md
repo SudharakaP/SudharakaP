@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
+155 is the maximum possible score in a single break in snooker, with a free ball at the start of the break (147 is the highest possible without a free ball).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
