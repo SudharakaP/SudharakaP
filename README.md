@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-158 is the number of verses of the national anthem of Greece.
+712 is the largest known number such that it and its 8th power have no common digits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
