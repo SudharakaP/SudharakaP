@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-118 is the number of decibels of the loudest burp, held by record-holder Paul Hunn, which is as loud as a chainsaw.
+180 is the maximum possible score in one turn at darts (three triple 20s).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
