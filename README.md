@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-210 is the world speed record (km/h) for a mountain bike on a ski slope.
+50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
