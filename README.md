@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
+181 is the number of athletes from Belarus competed in 28 events at the 2008 Olympics in Beijing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
