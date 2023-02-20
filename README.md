@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-285 is the total number of Rules of Acquisition in Star Trek.
+Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
