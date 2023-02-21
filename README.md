@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
+490 is the number of Pokémon available as of the release of Pokémon Diamond and Pearl (excluding event Pokémon).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
