@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the first number of an automatic IPv4 address assigned by TCP/IP when no external networking device is contactable.
+139 is the number of episodes of the TV series CHiPs that ran on NBC from 1977 to 1983.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
