@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
+35 is the basic film gauge in mm most commonly used for both analog photography and motion pictures.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
