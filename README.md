@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the number of episodes that the Flintstones ran on ABC from 1960 to 1966.
+101 is the temperature in Fahrenheit of milk when it leaves the body of a cow.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
