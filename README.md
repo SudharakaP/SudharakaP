@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-150000000 is the number of items held in the British Library.
+24 is the number of points on a backgammon board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
