@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is minuscule 195 is a Greek minuscule manuscript of the New Testament, on parchment.
+57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
