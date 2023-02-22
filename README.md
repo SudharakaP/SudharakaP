@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the number of hours in a week, or 7 x 24 hours.
+210 is the world speed record (km/h) for a mountain bike on a ski slope.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
