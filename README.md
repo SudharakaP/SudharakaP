@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-171 is the rank of Bahamas in world population.
+100 is the number of common administrative grouping unit of homesteads in Northern Europe and Great Britain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
