@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110000 is the average number of hairs that people with black hair have.
+1000 is the number of elephants it took to bring in the material to build the Taj Mahal from various parts of India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
