@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-103 is the atomic number of lawrencium, an actinide.
+490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
