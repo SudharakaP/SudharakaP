@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3 is number of performers in a trio.
+51 is the atomic number of antimony.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
