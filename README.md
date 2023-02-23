@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2500 is the number of letters on a typical typed page of text.
+300 is the number of bones humans are born with in their body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
