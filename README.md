@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-24 is the number of hours it takes for the human body to make 1 to 3 pints of saliva.
+1631 is two London bible printers accidentally left "not" out of the 7th commandment, which then read "Thou shalt commit adultery.".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
