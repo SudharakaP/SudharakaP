@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-118 is the number of ridges a U.S. dime has around its edge.
+714 is the number of home runs Babe Ruth scored in his career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
