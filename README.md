@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4200 is the number of standard size of a legion in the Roman Republic.
+216 is the number of colors formed by a 6 color cube, sometimes known as the web-safe color palette.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
