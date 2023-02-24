@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
+176 is the number of verses in the longest chapter, the Psalm 119 of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
