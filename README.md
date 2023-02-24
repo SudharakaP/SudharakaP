@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-212 is the boiling point of water at sea level in Fahrenheit degrees.
+300 is the approximate number of Spartans who fought to death at the Battle of Thermopylae.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
