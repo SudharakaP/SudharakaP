@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-800000000 is the number of active users on Facebook as of December 2011.
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
