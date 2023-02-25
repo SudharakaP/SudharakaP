@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the approximate number of eyes a scallop has around the edge of its shell.
+70 is the number of years of marriage until the platinum wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
