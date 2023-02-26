@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-0 is the coldest possible temperature old the Kelvin scale.
+61 is the code for international direct dial phone calls to Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
