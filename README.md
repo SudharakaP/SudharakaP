@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the number of times an average person laughs a day.
+4 is the number of completed, numbered symphonies by Johannes Brahms.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
