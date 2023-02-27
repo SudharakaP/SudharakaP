@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
+384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
