@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-81 is the number of squares on a shogi playing board.
+15 is the number of times an average person laughs a day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
