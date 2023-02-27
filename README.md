@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the traffic emergency telephone number in China.
+78 is the total number of gifts in the song The Twelve Days of Christmas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
