@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-118 is the number of decibels of the loudest burp, held by record-holder Paul Hunn, which is as loud as a chainsaw.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
