@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+139 is the number of episodes of the TV series CHiPs that ran on NBC from 1977 to 1983.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
