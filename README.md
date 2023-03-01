@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the sum of the codes of the letters in the words "BIG BANG" using the encoding A=1, B=2, C=3, etc.
+180 is a number that in an astrological aspect is considered to be negative in influence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
