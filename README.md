@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-124 is the rank of the Palestinian territories in world population.
+360 is the number of degrees in a circle for the purpose of angular measurement.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
