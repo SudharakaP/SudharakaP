@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the length (years) of the Eighty Years' War (1568–1648).
+41 is the number of times Paul McCartney sings the phrase "Let It Be" in the Beatles' hit Let It Be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
