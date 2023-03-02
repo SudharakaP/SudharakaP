@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
