@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-70 is the distance (meter) from archer to targets in Olympic Archery.
+32 is the number of completed, numbered piano sonatas by Ludwig van Beethoven.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
