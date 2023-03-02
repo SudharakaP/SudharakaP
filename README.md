@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
+166 is the number of films that Actress Margaret Joslin appeared in between 1910 and 1923.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
