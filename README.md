@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64 is the total number of black and white squares on the game board in chess or draughts.
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
