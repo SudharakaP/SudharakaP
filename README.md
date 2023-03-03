@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-99 is the number of names of Allah, the names or attributes of God in the Qur'an.
+998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
