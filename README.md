@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the rank of SÃ£o TomÃ© and PrÃ­ncipe in world population.
+1 is the loneliest number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
