@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-70 is the distance (meter) from archer to targets in Olympic Archery.
+72 is the record number of victories in an NBA season (1995-96 Chicago Bulls).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
