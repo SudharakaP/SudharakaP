@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
+182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
