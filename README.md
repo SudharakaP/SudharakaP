@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
+273 is the number of seconds in American composer John Cage's piano composition 4'33" of silence, in three movements.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
