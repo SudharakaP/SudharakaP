@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the number of points by Mario Lemieux in the 1988-1989 NHL season.
+29 is the number of letters in the Turkish,Finnish, Swedish,Faroese,Danish and Norwegianalphabets.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
