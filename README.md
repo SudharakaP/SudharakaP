@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
+136 is the lower frequency band in kHz that amateur radio operators are allowed to transmit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
