@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-68 is the ideal temperature (F) for developing black-and-white film.
+95 is the atomic number of americium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
