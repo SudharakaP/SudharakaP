@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
+25 is the minimum age of candidates for election to the United States House of Representatives.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
