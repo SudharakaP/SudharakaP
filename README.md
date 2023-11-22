@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the cartridge version of 35mm photographic film, used widely in still photogaphy.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
