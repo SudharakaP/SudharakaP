@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-538 is the total number of votes in the Electoral College of the United States.
+14 is the earliest age that the emancipation of minors can occur in the U.S.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
