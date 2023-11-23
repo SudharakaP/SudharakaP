@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-119 is the default port for unencrypted NNTP connections.
+214 is the SMTP status code for help message.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
