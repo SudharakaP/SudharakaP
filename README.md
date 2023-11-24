@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
+180 is the number of Death in the In the Final Destination series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
