@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4200 is the number of standard size of a legion in the Roman Republic.
+7 is the maximum number of times a letter-sized paper can be folded in half.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
