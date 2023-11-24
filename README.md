@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-153 is the ordinal number of the coat of arms of Komi Republic in the State Heraldic Register of the Russian Federation.
+61 is the code for international direct dial phone calls to Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
