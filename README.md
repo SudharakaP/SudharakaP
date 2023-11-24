@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-75 is the age limit for Canadian senators.
+15 is the legal age for sexual intercourse in many countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
