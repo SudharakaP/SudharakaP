@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is the number of Death in the In the Final Destination series.
+4294967296 is the number of bytes in 4 gibibytes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
