@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-66 is the number of hot dogs eaten by World record holder Joey Chestnut in 15 minutes.
+613 is a significant number in Judaism, as its metaphysics, the Kabbalah, views every full entity as divisible into 613 parts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
