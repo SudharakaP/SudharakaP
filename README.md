@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-104 is the atomic number of rutherfordium.
+13 is the speed of rush hour traffic on average in kilometres per hour in London.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
