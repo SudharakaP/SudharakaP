@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the height in feet that stalks of sugar cane can reach up to.
+51 is the atomic number of antimony.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
