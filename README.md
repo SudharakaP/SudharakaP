@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
+2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
