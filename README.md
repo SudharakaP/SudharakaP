@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
+13 is the number of loaves in a "baker's dozen".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
