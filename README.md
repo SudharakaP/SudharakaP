@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
+63 is the number of groats in a guinea in British pre-decimal currency.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
