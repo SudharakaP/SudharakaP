@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the possible age of the youngest elected pope, Benedict IX.
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
