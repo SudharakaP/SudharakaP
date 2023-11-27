@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3500000000000 is the estimated population of fish in the ocean.
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
