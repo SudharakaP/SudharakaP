@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the number of days taken to create the world by Yahweh in the Old Testament Book of Genesis, and the number of the day on which humankind were created.
+613 is a significant number in Judaism, as its metaphysics, the Kabbalah, views every full entity as divisible into 613 parts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
