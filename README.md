@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
+106 is the number of surat Quraysh in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
