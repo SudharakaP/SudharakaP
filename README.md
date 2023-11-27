@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the atomic number of a recently discovered element temporarily called ununseptium.
+14 is the number of pieces the body of Osiris was torn into by his fratricidal brother Set.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
