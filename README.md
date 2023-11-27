@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is the atomic number of unbioctium, an element yet to be discovered.
+7 is the number of colors of the rainbow.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
