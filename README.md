@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1311000000 is the population of the People's Republic of China in 2007.
+50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
