@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1 is the loneliest number.
+129 is the rank of Liberia in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
