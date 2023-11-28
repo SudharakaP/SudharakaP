@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
+256 is the number of NFL regular season football games.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
