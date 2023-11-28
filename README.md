@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6800 is the approximate number of languages in the world.
+45 is the sapphire wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
