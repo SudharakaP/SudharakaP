@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4294967296 is the number of bytes in 4 gibibytes.
+184 is a weight class in collegiate wrestling, 184 lb (83 kg).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
