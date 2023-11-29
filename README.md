@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-23 is the number of chromosomes normal human sex cells have.
+11 is the number of players in a field hockey team.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
