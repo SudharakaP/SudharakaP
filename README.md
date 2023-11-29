@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188 is the rank of Tonga in world population.
+15 is the number of minutes in one quarter of an hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
