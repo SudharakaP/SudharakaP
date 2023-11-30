@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-714 is the number of home runs Babe Ruth scored in his career.
+693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
