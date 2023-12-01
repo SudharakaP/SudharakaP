@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8674 is the number of unique words in the Hebrew Bible.
+181 is the rank of SÃ£o TomÃ© and PrÃ­ncipe in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
