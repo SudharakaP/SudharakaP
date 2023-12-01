@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
+157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
