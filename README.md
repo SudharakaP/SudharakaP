@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
+8 is the number of legs that arachnids have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
