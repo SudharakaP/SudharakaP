@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-280000000000000 is the number of possible unique physical addresses.
+61 is the code for international direct dial phone calls to Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
