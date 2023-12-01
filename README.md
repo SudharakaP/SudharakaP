@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the wing area of a Boeing 757 airplane in meters.
+199 is the number of goals scored by Randy Burridge in his NHL career between 1985-1998.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
