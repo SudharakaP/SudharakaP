@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-105 is the number of surat al-Fil in the Qur'an.
+6000000 is the number of parts in the Boeing 747-400.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
