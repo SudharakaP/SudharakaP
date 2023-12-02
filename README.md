@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
+22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
