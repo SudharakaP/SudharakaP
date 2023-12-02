@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-71 is the atomic number of lutetium.
+193 is species of monkeys and apes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
