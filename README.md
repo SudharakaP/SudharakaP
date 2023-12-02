@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1600000 is the number of people employed by the Indian railway system in India.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
