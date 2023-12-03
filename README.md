@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7e+27 is the number of atoms in the average human body.
+80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
