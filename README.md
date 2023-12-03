@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the maximum number of facial muscles a smile can require.
+33 is the temperature at which water boils according to the Newton scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
