@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000000000 is the number of neurons in the human brain.
+26 is the number of bones in the normal human foot and ankle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
