@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-31 is the number of musical triads (12 major, 12 minor, 4 diminished, and 3 augmented).
+14 is the number of pounds in a stone in traditional British units of weight.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
