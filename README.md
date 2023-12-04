@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-191 is the number of episodes for the different regions in the PokÃ©mon anime.
+113 is a number considred unlucky in enduro, given to a race entrant and is colloquially known as a "blind pew".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
