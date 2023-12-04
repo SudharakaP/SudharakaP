@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45000000000 is the approximate number of fat cells in an average adult.
+56 is the number of Aubrey Holes in the first stage of Stonehenge.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
