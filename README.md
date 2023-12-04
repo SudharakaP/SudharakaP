@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the percentage of all bingo players are under the age of 35.
+70 is the distance (meter) from archer to targets in Olympic Archery.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
