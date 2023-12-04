@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
+63 is the number of chromosomes found in the offspring of a donkey and a horse.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
