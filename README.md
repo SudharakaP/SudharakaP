@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-189 is the number of irregular verbs in the English language (from "abide" to "write").
+40 is the number of weeks for an average term of pregnancy, counting from the woman’s last menstrual period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
