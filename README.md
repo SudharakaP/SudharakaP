@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-749 is the pounds of paper products used by an American individual annually on average.
+120 is the max number of shine sprites in Super Mario Sunshine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
