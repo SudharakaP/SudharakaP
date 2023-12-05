@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
+1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
