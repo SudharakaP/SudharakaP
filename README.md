@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is the TCP port used for POP3 email protocol.
+1000 is the number of words a picture is worth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
