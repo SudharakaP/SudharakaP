@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-210 is the world speed record (km/h) for a mountain bike on a ski slope.
+100 is the minimum distance in yards for a Par 3 on a golf course.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
