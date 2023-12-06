@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is liters of water needed to produce 1 glass of wine.
+28 is the number of days in the shortest month of the Gregorian calendar, February (except in leap years, when there are twenty-nine).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
