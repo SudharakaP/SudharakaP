@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-220 is the common voltage in many countries.
+28 is the number of days the curing time of concrete is classically considered to be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
