@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-139 is the number of episodes of the TV series Your Show of Shows that ran on NBC from 1950 to 1954.
+205 is the world speed record (mph) of a car on ice.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
