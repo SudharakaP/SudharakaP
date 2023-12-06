@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the rank of Bahamas in world population.
+99 is a common price ending in psychological pricing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
