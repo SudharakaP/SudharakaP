@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8e+120 is the ratio of the mass-energy in the observable universe to the energy of a photon with a wavelength the size of the observable universe.
+235 is the atomic mass number of an important isotope of the element uranium, the fissile isotope which is used as the fuel for nuclear reactors and in some nuclear weapons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
