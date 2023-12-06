@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-176 is the number of verses in the longest chapter, the Psalm 119 of the Bible.
+564000 is the number of words in War and Peace by Leo Tolstoy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
