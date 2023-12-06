@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
+153 is the code for malignant neoplasm of the colon in the International Statistical Classification of Diseases and Related Health Problems.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
