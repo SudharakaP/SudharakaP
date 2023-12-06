@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
+185 is the distance a single playing card was thrown in feet by Kevin St. Onge to set a Guinness World Record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
