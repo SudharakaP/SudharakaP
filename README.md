@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
+6 is the number of basic holes or keys on most woodwind instruments.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
