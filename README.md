@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
+139 is the number of episodes of the TV series Your Show of Shows that ran on NBC from 1950 to 1954.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
