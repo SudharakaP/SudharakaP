@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
