@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the single-season home run record in baseball set by Barry Bonds in 2001.
+334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
