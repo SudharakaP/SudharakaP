@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000 is the gallons of saliva an average human produces in a lifetime.
+23 is the number of times Julius Caesar was stabbed.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
