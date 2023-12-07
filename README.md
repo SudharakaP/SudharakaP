@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-57 is the number of cm that the smallest man measured, Gul Mohammed (1957-1997) of India.
+5600 is the number of metres above sea level of the highest bridge in the world, located in the Himalayan mountains.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
