@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-187 is a signature wrestling move by wrestler New Jack (diving elbow drop while holding a steel chair underneath his arm).
+67890 is the number of largest decimal places of π that have been recited from memory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
