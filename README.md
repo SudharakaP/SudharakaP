@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the lowest channel of television in the United States, Canada, Argentina and Mexico on which television signals are broadcast.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
