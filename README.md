@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1000000 is the number of people buried in Père Lachaise Cemetery, the most visited cemetary in the world, opened in 1804.
+6 is the standard length (year) of a term in office for a United States senator.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
