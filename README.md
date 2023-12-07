@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the fire emergency number in the Brazil.
+100 is the number of runs required for a cricket batsman to score a century, a significant milestone.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
