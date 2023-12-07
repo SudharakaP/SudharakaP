@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the percentage of employees in the USA who eat lunch and work at the same time.
+73 is the single-season home run record in baseball set by Barry Bonds in 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
