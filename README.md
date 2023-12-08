@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-99 is a common price ending in psychological pricing.
+90000 is the average number of hairs that redheads have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
