@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-156 is the number of episodes the TV series The West Wing ran on NBC from 1999 to 2006, including an extra episode.
+4 is the number of bits in a nibble, equivalent to half a byte.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
