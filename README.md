@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the lowest channel of television in the United States, Canada, Argentina and Mexico on which television signals are broadcast.
+167 is the branch spread in feet of Santa Barbara's Moreton Bay Fig Tree in Santa Barbara, California, which is believed to be the largest Ficus macrophylla in the United States).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
