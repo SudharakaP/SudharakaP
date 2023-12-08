@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
+20 is the number of questions in the popular party game Twenty Questions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
