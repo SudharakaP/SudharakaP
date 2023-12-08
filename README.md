@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-131 is the number serving a monkiker for Indie music.
+400000000000 is the number of stars in the Milky Way galaxy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
