@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-712 is the largest known number such that it and its 8th power have no common digits.
+99 is the highest jersey number allowed in most major league sports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
