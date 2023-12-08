@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-911 is the number of days after September 11th that the Madrid Attack took place.
+256 is the number of NFL regular season football games.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
