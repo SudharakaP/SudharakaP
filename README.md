@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1979 is a song by American alternative rock band The Smashing Pumpkins.
+53 is the port number of UDP and TCP for the Domain Name System protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
