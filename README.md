@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-850 is the maximum possible Fair Isaac credit score.
+174 is the rank of Zimbabwe in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
