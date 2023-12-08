@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
+33 is the temperature at which water boils according to the Newton scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
