@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-205 is the world speed record (mph) of a car on ice.
+11 is the approximate periodicity of a sunspot cycle in years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
