@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is number of performers in a trio.
+135 is the atomic number of an element temporarily called untriquadium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
