@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-125 is the atomic number of the yet-to-be-discovered element Unbipentium.
+144 is the Intel 8086 instruction for no operation (NOP).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
