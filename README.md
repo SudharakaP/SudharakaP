@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is number of performers in a trio.
+122 is the fire emergency telephone number in Austria.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
