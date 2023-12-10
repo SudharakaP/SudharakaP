@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the angle between two planets in degrees so that they are in an astrological aspect called a sesquiquadrate.
+181 is the rider number given to Lance Armstrong in 1999 when he won his first of seven Tour de France consecutive victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
