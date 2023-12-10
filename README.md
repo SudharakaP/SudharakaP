@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-37 is the number of plays William Shakespeare is thought to have written (counting Henry IV as three parts).
+154 is the period in days that the sun follows on gamma-ray flares.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
