@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
+169 is the height in feet of The Oak Island Lighthouse on Oak Island, North Carolina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
