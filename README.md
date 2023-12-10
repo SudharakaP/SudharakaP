@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-69 is the atomic number of thulium, a lanthanide.
+172000 is tons of chocolate produced in Belgium in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
