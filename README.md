@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is the rank of Faroe Islands (Denmark) in world population density.
+130 is the approximate maximum height in meters of trees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
