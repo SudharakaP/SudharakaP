@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-165 is the miles that twenty-mule teams, which were mules and horses attached to wagons, traveled from mines to the nearest railroad spur, 165 miles (275 km) away in Mojave, California.
+203 is the HTTP status code indicating partial information.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
