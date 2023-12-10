@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-493 is the number of bronze knuts equivalent to one gold galleon, in the monetary system of the world of Harry Potter.
+451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
