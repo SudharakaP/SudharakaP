@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-136 is the number of episodes of the TV series That Girl ran on ABC from 1966 to 1971.
+181 is the number of 181 colleges, universities and other higher education institutions in Texas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
