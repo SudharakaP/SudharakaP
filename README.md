@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is a percentage in the expression "To give 110%", meaning to give a little more effort than one's maximum effort.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
