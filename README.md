@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172000 is tons of chocolate produced in Belgium in a year.
+164 is the atomic number of an element temporarily called Unhexquadium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
