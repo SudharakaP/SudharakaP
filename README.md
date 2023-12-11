@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-177 is the rank of Netherlands Antilles in world population.
+189 is the atomic number of an element temporarily called Unoctennium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
