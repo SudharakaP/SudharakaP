@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-211 is the SMTP status code system status.
+167 is the number of volcanoes in Indonesia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
