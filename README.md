@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-99 is the highest jersey number allowed in most major league sports.
+94 is the length of an NBA court in feet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
