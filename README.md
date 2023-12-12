@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+21 is the number of grains of sand on all the world's beaches put together.
+180 is the maximum possible score in one turn at darts (three triple 20s).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
