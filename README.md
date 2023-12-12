@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-118 is the medical and Alpine rescue emergency telephone number in Italy.
+130 is the approximate maximum height in meters of trees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
