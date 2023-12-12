@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-400000 is the number of morphine addicts the Civil War produced.
+300 is the number of different beverages the Coca Cola company offers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
