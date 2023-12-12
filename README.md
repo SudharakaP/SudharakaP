@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
+149 is the number of legal proceedings against 149 communists in Estonia in 1924.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
