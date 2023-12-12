@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61 is the code for international direct dial phone calls to Australia.
+14500 is the number of unique English words occur in the King James Version of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
