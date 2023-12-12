@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5 is the number of Justices on the Supreme Court of the United States necessary to render a majority decision.
+3000 is the number of gowns Queen Elizabeth I of England owned when she died.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
