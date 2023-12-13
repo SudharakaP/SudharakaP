@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-365 is the number of solar days in the mean tropical year.
+650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
