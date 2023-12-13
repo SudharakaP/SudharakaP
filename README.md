@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1311000000 is the population of the People's Republic of China in 2007.
+177 is the all-time titles record held by Tennis Hall of Famer Martina Navratilova.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
