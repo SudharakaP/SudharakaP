@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-225 is the longest distance in miles a deepwater lobster has been recorded to travel.
+62 is the number which Sigmund Freud has an irrational fear of.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
