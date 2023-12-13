@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
+97 is the number of different characters that can be used with a standard English Keyboard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
