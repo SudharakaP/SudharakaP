@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100000 is the number of thunderstorms that occur in the USA every year, of which 10% are classified as severe.
+1631 is two London bible printers accidentally left "not" out of the 7th commandment, which then read "Thou shalt commit adultery.".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
