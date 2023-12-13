@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-39 is the duration, in nanoseconds, of the nuclear reaction in the largest nuclear explosion ever performed (Tsar bomb).
+930000 is the number of words in the King James Version of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
