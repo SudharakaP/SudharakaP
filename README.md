@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000000 is the approximate number of coconuts produced worldwide each year.
+3 is the minimum odd number of voting components for simple easy redundancy checks by direct comparison.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
