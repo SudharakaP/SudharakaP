@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-216 is the ISO's standard for paper sizes.
+6 is the number of feet below ground level a coffin is traditionally buried.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
