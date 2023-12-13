@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
+140 is liters of water needed to produce 1 cup of coffee.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
