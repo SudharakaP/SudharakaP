@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is the intelligence Agency telephone number in Iran.
+65 is the minimum grade required to pass an exam, or class, in many areas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
