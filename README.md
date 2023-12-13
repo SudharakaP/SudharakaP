@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the number of feet below ground level a coffin is traditionally buried.
+176 is the number of verses in the longest chapter, the Psalm 119 of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
