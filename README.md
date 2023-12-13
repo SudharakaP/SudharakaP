@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the number of chapter in the Quran, the holy book of Islam contains 114.
+6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
