@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
+39 is the duration, in nanoseconds, of the nuclear reaction in the largest nuclear explosion ever performed (Tsar bomb).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
