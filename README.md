@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-175 is the number of touchdowns by Former NFL running back Emmitt Smith, ranking him second to Jerry Rice's 207.
+17 is the maximum number of strokes of a Chinese radical.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
