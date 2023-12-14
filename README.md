@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
+99 is the highest jersey number allowed in most major league sports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
