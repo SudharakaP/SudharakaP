@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
+714 is the number of home runs Babe Ruth scored in his career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
