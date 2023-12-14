@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-149000000 is the number of kilometres from the Earth the sun is.
+165 is the miles of Tahoe Rim Trail, a long-distance hiking trail around Lake Tahoe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
