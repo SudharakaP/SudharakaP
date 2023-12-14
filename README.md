@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150 is the number of degrees in the quincunx astrological aspect explored by Johannes Kepler.
+142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
