@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-44 is the number of candles in a box of Hanukkah candles.
+1e+83 is the number of fundamental particles in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
