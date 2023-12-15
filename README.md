@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-463 is the number of days in the synodic period of Ceres.
+137 is the average brain mass of a baboon in grams.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
