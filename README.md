@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-47 is the number of El-Aurians Scotty manages to beam up before their ship is destroyed by the energy ribbon.
+1979 is a song by American alternative rock band The Smashing Pumpkins.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
