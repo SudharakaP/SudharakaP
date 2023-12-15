@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-125 is years in a quasquicentennial.
+189 is the rank of Brazil in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
