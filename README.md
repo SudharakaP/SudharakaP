@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the rank of Waco, Texas by largest city population in the United States.
+59 is the number of days, approximately in two lunar months.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
