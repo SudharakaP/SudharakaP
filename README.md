@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
+343 is the number of New York City Firefighters who died on September 11, 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
