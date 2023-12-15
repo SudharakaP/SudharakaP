@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-243 is the Calling code for Zaire.
+91 is the atomic number of protactinium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
