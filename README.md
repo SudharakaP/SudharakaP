@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the total number of cards in the game Racko.
+123 is the electricity emergency telephone number in Indonesia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
