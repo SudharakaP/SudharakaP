@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the population of Arguisuelas, Castile-La Mancha, Spain.
+124 is a stable isotope of tellurium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
