@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the height in inches of a regulation basketball hoop.
+80 is the length (years) of the Eighty Years' War (1568–1648).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
