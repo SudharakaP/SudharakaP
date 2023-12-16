@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the population of Guedanga, in the Ouo Department of ComoÃ© Province, Burkina Faso.
+500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
