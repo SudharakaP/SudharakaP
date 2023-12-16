@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6909 is the number of estimate for the linguistic diversity of living human languages or dialects.
+195 is the population of Guedanga, in the Ouo Department of ComoÃ© Province, Burkina Faso.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
