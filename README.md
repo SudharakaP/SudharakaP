@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7e+22 is the number of stars within range of telescopes (as of 2003).
+220 is the SMTP code meaning "service ready".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
