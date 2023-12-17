@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-360000 is the number of words definitions in the New Oxford Dictionary of English.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
