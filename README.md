@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-136 is the hottest temperature ever recorded in Fahrenheits at Aziziya, Libya in September 1922.
+88 is the number of keys on a piano (36 black and 52 white).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
