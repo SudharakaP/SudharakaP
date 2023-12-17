@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8e+60 is the number of Planck time intervals since the Big Bang.
+11 is the number of sides on the Canadian one-dollar coin (a hendecagon, an eleven-sided polygon).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
