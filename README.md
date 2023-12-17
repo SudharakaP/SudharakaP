@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-352 is the number of international appearances by Kristine Lilly for the USA women's national soccer team, an all-time record.
+55 is the highest speed limit allowed in the United States between 1974 and 1986 per the National Maximum Speed Law.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
