@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
+194 is the number of episodes of I Love Lucy that ran on CBS from 1951 to 1960.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
