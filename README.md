@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the distance a single playing card was thrown in feet by Kevin St. Onge to set a Guinness World Record.
+11 is the miles per hours that the fastest moving land snake, the Black Mamba, can move.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
