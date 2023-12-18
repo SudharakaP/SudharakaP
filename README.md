@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
+138 is the estimated number of ATP molecules produced by one molecule of fatty acid, for the mixture that comprises human adipose tissue.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
