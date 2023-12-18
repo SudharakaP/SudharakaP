@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the Opus number of one of Beethoven's greatest works.
+45 is the sapphire wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
