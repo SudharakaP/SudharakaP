@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1400000 is the number of species that have been named by the World Resources Institute.
+56 is the number of Aubrey Holes in the first stage of Stonehenge.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
