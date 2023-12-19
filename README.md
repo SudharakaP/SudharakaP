@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-151 is the number of episodes that TV series Malcolm in the Middle ran on the Fox Network from 2000 to 2006.
+43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
