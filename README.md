@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-Infinity is the estimation of the game-tree complexity in the game of Go.
+29 is the number of Knuts in one Sickle in the fictional currency in the Harry Potter novels.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
