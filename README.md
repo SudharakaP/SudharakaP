@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-83 is the highest UHF channel on older televisions made before the late 1970s.
+26 is the number of letters in the Latin-derived English alphabet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
