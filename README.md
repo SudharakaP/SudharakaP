@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the rank of South Ossetia Georgia in population density.
+142 is the number of 6-vertex planar graphs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
