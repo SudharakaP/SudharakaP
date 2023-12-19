@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-53 is the maximum number of facial muscles a smile can require.
+850 is the maximum possible Fair Isaac credit score.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
