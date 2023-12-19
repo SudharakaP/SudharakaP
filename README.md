@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-105 is the number of surat al-Fil in the Qur'an.
+195 is the rank of South Ossetia Georgia in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
