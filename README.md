@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is the port number of the IDENT Internet protocol that helps identify the user of a particular TCP connection.
+4000 is the weight in pounds that the Great White Shark can grow to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
