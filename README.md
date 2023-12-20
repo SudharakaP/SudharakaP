@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35000 is the number of genes in a human being.
+235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
