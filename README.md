@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100 is the record number of points scored in one NBA game by a single player, set by Wilt Chamberlain of the Philadelphia Warriors on March 2, 1962 I.
+182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
