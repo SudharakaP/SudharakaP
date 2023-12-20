@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-441 is the number of squares on a Super Scrabble board.
+22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
