@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the maximum number of electrons that can fit in an f sublevel.
+114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
