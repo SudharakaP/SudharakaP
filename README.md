@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-138 is the estimated number of ATP molecules produced by one molecule of fatty acid, for the mixture that comprises human adipose tissue.
+600 is the maximum credit score considered poor, thus limiting available credit in the USA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
