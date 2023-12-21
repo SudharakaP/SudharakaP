@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15 is the number of minutes in one quarter of an hour.
+184 is a number believed to be a magic number in nuclear physics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
