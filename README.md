@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4.52e+46 is the upper bound for the number of legal chess positions.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
