@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
+41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
