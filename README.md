@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+135 is the angle between two planets in degrees so that they are in an astrological aspect called a sesquiquadrate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
