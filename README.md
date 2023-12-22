@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-53 is the number of bytes in an Asynchronous Transfer Mode packet.
+117 is the atomic number of a recently discovered element temporarily called ununseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
