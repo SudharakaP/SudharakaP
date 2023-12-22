@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-229 is the lowest individual batting score not achieved by any player in test match cricket.
+67 is the number of throws in Judo.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
