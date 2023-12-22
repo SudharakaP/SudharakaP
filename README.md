@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the number worn by LeBron James in the NBA.
+10 is the number of years in a decade.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
