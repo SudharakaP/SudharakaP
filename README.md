@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-82 is the atomic number of lead.
+190 is the number of member states of the United Nations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
