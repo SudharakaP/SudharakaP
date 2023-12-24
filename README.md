@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the maximum number of marbles (game pieces) in Chinese checkers.
+144 is the Intel 8086 instruction for no operation (NOP).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
