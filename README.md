@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the consumption in pounds of candy annually per person in Denmark, the country with the highest candy consumption.
+1000 is the number of elephants it took to bring in the material to build the Taj Mahal from various parts of India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
