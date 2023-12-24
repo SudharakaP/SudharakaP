@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-215 is the Dewey Decimal Classification for Science and religion.
+40 is the number of points that a Premier League team needs to avoid relegation in soccer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
