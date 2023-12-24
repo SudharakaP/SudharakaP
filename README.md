@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
