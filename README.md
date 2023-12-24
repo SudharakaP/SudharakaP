@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-108 is a number prominently related in the symbolism associated with karate, particularly the GÅjÅ«-ryÅ« discipline.
+32 is the percentage of employees in the USA who eat lunch and work at the same time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
