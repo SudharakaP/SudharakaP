@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5600 is the number of metres above sea level of the highest bridge in the world, located in the Himalayan mountains.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
