@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
+127 is the atomic number of Unbiseptium, an element that has not yet been discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
