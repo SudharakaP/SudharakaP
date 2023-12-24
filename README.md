@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-127 is the atomic number of Unbiseptium, an element that has not yet been discovered.
+12 is the number of function keys on most PC keyboards (F1 through F12).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
