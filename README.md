@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
+82 is the number of games in an NBA or NHL regular season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
