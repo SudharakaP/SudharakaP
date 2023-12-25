@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-137 is the California Penal Code for "Offer bribe to influence testimony".
+200 is degrees in a human"s field of vision (approximately).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
