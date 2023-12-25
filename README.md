@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-151 is the height of the Statue of Liberty from the base to the torch in feet (46 m).
+114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
