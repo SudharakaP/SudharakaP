@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-128 is a sacred number honored by Beans for many generations.
+88 is a standard length of playing cards in mm.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
