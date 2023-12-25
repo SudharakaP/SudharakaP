@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-300 is the approximate number of Spartans who fought to death at the Battle of Thermopylae.
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
