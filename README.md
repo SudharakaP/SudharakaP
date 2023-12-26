@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-218 is votes required in the US House of Representatives to achieve a majority as of 2008.
+99 is the highest jersey number allowed in most major league sports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
