@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-177 is the all-time titles record held by Tennis Hall of Famer Martina Navratilova.
+130 is the approximate maximum height in meters of trees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
