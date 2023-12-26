@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
+693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
