@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the percentage of methane on Earth produced from the flatulence of domesticated cows.
+166 is the number of Warner Bros. cartoons Bugs Bunny starred in from 1940 to 1964.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
