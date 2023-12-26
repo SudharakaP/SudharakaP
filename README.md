@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-137 is a radioactive isotope of Caesium formed by nuclear fission.
+1600000 is the number of people employed by the Indian railway system in India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
