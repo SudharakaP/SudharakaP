@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100000000000000 is the number of cells in the the human body, of which only 10^{13} are human. The remaining 90% non-human cells are bacteria.
+21 is the number of trump cards of the tarot deck if one does not consider The Fool to be a proper trump card.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
