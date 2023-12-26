@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1400000 is the number of species that have been named by the World Resources Institute.
+36 is the perfect score on the ACT.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
