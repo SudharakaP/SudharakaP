@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-123 is the telephone number of the speaking clock for the correct time in the United Kingdom.
+216 is the number of stitches on a baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
