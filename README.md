@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
+199 is the number of hits by Ron Davis in his MLB career from 1962-1969.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
