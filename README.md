@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-136 is the number of episodes of the TV series That Girl ran on ABC from 1966 to 1971.
+493 is the number of bronze knuts equivalent to one gold galleon, in the monetary system of the world of Harry Potter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
