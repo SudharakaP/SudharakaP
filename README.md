@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-97 is the number of different characters that can be used with a standard English Keyboard.
+165 is the miles of Tahoe Rim Trail, a long-distance hiking trail around Lake Tahoe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
