@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the number of days it took to form the 2007 Belgian government.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
