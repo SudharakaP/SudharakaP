@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-365 is the number of solar days in the mean tropical year.
+15250 is the number of times the average driver will honk in a lifetime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
