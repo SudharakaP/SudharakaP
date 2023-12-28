@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1979 is a song by American alternative rock band The Smashing Pumpkins.
+17 is 'the least random number' as described at MIT, according to hackers' lore.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
