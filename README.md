@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56 is the number of men who signed the United States Declaration of Independence in 1776.
+1000000 is the number of people buried in Père Lachaise Cemetery, the most visited cemetary in the world, opened in 1804.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
