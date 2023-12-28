@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-131 is the number serving a monkiker for Indie music.
+183 is the rank of the U.S. Virgin Islands in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
