@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40 is the customary number of hours in a regular workweek in some Western countries.
+30000 is the number of distinct Chinese characters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
