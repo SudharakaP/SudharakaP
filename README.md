@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000000 is the approximate number of coconuts produced worldwide each year.
+390 is the speed in feet per second that nerve impulses for muscle position travel at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
