@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-154 is the period in days that the sun follows on gamma-ray flares.
+64 is the number of demons in the Dictionnaire Infernal.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
