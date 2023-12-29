@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-31 is the number of flavors of Baskin-Robbins ice cream.
+245 is the number of Jewish singers who returned from captivity in Babylon in circa 538 BCE BC following the rise of Cyrus the Great and the Persian Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
