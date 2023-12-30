@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-221 is sMTP status code for service closing transmission channel.
+76 is the atomic number of osmium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
