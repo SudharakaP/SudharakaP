@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-57 is the number of cm that the smallest man measured, Gul Mohammed (1957-1997) of India.
+343 is the number of frames in which U.S. President John F. Kennedy's presidential limousine can be seen in the Zapruder film.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
