@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5 is the number of Justices on the Supreme Court of the United States necessary to render a majority decision.
+464 is the number of legal positions of the kings in chess, not counting mirrored positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
