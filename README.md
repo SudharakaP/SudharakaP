@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-0 is the coldest possible temperature old the Kelvin scale.
+53 is the number of bytes in an Asynchronous Transfer Mode packet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
