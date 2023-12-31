@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-386 is the number of Pokémon in the 3rd Generation National Pokédex.
+200 is degrees in a human"s field of vision (approximately).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
