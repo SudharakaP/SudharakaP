@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6000000 is the number of parts in the Boeing 747-400.
+108 is the number of suitors coveting Penelope, wife of Odysseus in Homer's Odyssey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
