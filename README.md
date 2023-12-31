@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-117 is the atomic number of a recently discovered element temporarily called ununseptium.
+210 is the world speed record (km/h) for a mountain bike on a ski slope.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
