@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the TV series Third Watch ran on NBC from 1999 to 2005 with 132 episodes.
+3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
