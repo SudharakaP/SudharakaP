@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61 is the code for international direct dial phone calls to Australia.
+44 is the number of candles in a box of Hanukkah candles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
