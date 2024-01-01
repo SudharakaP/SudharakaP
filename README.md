@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-67890 is the number of largest decimal places of π that have been recited from memory.
+148 is the number of episodes of the TV series The Fresh Prince of Bel-Air on NBC from 1990 to 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
