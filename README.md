@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-62 is the number which Sigmund Freud has an irrational fear of.
+197 is the number of episodes of the Cosby Show that ran on NBC from 1984-1992.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
