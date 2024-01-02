@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the number of runs that Ollie Beard had in his MLB career from 1889-1891.
+187 is 187th Street in the Washington Heights section of Manhattan.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
