@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1 is the number of moons orbiting Earth.
+135 is the height of the World's tallest thermometer in feet located in Baker, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
