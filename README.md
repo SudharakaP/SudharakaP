@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the number of days taken to create the world by Yahweh in the Old Testament Book of Genesis, and the number of the day on which humankind were created.
+2 is the number of stars in a binary star system (a stellar system consisting of two stars orbiting around their center of mass).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
