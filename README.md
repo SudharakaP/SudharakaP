@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-116 is the atomic number of an element temporarily called ununhexium.
+72 is the standard resolution of an Apple Macintosh screen in dots per inch.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
