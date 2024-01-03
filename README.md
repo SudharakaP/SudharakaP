@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the standard resolution of an Apple Macintosh screen in dots per inch.
+650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
