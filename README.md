@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
+3 is the number of sets needed to be won to win the whole match in volleyball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
