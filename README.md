@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
+168 is the number of touchdowns that NFL quarterback Drew Brees had with the San Diego Chargers (2001–2005) and New Orleans Saints (2006 through the 2008 season).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
