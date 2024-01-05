@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1750000 is the number of entries in the freedb database of CD track listings as of June 2005.
+66 is the number of years of the longest hiccups on record by an American pig farmer from 1922 to 1987.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
