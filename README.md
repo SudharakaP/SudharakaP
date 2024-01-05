@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-125 is the atomic number of the yet-to-be-discovered element Unbipentium.
+134 is the rank of Mauritania in terms of world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
