@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-99 is the number of names of Allah, the names or attributes of God in the Qur'an.
+64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
