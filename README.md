@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
+179 is the number of demands laid out by chess master Bobby Fischer laid for the World Chess Federation prior to a 1975 match against Anatoly Karpov.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
