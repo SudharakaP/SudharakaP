@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50000000 is the approximate number of people who fish per year in the United States.
+39 is the number of Scud missiles which Iraq fired at Israel during the Gulf War in 1991.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
