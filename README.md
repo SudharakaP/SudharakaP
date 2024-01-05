@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
