@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-Infinity is the estimation of the game-tree complexity in the game of Go.
+440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
