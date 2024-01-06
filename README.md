@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-111 is the atomic number of the element roentgenium (Rg).
+110 is the age a person must attain in order to be considered a supercentenarian.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
