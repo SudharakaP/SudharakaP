@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4.52e+46 is the upper bound for the number of legal chess positions.
+343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
