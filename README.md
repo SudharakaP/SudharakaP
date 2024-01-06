@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-93 is that approximate distance in millions of miles the Sun is away from the Earth.
+Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
