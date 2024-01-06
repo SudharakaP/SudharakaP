@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the percentage of water of which the human body is composed.
+9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
