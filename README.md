@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-41 is the reported number of survivors aboard the USS Neptune, in the 1978 disaster film Gray Lady Down, upon its initial depth position of 1,450 feet.
+4.52e+46 is the upper bound for the number of legal chess positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
