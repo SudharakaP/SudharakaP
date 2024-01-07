@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5600 is the number of metres above sea level of the highest bridge in the world, located in the Himalayan mountains.
+169 is the first number of an automatic IPv4 address assigned by TCP/IP when no external networking device is contactable.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
