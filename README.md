@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is a percentage in the expression "To give 110%", meaning to give a little more effort than one's maximum effort.
+184 is a number believed to be a magic number in nuclear physics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
