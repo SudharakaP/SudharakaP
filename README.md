@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-177 is the second highest possible score in darts that can be obtained by throwing three darts in a single visit to the oche.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
