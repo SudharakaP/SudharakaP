@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
+66 is the number of hot dogs eaten by World record holder Joey Chestnut in 15 minutes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
