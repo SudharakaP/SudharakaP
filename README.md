@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
+87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
