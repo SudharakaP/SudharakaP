@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
+17 is 'the least random number' as described at MIT, according to hackers' lore.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
