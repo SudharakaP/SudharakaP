@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-128 is the number of ASCII characters (33 non-printing characters, mostly obsolete control characters that affect how text is processed, and 94 printable).
+195 is the number of episodes of Matlock ran on NBC from 1986-1992 and on ABC from 1992-1995.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
