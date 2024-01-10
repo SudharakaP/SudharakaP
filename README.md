@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
+57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
