@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4294967296 is the number of bytes in 4 gibibytes.
+11 is the number of denominations of Canadian currency produced in large quantities.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
