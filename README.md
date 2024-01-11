@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+21 is the number of grains of sand on all the world's beaches put together.
+8674 is the number of unique words in the Hebrew Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
