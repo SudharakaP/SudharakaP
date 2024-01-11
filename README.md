@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25000000 is the number of different inhabited planets in the the Galactic Empire.
+150 is the number of runs in cricket that's a milestone for a batsman.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
