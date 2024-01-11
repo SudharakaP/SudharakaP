@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is distinct solutions of the Soma cube puzzle.
+18 is the number of colors the labels for Crayola crayons come in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
