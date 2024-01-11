@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-187 is the atomic number of an element temporarily called Unoctseptium.
+2 is the first magic number in physics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
