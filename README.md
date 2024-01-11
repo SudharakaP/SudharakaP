@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150 is the number of runs in cricket that's a milestone for a batsman.
+538 is the total number of votes in the Electoral College of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
