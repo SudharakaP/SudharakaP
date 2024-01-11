@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-105 is the atomic number of hahnium, also known as dubnium.
+14 is the minimum age at which one can work in many U.S states.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
