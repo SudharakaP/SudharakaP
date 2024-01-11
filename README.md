@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
+313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
