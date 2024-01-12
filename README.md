@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is the port number of the IDENT Internet protocol that helps identify the user of a particular TCP connection.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
