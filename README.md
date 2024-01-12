@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is the number of odd numbered days during a non-leap year.
+550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
