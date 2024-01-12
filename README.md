@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-166 is the number of cartoons that Bugs Bunny starred in Warner Bros. from 1940 to 1964.
+155 is the number of performances Ivanhoe, the romantic opera that opened in January 31, 1891, ran for.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
