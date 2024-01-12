@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-366 is the number of days in a leap year.
+39 is the number of books in the Old Testament according to Protestant canon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
