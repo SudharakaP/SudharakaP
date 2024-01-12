@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-441 is the number of squares on a Super Scrabble board.
+177 is the elevation of Borgarvirki, in the north of Iceland, in meteres above sea level.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
