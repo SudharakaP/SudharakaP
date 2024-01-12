@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-151 is total number of types of Pokémon in the original set.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
