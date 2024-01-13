@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56 is the age of Mao Zedong when the People's Republic of China was established on Oct. 1, 1949.
+365 is the number of solar days in the mean tropical year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
