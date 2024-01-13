@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
+11 is the number of denominations of Canadian currency produced in large quantities.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
