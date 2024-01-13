@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-19 is the number of years in 235 lunations.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
