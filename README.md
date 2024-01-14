@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
+65 is the minimum grade required to pass an exam, or class, in many areas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
