@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-126 is the number of years that Gilgamesh reigned according to the Sumerian king list.
+7e+27 is the number of atoms in the average human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
