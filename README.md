@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-139 is the number of episdoes of the TV series MacGyver that ran on ABC from 1985 to 1992.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
