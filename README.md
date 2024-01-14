@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-267000 is the number of words in James Joyce's Ulysses.
+300 is the number of different beverages the Coca Cola company offers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
