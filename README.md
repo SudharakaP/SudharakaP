@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-441 is the number of squares on a Super Scrabble board.
+402000000 is the number of native speakers of English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
