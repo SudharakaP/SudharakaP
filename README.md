@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-102 is the number of floors in Empire State Building in New York City.
+83 is the highest UHF channel on older televisions made before the late 1970s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
