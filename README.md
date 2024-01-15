@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-216 is the number of colors formed by a 6 color cube, sometimes known as the web-safe color palette.
+53 is the total number of national football associations of UEFA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
