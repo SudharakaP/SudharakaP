@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-158 is the number of verses of the national anthem of Greece.
+-Infinity is negative infinity.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
