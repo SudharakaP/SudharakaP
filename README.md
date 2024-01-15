@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
+96 is the rating of Skyrim on metacritic.com.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
