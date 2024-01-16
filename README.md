@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
+42 is the number of spots (or pips, circular patches or pits) on a pair of standard six-sided dice.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
