@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is the TCP port used for POP3 email protocol.
+227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
