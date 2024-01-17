@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-198 is the population of Perlethorpe, Nottinghamshire England.
+138 is the rank of Mongolia in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
