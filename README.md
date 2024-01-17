@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-270 is the average number of days in human pregnancy.
+147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
