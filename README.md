@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-464 is the number of legal positions of the kings in chess, not counting mirrored positions.
+1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
