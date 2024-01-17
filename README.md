@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the number of times that a typical dairy cow lies down and stands up a day on average.
+89 is the number of units of each colour in the board game Blokus.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
