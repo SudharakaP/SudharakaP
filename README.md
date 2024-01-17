@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15 is the approximate speed in miles per hour a penguin swims at.
+30 is the minimum age for United States senators.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
