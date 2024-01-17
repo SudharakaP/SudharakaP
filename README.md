@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the number of days in the shortest month of the Gregorian calendar, February (except in leap years, when there are twenty-nine).
+4000 is the weight in pounds that the Great White Shark can grow to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
