@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
+151 is the number of episodes that TV series Malcolm in the Middle ran on the Fox Network from 2000 to 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
