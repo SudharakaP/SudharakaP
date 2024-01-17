@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+83 is the number of fundamental particles in the observable universe.
+193 is species of monkeys and apes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
