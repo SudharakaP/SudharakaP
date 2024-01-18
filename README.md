@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-225 is the longest distance in miles a deepwater lobster has been recorded to travel.
+470 is the minimum length in yards from the tee to the hole on a Par 5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
