@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the number of players in an American football team on the field at one time during play.
+108 is a number prominently related in the symbolism associated with karate, particularly the GÅjÅ«-ryÅ« discipline.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
