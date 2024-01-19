@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-162 is 162 is the total number of baseball games each team plays during a regular season in Major League Baseball.
+1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
