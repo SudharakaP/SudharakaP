@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-165 is the miles of Tahoe Rim Trail, a long-distance hiking trail around Lake Tahoe.
+404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
