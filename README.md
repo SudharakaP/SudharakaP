@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25 is the number of points needed to win a set in volleyball under rally scoring rules.
+11 is the number of players in an American football team on the field at one time during play.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
