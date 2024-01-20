@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-42 is the angle in degrees for which a rainbow appears or the critical angle.
+5500000000000000 is the number of estimated ants on Earth alive at any one time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
