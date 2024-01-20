@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
+53 is the maximum number of facial muscles a smile can require.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
