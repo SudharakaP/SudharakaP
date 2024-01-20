@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-493 is the number of bronze knuts equivalent to one gold galleon, in the monetary system of the world of Harry Potter.
+98 is the highest jersey number allowed in the National Hockey League (as 99 was retired by the entire league to honor Wayne Gretzky).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
