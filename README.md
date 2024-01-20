@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4 is the number of completed, numbered symphonies by Johannes Brahms.
+74 is the atomic number of tungsten.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
