@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the number of points on the stylized maple leaf on the Flag of Canada.
+122 is the fire emergency telephone number in Austria.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
