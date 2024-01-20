@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1631 is two London bible printers accidentally left "not" out of the 7th commandment, which then read "Thou shalt commit adultery.".
+108 is there number of love sonnets in Astrophil and Stella, the first English sonnet sequence by Sir Philip Sidney.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
