@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-138 is the Saros number of the solar eclipse series which began on June 6, 1472 and will end on July 11, 2716.
+22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
