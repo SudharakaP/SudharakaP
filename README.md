@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the maximum number of electrons that can fit in an f sublevel.
+83 is the highest UHF channel on older televisions made before the late 1970s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
