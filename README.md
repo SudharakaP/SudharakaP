@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the percentage of movies released that are Rated R.
+217 is the room in Stephen King's novel "The Shining", that plays a central part in the story as it is haunted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
