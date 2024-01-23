@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25 is the (critical) number of Florida electoral votes for the 2000 U.S. presidential election.
+267 is the number of groups of order 64.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
