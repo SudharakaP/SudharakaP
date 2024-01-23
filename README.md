@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7 is the maximum number of times a letter-sized paper can be folded in half.
+230 is the common voltage in the European Union.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
