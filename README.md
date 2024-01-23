@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1096000000 is the population of India in 2007.
+60 is a common speed limit (mph) for freeways in many US states.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
