@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-212 is the boiling point of water at sea level in Fahrenheit degrees.
+45 is the sapphire wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
