@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15 is the length in miles of a train of boxcars that can be filled from recycled paper in the USA every day.
+463 is the number of days in the synodic period of Ceres.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
