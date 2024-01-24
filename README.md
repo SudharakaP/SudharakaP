@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-19 is the final year a person is a teenager.
+102 is the atomic number of nobelium, an actinide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
