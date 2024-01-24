@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
+21 is the number of demands which were sent to the Chinese government by the Japanese government of Okuma Shigenobu in 1915.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
