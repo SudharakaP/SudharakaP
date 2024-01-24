@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5500000000000000 is the number of estimated ants on Earth alive at any one time.
+15 is the number of checkers each side has at the start of a backgammon game.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
