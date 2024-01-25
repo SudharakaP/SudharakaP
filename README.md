@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-108 is a number prominently related in the symbolism associated with karate, particularly the GÅjÅ«-ryÅ« discipline.
+33 is the temperature at which water boils according to the Newton scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
