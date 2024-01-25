@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5 is the number of dots in a quincunx.
+157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
