@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-210 is the world speed record (km/h) for a mountain bike on a ski slope.
+13 is the speed of rush hour traffic on average in kilometres per hour in London.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
