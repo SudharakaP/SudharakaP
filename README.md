@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-13 is the speed of rush hour traffic on average in kilometres per hour in London.
+1311000000 is the population of the People's Republic of China in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
