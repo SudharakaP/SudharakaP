@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35000 is the number of genes in a human being.
+60 is the maximum number of marbles (game pieces) in Chinese checkers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
