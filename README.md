@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-158 is the number of international goals scored by Mia Hamm for the USA women's team, an all-time record for either sex in soccer.
+240 is the number of pence in a pound in the British currency until 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
