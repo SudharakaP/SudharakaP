@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-128 is the number of musical instruments specified in General MIDI.
+62 is the number which Sigmund Freud has an irrational fear of.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
