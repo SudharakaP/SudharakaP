@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-104 is the number of Corinthian columns in the Temple of Olympian Zeus, the largest temple ever built in Greece.
+313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
