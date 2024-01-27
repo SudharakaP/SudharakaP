@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-75 is the age limit for Canadian senators.
+231 is the number of cubic inches in a U.S. liquid gallon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
