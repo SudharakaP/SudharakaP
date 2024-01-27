@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100 is the approximate number of eyes a scallop has around the edge of its shell.
+300 is the number of pounds per square inch of pressure to break the shell of Macadamia nuts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
