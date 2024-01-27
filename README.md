@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-199 is the position that Tom Brady was picked in the 2000 NFL draft.
+21 is the number of demands which were sent to the Chinese government by the Japanese government of Okuma Shigenobu in 1915.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
