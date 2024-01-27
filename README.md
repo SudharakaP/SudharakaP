@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-191 is the number of episodes for the different regions in the PokÃ©mon anime.
+3 is the number of consecutive successful attempts in a hat trick in sports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
