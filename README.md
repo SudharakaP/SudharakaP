@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
