@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the number of Delegates who attended the United States Constitutional Convention in 1787.
+50000000 is the approximate number of people who fish per year in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
