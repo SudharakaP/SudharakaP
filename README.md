@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is the minimum odd number of voting components for simple easy redundancy checks by direct comparison.
+193 is species of monkeys and apes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
