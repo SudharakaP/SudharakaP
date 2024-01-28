@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-47 is the total numbers of balloons that a player can collect in Rareware's Nintendo 64 game Diddy Kong Racing.
+132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
