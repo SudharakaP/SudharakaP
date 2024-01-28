@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the number of episodes with Moose, a dog, playing Eddie Crane on Frasier.
+3 is the minimum odd number of voting components for simple easy redundancy checks by direct comparison.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
