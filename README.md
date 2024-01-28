@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
+600 is the maximum credit score considered poor, thus limiting available credit in the USA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
