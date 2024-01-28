@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
+66 is the number of hot dogs eaten by World record holder Joey Chestnut in 15 minutes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
