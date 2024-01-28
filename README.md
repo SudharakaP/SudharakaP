@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is the HTTP status code indicating that a client should switch protocols.
+134 is the rank of Mauritania in terms of world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
