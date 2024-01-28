@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-183 is the number of runs scored by former cricket player Sourav Ganguly in the 1999 Cricket World Cup, second highest in World Cup history, and highest by an Indian in the tournament.
+251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
