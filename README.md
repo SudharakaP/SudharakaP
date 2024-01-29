@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-44 is the number of candles in a box of Hanukkah candles.
+6000000 is the number of parts in the Boeing 747-400.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
