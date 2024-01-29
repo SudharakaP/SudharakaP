@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-142600 is tonnes of gold mined in the world by the end of 2000.
+43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
