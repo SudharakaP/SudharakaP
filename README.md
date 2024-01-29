@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56000000000 is the number of web pages indexed by Google as of 2010.
+26 is the number of red cards as well as the number of blue cards in a normal deck of cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
