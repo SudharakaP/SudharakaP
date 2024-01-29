@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-124 is the rank of the Palestinian territories in world population.
+214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
