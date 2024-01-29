@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the percentage of employees in the USA who eat lunch and work at the same time.
+180 is the number of films American film actor John Wayne starred in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
