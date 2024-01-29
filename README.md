@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-214 is the number of Chinese radicals for the writing of Chinese characters according to the 1716 Kangxi Dictionary.
+73 is the percentage of girls in Bangladesh that are married by age 18.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
