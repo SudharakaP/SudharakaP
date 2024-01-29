@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the highest speed limit allowed in the United States between 1974 and 1986 per the National Maximum Speed Law.
+175 is years Harriet (1830–2006) the Galápagos tortoise lived.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
