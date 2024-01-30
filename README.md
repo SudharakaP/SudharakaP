@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56000000000 is the number of web pages indexed by Google as of 2010.
+181 is the number of athletes from Belarus competed in 28 events at the 2008 Olympics in Beijing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
