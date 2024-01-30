@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-181 is the rider number given to Lance Armstrong in 1999 when he won his first of seven Tour de France consecutive victories.
+300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
