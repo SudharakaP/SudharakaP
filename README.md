@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the atomic number of the undiscovered chemical element Unbiunium.
+5600 is the number of metres above sea level of the highest bridge in the world, located in the Himalayan mountains.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
