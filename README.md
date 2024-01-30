@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-193 is the number of member states of the United Nations as of 2011.
+181 is the rider number given to Lance Armstrong in 1999 when he won his first of seven Tour de France consecutive victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
