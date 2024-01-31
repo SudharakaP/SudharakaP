@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
+101 is is the number of floors of Taipei 101, the tallest skyscraper in the world from 2004 to 2010.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
