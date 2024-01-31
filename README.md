@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
+2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
