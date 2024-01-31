@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-118 is the number of decibels of the loudest burp, held by record-holder Paul Hunn, which is as loud as a chainsaw.
+164 is the number of cards in the set Baseball Talk, released by Topps Baseball Card Company in 1989.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
