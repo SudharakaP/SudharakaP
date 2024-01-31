@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is is the number of floors of Taipei 101, the tallest skyscraper in the world from 2004 to 2010.
+56000000000 is the number of web pages indexed by Google as of 2010.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
