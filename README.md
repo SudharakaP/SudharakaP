@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-189 is the atomic number of an element temporarily called Unoctennium.
+285 is the total number of Rules of Acquisition in Star Trek.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
