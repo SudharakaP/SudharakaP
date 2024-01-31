@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
+12 is the number of pence in a shilling in the former British currency system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
