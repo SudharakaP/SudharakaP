@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
