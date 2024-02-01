@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-9220000000000000000 is the largest number which can fit into a signed (two's complement) 64-bit integer on a computer.
+161 is the number of episodes the TV series The Avengers ran from 1961 to 1969.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
