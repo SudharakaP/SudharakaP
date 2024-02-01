@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-239 is the atomic mass number of the most common isotope of plutonium.
+50000000 is the approximate number of people who fish per year in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
