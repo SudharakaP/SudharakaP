@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is the maximum possible score in one turn at darts (three triple 20s).
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
