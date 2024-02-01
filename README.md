@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3500000000000 is the estimated population of fish in the ocean.
+Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
