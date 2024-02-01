@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-432 is three-dozen sets of a dozen, making it three gross.
+10000000000000000000 is the estimated insect population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
