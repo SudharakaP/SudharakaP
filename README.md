@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-189 is the rank of Jersey in world population.
+137 is the California Penal Code for "Offer bribe to influence testimony".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
