@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-111 is the lowest positive integer requiring six syllables to name in American English, or seven syllables (including "and") in Canadian and British English.
+44 is the number of candles in a box of Hanukkah candles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
