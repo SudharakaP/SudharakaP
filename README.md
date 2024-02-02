@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-206 is bones in the typical adult human body.
+113 is the intelligence Agency telephone number in Iran.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
