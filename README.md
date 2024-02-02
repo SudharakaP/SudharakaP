@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-216 is the number of digits in a number that Max becomes obsessed with in the film Pi in his quest to find the numeric equation behind existence.
+496 is what the dimension of the gauge group must be for a superstring theory to make sense.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
