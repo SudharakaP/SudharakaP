@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-525998433 is the number of distinct websites as of November 2011.
+4000 is the weight in pounds that the Great White Shark can grow to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
