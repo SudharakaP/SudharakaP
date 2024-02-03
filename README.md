@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-59 is the number of days, approximately in two lunar months.
+81 is the number of squares on a shogi playing board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
