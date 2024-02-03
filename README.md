@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000 is the weight in tons of the average iceberg.
+295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
