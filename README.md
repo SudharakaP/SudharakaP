@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-118 is the number of decibels of the loudest burp, held by record-holder Paul Hunn, which is as loud as a chainsaw.
+28 is the number of Chinese constellations, "Xiu" or "mansions" (a literal translation), equivalent to the 12 western zodiac constellations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
