@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
+158 is the number of episdoes the TV series The Dick Van Dyke Show ran on CBS from 1961 to 1966 with 158 episodes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
