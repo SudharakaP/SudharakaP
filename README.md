@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-177 is the all-time titles record held by Tennis Hall of Famer Martina Navratilova.
+137 is the California Penal Code for "Offer bribe to influence testimony".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
