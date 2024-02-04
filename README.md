@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-65 is the minimum grade required to pass an exam, or class, in many areas.
+136 is the hottest temperature ever recorded in Fahrenheits at Aziziya, Libya in September 1922.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
