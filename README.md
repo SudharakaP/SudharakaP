@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-92 is the percentage of water in watermelons.
+118 is the number of decibels of the loudest burp, held by record-holder Paul Hunn, which is as loud as a chainsaw.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
