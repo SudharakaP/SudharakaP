@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the rank of Dominica ranks in world population.
+142 is the number of 6-vertex planar graphs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
