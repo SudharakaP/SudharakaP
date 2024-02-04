@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is the HTTP status code indicating that a client should switch protocols.
+52 is the number of cards in a standard deck of playing cards, not counting Jokers or advertisement cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
