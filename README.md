@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-98 is the highest jersey number allowed in the National Hockey League (as 99 was retired by the entire league to honor Wayne Gretzky).
+166 is the number of episodes that the Flintstones ran on ABC from 1960 to 1966.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
