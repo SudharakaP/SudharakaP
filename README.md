@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-102 is the number of floors in Empire State Building in New York City.
+666 is the number of the devil.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
