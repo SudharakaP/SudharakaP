@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-165 is the number of episodes that the TV show Daniel Boone ran on NBC from 1964 to 1970.
+496 is what the dimension of the gauge group must be for a superstring theory to make sense.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
