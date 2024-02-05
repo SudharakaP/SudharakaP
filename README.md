@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5200 is the number of standard size of a legion in the Roman Empire.
+64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
