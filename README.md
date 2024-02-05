@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+167 is the number of volcanoes in Indonesia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
