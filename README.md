@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-62 is the number which Sigmund Freud has an irrational fear of.
+156 is the number of years that Hong Kong was under British colony rule.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
