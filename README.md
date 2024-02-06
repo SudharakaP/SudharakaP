@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
+15 is the approximate speed in miles per hour a penguin swims at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
