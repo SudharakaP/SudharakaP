@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
+930000 is the number of words in the King James Version of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
