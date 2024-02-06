@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
+587 is the outgoing port for email message submission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
