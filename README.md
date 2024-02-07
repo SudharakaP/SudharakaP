@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-203 is the HTTP status code indicating partial information.
+7 is the number of periods, or horizontal rows of elements, in the periodic table.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
