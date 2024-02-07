@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17 is the minimum driving age for a car or van in the United Kingdom.
+16 is the minimum age for getting an adult job in most states and provinces across the globe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
