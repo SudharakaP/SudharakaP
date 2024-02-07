@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-267 is the number of groups of order 64.
+189 is the rank of Brazil in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
