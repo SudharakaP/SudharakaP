@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10 is the number of years in a decade.
+174 is the atomic number of an element temporarily called Unseptquadium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
