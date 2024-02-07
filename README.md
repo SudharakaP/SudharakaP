@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the fire emergency telephone number in Austria.
+18 is the number of chapters into which James Joyce's epic novel Ulysses is divided.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
