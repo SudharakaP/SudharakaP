@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+28 is the number of dominoes in standard domino sets.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
