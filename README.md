@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56 is the number of consecutive games in baseball in which New York Yankees' Joe DiMaggio had a base hit in 1941, still a record.
+156 is the width in miles of a crater formed by an asteroid that may have hit Earth 1.8 billion years ago, according to researchers from the University of Toronto and Geological Survey of Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
