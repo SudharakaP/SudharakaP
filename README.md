@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-242 is the number of a notable UN Security Council resolution pertaining to the Arab/Israeli conflict.
+123 is the Notation for national and international telephone numbers Recommendation ITU-T Recommendation E.123 defines a standard way to write telephone numbers, e-mail addresses, and web addresses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
