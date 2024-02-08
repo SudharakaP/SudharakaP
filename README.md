@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-39 is the number of mentions of work or labor in the Torah.
+12 is the number of function keys on most PC keyboards (F1 through F12).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
