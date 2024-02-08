@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-138 is essendon's losing margin against Adelaide in round 10 of the 2006 AFL season.
+64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
