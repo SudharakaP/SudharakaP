@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the drop in meters of the world's tallest freefall ride, The Giant Drop located in Australia.
+930000 is the number of words in the King James Version of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
