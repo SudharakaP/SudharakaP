@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-168 is the death toll of the 1995 Oklahoma City bombing.
+175 is the number of films that actress Rose Tapley appeared in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
