@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1631 is two London bible printers accidentally left "not" out of the 7th commandment, which then read "Thou shalt commit adultery.".
+25 is the size of the full roster on a Major League Baseball team for most of the season, except for regular-season games on or after September 1, when teams may expand their roster to no more than 40 players.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
