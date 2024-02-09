@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-27 is the number of moons of the planet Uranus.
+37 is the number of plays William Shakespeare is thought to have written (counting Henry IV as three parts).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
