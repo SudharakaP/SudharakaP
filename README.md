@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-178 is the rank of Samoa in world population.
+211 is the SMTP status code system status.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
