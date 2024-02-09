@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is number of codons in the RNA codon table under genetic code.
+196 is the height of Mount Victoria, Wellington, a prominent hill near Wellington, New Zealand.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
