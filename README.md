@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the minimum age for United States senators.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
