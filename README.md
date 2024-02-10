@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1600000 is the number of people employed by the Indian railway system in India.
+160 is the lowest radio frequency band allocation in meters available to amateur radio operators in most countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
