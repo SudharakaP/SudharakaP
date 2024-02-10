@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5 is the holy number of Discordianism, as dictated by the Law of Fives.
+125 is years in a quasquicentennial.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
