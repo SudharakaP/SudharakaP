@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15250 is the number of times the average driver will honk in a lifetime.
+240 is distinct solutions of the Soma cube puzzle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
