@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-177 is the rank of Netherlands Antilles in world population.
+94 is the atomic number of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
