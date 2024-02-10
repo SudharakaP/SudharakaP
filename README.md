@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
+998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
