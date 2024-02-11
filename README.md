@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-53 is the maximum number of facial muscles a smile can require.
+248 is the number of organs in the human body as traditionally depicted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
