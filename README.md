@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-26 is the number of bones in the normal human foot and ankle.
+6 is the number of points received for a touchdown in American and Canadian football.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
