@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-54 is the number of countries in Africa.
+64 is the number of demons in the Dictionnaire Infernal.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
