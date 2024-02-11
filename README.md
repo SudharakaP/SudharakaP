@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the number of times that a typical dairy cow lies down and stands up a day on average.
+217 is the area code for central Illinois.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
