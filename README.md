@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-695 is the number of people dead in the single deadliest tornado in United States history (the F5 Tri-State Tornado in 1925).
+108 is the number of outlaws in the Chinese classic Water Margin/Outlaws of the Marsh.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
