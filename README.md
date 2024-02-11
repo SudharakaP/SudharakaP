@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
+108 is the name of a community of and for open source developers, created by Red Hat.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
