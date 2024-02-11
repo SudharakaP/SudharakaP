@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is the number of surat al-Falaq in the Qur'an.
+300 is the number of different beverages the Coca Cola company offers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
