@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-538 is the total number of votes in the Electoral College of the United States.
+470 is the minimum length in yards from the tee to the hole on a Par 5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
