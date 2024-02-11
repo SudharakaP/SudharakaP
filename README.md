@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
+47 is the total numbers of balloons that a player can collect in Rareware's Nintendo 64 game Diddy Kong Racing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
