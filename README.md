@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
+1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
