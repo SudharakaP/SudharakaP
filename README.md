@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-209 is the basketball record for most three pointers in a row.
+60 is a common speed limit (mph) for freeways in many US states.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
