@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
+46 is the number of slices of pizza an average American kid eats in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
