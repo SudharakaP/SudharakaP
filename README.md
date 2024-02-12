@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-178 is the rank of Estonia in world population density.
+137 is the average brain mass of a baboon in grams.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
