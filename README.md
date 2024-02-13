@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-71 is the number of different characters that can be used with a standard English Keyboard, excluding uppercase letters.
+11 is the number of pounds one gallon of pure maple syrup weighs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
