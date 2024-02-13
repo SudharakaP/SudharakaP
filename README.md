@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-207 is the area code for the US state of Maine.
+1600000 is the number of people employed by the Indian railway system in India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
