@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-71 is the atomic number of lutetium.
+144 is a gross (a dozen dozen).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
