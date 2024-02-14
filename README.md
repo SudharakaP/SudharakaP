@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-210 is the world speed record (km/h) for a mountain bike on a ski slope.
+140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
