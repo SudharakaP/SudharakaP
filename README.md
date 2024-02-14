@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-400000000000 is the number of stars in the Milky Way galaxy.
+191 is the atomic number of an element temporarily called Unennunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
