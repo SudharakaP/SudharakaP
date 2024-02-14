@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+83 is the number of fundamental particles in the observable universe.
+17 is the number of flames emanating from the grenade cap-badge of the Grenadier Guards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
