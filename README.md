@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-65 is the minimum grade required to pass an exam, or class, in many areas.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
