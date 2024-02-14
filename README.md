@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5e+30 is the number of bacterial cells on Earth.
+138 is the atomic number of Untrioctium, a temporary chemical element.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
