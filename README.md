@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1096000000 is the population of India in 2007.
+97 is the atomic number of berkelium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
