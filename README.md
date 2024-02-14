@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-97 is the atomic number of berkelium.
+163 is the atomic number of an element temporarily called Unhextrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
