@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-555 is the number of seats of the airliner A380-800.
+175 is the rank of Belize in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
