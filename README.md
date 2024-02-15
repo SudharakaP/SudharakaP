@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the age of Jeanne Calment when she died.
+157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
