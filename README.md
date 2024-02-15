@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the distance in feet the Hampstead London Underground station is below ground level.
+172000 is tons of chocolate produced in Belgium in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
