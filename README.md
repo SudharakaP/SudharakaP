@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the percentage of girls in Bangladesh that are married by age 18.
+1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
