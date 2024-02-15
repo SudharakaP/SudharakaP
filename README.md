@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the population of Bide Arm in Newfoundland and Labrador, Canada.
+1 is the number of moons orbiting Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
