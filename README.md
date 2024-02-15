@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25 is the number of points needed to win a set in volleyball under rally scoring rules.
+18 is the number of bronze monks the Shaolin temple had in Chinese folklore.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
