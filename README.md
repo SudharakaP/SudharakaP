@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-184 is a weight class in collegiate wrestling, 184 lb (83 kg).
+55 is the percentage of movies released that are Rated R.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
