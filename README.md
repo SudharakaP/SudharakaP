@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-156 is the width in miles of a crater formed by an asteroid that may have hit Earth 1.8 billion years ago, according to researchers from the University of Toronto and Geological Survey of Canada.
+111 is the lowest positive integer requiring six syllables to name in American English, or seven syllables (including "and") in Canadian and British English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
