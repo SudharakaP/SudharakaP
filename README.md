@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1400000 is the number of species that have been named by the World Resources Institute.
+4200000 is the number of couples in the United States that live together but are not married.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
