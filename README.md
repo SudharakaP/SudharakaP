@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-183 is the number of runs scored by former cricket player Sourav Ganguly in the 1999 Cricket World Cup, second highest in World Cup history, and highest by an Indian in the tournament.
+156 is the width in miles of a crater formed by an asteroid that may have hit Earth 1.8 billion years ago, according to researchers from the University of Toronto and Geological Survey of Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
