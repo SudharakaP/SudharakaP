@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is the number of words or phrases in a Tripartite motto.
+123 is the electricity emergency telephone number in Indonesia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
