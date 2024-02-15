@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-83 is the atomic number of bismuth.
+1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
