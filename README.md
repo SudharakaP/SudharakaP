@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-62 is the atomic number of samarium.
+88 is the approximate number of days it takes Mercury to complete its orbit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
