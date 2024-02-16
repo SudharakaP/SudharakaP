@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-390 is the speed in feet per second that nerve impulses for muscle position travel at.
+72 is the percentage of water of which the human body is composed.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
