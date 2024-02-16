@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-108 is a number prominently related in the symbolism associated with karate, particularly the GÅjÅ«-ryÅ« discipline.
+139 is the number of episodes of the TV series Your Show of Shows that ran on NBC from 1950 to 1954.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
