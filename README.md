@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-88 is the number of constellations in the sky as defined by the International Astronomical Union.
+176 is the rank of Madagascar 176 world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
