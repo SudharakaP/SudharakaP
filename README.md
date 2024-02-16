@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5500000000000000 is the number of estimated ants on Earth alive at any one time.
+4200000 is the number of couples in the United States that live together but are not married.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
