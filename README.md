@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-116 is the prefix for several EU-wide telephone helplines designated as harmonised service of social value.
+66 is the total number of chapters in the Bible book of Isaiah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
