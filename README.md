@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-9 is the number of circles of Hell in Dante's Divine Comedy.
+40000000 is the number of times lightning hits the ground 40 million times a year in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
