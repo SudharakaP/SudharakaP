@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-198 is the population of Perlethorpe, Nottinghamshire England.
+3000000000 is the number of base pairs in the human genome.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
