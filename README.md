@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
+9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
