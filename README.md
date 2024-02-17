@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-300 is the number of different beverages the Coca Cola company offers.
+116 is the atomic number of an element temporarily called ununhexium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
