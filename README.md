@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-29 is the highest possible score in a hand of Cribbage or Khanhoo.
+187 is 187th Street in the Washington Heights section of Manhattan.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
