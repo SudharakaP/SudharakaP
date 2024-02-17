@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-187 is 187th Street in the Washington Heights section of Manhattan.
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
