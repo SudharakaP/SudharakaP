@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-712 is the largest known number such that it and its 8th power have no common digits.
+177 is the all-time titles record held by Tennis Hall of Famer Martina Navratilova.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
