@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
+4000 is the weight in pounds that the Great White Shark can grow to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
