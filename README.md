@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
+126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
