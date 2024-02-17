@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-90000 is the average number of hairs that redheads have.
+115 is the atomic number of an element temporarily called ununpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
