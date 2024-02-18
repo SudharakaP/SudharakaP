@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-666 is the number of the devil.
+167 is the number of volcanoes in Indonesia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
