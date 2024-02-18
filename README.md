@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-158 is days it took for the Surprize ship that set sail from England on January 19, 1790, to make port in Port Jackson, Sydney, Australia on June 26, 158 days later.
+24 is the number of bits a computer needs to represent falseColor images (for a maximum of 16,777,216 colours).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
