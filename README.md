@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is the number of odd numbered days during a non-leap year.
+32 is the percentage of employees in the USA who eat lunch and work at the same time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
