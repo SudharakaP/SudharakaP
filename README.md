@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-90000 is the average number of hairs that redheads have.
+400000000000 is the number of stars in the Milky Way galaxy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
