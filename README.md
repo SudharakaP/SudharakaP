@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1311000000 is the population of the People's Republic of China in 2007.
+186 is the number of odd numbered days during a non-leap year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
