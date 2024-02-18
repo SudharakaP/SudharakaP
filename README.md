@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-164 is the number of cards in the set Baseball Talk, released by Topps Baseball Card Company in 1989.
+40 is the number of years of marriage as the ruby wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
