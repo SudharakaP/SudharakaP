@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-85 is the atomic number of astatine.
+94 is the atomic number of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
