@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5500000 is the number of jews killed in the Holocaust.
+20 is the number of baby teeth in the deciduous dentition.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
