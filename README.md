@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-109 is the atomic number of meitnerium.
+121 is the official end score for Cribbage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
