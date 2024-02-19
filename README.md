@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2500 is the number of letters on a typical typed page of text.
+140 is liters of water needed to produce 1 cup of coffee.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
