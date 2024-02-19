@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+161 is the number of games that former German soccer referree Gerd Hennig refereed between 1964 and 1982.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
