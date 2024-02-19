@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
+211 is the SMTP status code system status.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
