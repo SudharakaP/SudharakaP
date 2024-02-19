@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-165 is miles of shoreline of Lake Berryessa in Napa County, California.
+202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
