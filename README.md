@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
+1400000 is the number of species that have been named by the World Resources Institute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
