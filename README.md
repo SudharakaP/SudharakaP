@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-151 is total number of types of Pokémon in the original set.
+45000000000 is the number of galaxies in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
