@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-51 is the atomic number of antimony.
+189 is the rank of Brazil in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
