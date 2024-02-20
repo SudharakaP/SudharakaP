@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15 is the approximate speed in miles per hour a penguin swims at.
+1096000000 is the population of India in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
