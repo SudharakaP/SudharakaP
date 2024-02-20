@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-220 is the SMTP code meaning "service ready".
+196 is the length in miles of the New Orleans and Northeastern Railroad.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
