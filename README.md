@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-139 is the atomic number of Untriennium, an unsynthesized chemical element.
+256 is the number of NFL regular season football games.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
