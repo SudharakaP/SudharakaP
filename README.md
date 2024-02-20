@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
+538 is the total number of votes in the Electoral College of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
