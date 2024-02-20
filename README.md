@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-402000000 is the number of native speakers of English.
+17 is the number of syllables in a haiku (5+7+5).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
