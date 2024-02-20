@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-127 is the highest signed 8 bit integer.
+1400000 is the number of species that have been named by the World Resources Institute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
