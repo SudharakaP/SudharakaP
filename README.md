@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
