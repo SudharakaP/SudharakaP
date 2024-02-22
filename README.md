@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-125000 is the number of average strands of hair in the human head.
+36 is the perfect score on the ACT.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
