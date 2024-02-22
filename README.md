@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-134 is the rank of Mauritania in terms of world population.
+10 is the Number of dots in a tetractys.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
