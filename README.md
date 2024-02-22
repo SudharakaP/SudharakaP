@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
+27 is the number of moons of the planet Uranus.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
