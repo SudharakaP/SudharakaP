@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the number of incarnations of The Doctor in BBC sci-fi series Doctor Who.
+134 is the rank of Mauritania in terms of world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
