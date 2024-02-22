@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-174 is the number of miles the Columbia University Library System collection, with over 9.3 million volumes, would stretch end-to-end.
+38 is the number of slots on an American Roulette wheel (0, 00, and 1 through 36; European roulette does not use the 00 slot and has only 37 slots).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
