@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-229 is the lowest individual batting score not achieved by any player in test match cricket.
+28 is the number of days the curing time of concrete is classically considered to be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
