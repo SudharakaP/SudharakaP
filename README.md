@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
+129 is the atomic number of Unbiennium, an element yet to be discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
