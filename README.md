@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the cartridge version of 35mm photographic film, used widely in still photogaphy.
+490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
