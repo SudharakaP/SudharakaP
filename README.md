@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is the Exit status indicated by Mac App Store software when receipt validation fails.
+193 is the number of member states of the United Nations as of 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
