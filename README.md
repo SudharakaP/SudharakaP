@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-Infinity is the number of universes in multiverse theory.
+63 is the number of chromosomes found in the offspring of a donkey and a horse.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
