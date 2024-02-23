@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-33 is the temperature at which water boils according to the Newton scale.
+173 is the Exit status indicated by Mac App Store software when receipt validation fails.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
