@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25 is the minimum age of candidates for election to the United States House of Representatives.
+132 is the rank of Uruguay in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
