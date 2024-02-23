@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-160 is the number of characters permitted in a standard short message service in Australia and Europe.
+173 is the number of hair strands used to animate Rapunzel's 70 meter long hair in Tangled (2010).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
