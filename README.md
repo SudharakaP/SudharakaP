@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
+6 is the number of days taken to create the world by Yahweh in the Old Testament Book of Genesis, and the number of the day on which humankind were created.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
