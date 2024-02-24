@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-53 is the number of bytes in an Asynchronous Transfer Mode packet.
+196 is the rank of Vanuatu in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
