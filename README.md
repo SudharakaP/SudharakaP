@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is number of performers in a trio.
+53 is the total number of national football associations of UEFA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
