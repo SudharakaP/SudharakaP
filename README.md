@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-343 is the number of frames in which U.S. President John F. Kennedy's presidential limousine can be seen in the Zapruder film.
+87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
