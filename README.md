@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3000 is the number of gowns Queen Elizabeth I of England owned when she died.
+53 is the maximum number of facial muscles a smile can require.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
