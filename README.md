@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-175 is the number of films that actress Rose Tapley appeared in.
+59 is the number of days, approximately in two lunar months.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
