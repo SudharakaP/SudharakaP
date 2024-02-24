@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the first magic number in physics.
+177 is the all-time titles record held by Tennis Hall of Famer Martina Navratilova.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
