@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-587 is the outgoing port for email message submission.
+250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
