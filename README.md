@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the top speed in miles per hours of the the Porsche Cayenne Turbo S automobile.
+121 is the number for voicemail for mobile phones on the Vodafone network.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
