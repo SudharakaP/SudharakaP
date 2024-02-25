@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is the number of semicircular canals a human ear has.
+78 is the atomic number of platinum.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
