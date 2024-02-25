@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-138 is the atomic number of Untrioctium, a temporary chemical element.
+500 is the number of detectable earthquakes in the world each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
