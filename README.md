@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the average number of heartbeats per minute for a resting adult.
+11 is the number of players in a field hockey team.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
