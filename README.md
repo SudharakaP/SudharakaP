@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the number of lasers in the National Ignition Facility (NIF) at Lawrence Livermore National Laboratory in Livermore, California.
+6000000 is the number of beavers in Canada before the fur trade started.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
