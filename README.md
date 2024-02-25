@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2055001 is the number of people employed by Wal-mart in 2007.
+104 is the number of guns on Admiral Horatio Nelson's flagship HMS Victory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
