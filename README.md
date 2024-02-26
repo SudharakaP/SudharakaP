@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-82 is the number of games in an NBA or NHL regular season.
+562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
