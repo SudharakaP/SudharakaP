@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-213 is the code for character "Õ" in codepages such as ISO-8859-1 and UTF-8.
+900000000 is the approximate number of trees cut down in a year to make the raw materials for US pulp mills and paper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
