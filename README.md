@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is minuscule 195 is a Greek minuscule manuscript of the New Testament, on parchment.
+54 is the number of cards in a deck of playing cards, if two jokers are included.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
