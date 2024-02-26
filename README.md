@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15 is the number of days in each of the 24 cycles of the Chinese calendar.
+17 is the number of the raka'ahs that Muslims perform during Salah on a daily basis.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
