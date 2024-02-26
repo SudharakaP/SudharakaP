@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the standard size of drum in US gallons.
+72 is the speed in miles per hour that cheetahs, the fastest land animal, can reach.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
