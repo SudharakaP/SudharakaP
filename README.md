@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
