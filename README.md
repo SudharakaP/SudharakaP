@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
+6000000 is the number of beavers in Canada before the fur trade started.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
