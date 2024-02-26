@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-85 is the atomic number of astatine.
+7 is the maximum number of times a letter-sized paper can be folded in half.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
