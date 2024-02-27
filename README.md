@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-92 is the percentage of water in watermelons.
+30 is the number of days in the months April, June, September and November (and in unusual circumstances February).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
