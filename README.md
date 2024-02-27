@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
+1728 is braces were first invented by Pierre Fauchard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
