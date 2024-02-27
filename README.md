@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-152 is the number of diapers solder in a Pampers Swaddlers pack.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
