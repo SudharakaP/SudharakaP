@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35 is the minimum age of candidates for election to the United States Presidency.
+220 is the common voltage in many countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
