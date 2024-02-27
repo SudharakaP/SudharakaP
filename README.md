@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-166 is luxembourg ranks #166 in world population.
+5500000 is the number of jews killed in the Holocaust.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
