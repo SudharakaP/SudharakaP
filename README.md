@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-352 is the number of international appearances by Kristine Lilly for the USA women's national soccer team, an all-time record.
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
