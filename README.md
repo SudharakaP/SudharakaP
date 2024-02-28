@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
