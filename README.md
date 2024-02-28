@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the rank Grenada in world population.
+131 is the medical emergency telephone number in Chile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
