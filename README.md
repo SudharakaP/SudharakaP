@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
+38 is the number of years it took the Israelites to travel from Kadesh Barnea to the Zered valley in Deuteronomy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
