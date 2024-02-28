@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-201 is the Saros cycle; the next solar eclipse in this cycle is predicted to take place in AD 3223.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
