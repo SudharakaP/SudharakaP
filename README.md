@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
+600 is the maximum credit score considered poor, thus limiting available credit in the USA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
