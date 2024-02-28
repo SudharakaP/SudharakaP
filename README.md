@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
+162 is total number of baseball games each team plays during a regular season in Major League Baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
