@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-63 is the number of groats in a guinea in British pre-decimal currency.
+12 is the pairs of ribs normally in the human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
