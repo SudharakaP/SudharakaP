@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56 is the maximum speed of analog data transmission over a POTS in the 20th century measured in kbit/s.
+146 is the Guinness World Record for the most languages a poem was recited in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
