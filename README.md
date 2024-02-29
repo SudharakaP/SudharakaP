@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5000 is the number of base pairs in the DNA of the simplest viruses.
+168 is the number of episodes that the The Practice ran on ABC from 1997 to 2004.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
