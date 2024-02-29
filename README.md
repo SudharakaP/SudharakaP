@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-433 is the perfect score in the game show Fifteen To One, only ever achieved once in over 2000 shows.
+56 is the maximum speed of analog data transmission over a POTS in the 20th century measured in kbit/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
