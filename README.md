@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-188 is the rank of Tonga in world population.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
