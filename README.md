@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the pairs of ribs normally in the human body.
+20000000 is the weight in tons of the average iceberg.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
