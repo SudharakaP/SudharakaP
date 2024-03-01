@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-183 is the rank of Laos in countries by population density.
+1728 is braces were first invented by Pierre Fauchard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
