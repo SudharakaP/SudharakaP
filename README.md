@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the fire emergency telephone number in Austria.
+649 is the number of Pokémon as of Pokémon Black and White versions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
