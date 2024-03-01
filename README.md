@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5000 is the number of base pairs in the DNA of the simplest viruses.
+101 is the number identifying number of several infantry units in various militaries across the world, such as the American and Israeli paratrooper brigades.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
