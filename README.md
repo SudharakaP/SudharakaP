@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-78 is the atomic number of platinum.
+66 is the total number of chapters in the Bible book of Isaiah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
