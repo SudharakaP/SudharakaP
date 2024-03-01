@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-69 is the atomic number of thulium, a lanthanide.
+6 is the number of feet below ground level a coffin is traditionally buried.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
