@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-365 is the number of solar days in the mean tropical year.
+18 is the number of bronze monks the Shaolin temple had in Chinese folklore.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
