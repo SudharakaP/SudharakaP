@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-77 is the atomic number of iridium.
+190 is the population of Arguisuelas, Castile-La Mancha, Spain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
