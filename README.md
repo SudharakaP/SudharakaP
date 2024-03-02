@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+40 is the Eddington–Dirac number.
+15 is the length in miles of a train of boxcars that can be filled from recycled paper in the USA every day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
