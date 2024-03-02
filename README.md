@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-44 is the percentage of kids who watch television before they go to sleep in the US.
+80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
