@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-145 is the atomic number of Unquadpentium.
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
