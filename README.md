@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
+587 is the outgoing port for email message submission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
