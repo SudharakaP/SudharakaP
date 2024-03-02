@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4200 is the number of standard size of a legion in the Roman Republic.
+94 is the length of an NBA court in feet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
