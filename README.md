@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-168 is the number of triples that Shoeless Joe Jackson hit in his MLB career.
+190 is the rank of Seychelles in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
