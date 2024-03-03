@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the rank Grenada in world population.
+5200 is the number of standard size of a legion in the Roman Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
