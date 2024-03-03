@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-695 is the number of people dead in the single deadliest tornado in United States history (the F5 Tri-State Tornado in 1925).
+93 is that approximate distance in millions of miles the Sun is away from the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
