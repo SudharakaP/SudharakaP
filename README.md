@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-211 is the SMTP status code system status.
+115 is the atomic number of an element temporarily called ununpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
