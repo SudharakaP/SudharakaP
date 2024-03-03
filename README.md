@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-175 is years Harriet (1830–2006) the Galápagos tortoise lived.
+1337 is the weight in pounds of the biggest pumpkin in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
