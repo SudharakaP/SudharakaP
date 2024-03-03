@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-66 is the total number of chapters in the Bible book of Isaiah.
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
