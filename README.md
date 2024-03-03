@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4 is the maximal number of horses in one row for carriage.
+30 is the minimum age for United States senators.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
