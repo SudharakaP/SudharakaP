@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35 is the minimum age of candidates for election to the United States Presidency.
+525998433 is the number of distinct websites as of November 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
