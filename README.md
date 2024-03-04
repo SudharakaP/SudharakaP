@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-117 is the serial number of protagonist John from the Halo Series.
+649 is the number of Pokémon as of Pokémon Black and White versions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
