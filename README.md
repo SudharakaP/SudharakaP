@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-538 is the total number of votes in the Electoral College of the United States.
+1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
