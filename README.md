@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
