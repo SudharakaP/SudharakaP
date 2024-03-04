@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-106 is the maximum number of characters filenames can have in Joliet, an extension to the ISO 9660 file system.
+153 is the ordinal number of the coat of arms of Komi Republic in the State Heraldic Register of the Russian Federation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
