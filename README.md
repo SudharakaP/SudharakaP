@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-433 is the perfect score in the game show Fifteen To One, only ever achieved once in over 2000 shows.
+200 is degrees in a human"s field of vision (approximately).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
