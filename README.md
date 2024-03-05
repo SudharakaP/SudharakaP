@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000 is the weight in tons of the average iceberg.
+182 is the atomic number of an element temporarily called Unoctbium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
