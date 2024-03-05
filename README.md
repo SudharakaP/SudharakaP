@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-300 is the number of different beverages the Coca Cola company offers.
+93 is the atomic number of neptunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
