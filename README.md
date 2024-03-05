@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-13 is the number of unique ranks in a suit in a pack of cards.
+58 is the number of counties in California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
