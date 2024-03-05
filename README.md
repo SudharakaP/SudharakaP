@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-16777216 is the number of different colors that can be generated using the hex code system in HTML.
+175 is the number of weeks that professional golfer David Toms spent in the top-10 of the Official World Golf Rankings between 2001 and 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
