@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-225 is the longest distance in miles a deepwater lobster has been recorded to travel.
+227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
