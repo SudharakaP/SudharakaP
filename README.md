@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-364 is the total number of gifts received in the song "The Twelve Days of Christmas".
+1982 is the average price for a major league baseball game ticket in 2004 in cents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
