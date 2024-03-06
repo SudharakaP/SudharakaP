@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-41 is the number of times Paul McCartney sings the phrase "Let It Be" in the Beatles' hit Let It Be.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
