@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-78 is the total number of gifts in the song The Twelve Days of Christmas.
+31 is the number of musical triads (12 major, 12 minor, 4 diminished, and 3 augmented).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
