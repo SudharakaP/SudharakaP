@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-31 is the number of musical triads (12 major, 12 minor, 4 diminished, and 3 augmented).
+1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
