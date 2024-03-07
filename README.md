@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
+88 is the number of keys on a piano (36 black and 52 white).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
