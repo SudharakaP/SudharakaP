@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
+87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
