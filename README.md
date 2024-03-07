@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-366 is the number of days in a leap year.
+161 is the number of episodes the TV series The Avengers ran from 1961 to 1969.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
