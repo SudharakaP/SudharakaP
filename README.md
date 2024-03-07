@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172 is the record in miles per hour of John White's shot in squash.
+137 is the atomic number of an element not yet observed called Untriseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
