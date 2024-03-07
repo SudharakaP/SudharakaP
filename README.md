@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
+13 is the number of Oscar nominations of actress Meryl Streep, who holds the record for the most Oscar nominated actress.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
