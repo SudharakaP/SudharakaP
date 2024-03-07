@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-86 is the device number for a lockout relay function in electrical circuit protection schemes.
+10 is the number of kingdoms in Five Dynasties and Ten Kingdoms Period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
