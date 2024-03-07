@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the height of the World's tallest thermometer in feet located in Baker, California.
+4.52e+46 is the upper bound for the number of legal chess positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
