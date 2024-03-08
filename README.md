@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1728 is braces were first invented by Pierre Fauchard.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
