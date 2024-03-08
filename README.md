@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is the standard number of days in the school year in most areas of the USA.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
