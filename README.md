@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3000000000 is the number of base pairs in the human genome.
+84 is the atomic number of polonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
