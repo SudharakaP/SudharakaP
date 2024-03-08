@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3400000000 is the number of total number of speakers of Indo-European languages.
+180 is the standard number of days in the school year in most areas of the USA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
