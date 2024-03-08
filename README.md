@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-177 is the all-time titles record held by Tennis Hall of Famer Martina Navratilova.
+386 is the number of Pokémon in the 3rd Generation National Pokédex.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
