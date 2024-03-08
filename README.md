@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-360000 is the number of words definitions in the New Oxford Dictionary of English.
+32 is the number of rays in the Japanese Rising Sun on the cover of Incubus' 2006 album Light Grenades.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
