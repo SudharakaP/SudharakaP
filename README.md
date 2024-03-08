@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-42 is the angle in degrees for which a rainbow appears or the critical angle.
+1600000 is the number of people employed by the Indian railway system in India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
