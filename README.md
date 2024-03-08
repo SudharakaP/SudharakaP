@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-19 is the final year a person is a teenager.
+197 is the approximate atomic mass of Gold.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
