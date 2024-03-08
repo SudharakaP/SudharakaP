@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+220 is the SMTP code meaning "service ready".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
