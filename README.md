@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-538 is the total number of votes in the Electoral College of the United States.
+213 is the radical meaning "turtle", one of only two of the 214 Kangxi radicals that are composed of 16 strokes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
