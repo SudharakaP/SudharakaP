@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-24 is the number of hours in a day.
+45 is the sapphire wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
