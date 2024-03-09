@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the telephone number "to report a car breakdown on the highway in Austria.
+1e+83 is the number of fundamental particles in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
