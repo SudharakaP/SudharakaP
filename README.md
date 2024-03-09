@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100 is the number of runs required for a cricket batsman to score a century, a significant milestone.
+101 is the number of the first check for new checking account in the US.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
