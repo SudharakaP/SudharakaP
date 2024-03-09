@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the police non-emergency number in Denmark.
+58 is the number of counties in California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
