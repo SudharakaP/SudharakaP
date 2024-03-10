@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-138 is essendon's losing margin against Adelaide in round 10 of the 2006 AFL season.
+105 is the number of surat al-Fil in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
