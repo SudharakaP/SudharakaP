@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the number of days in the months April, June, September and November (and in unusual circumstances February).
+714 is the number of home runs Babe Ruth scored in his career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
