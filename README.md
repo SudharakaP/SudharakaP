@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-464 is the number of legal positions of the kings in chess, not counting mirrored positions.
+44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
