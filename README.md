@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-43687 is the number of toilet related accidents in the United States in 1996.
+65 is the minimum grade required to pass an exam, or class, in many areas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
