@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
+30 is the height in feet that stalks of sugar cane can reach up to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
