@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-230 is the country code for Mauritius.
+240 is distinct solutions of the Soma cube puzzle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
