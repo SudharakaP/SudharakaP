@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-184 is a number believed to be a magic number in nuclear physics.
+88 is the number of keys on a piano (36 black and 52 white).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
