@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
+613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
