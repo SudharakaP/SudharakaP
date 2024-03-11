@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is the atomic number of an element temporarily called Unocthexium.
+-Infinity is negative infinity.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
