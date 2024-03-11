@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the police non-emergency number in Denmark.
+230 is the country code for Mauritius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
