@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-174 is the populatiokn of Aupaluk, Quebec (as of 2006).
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
