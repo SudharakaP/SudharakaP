@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the size, in bits, of certain integer data types, used in computer representations of numbers.
+185 is the name of an improve improv game where, given a subject from the audience, players make up jokes beginning with "185 (blanks) walk into a bar.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
