@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-215 is the Dewey Decimal Classification for Science and religion.
+22 is the number of yards in a chain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
