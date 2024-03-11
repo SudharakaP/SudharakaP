@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4200000 is the number of couples in the United States that live together but are not married.
+9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
