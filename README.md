@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is the number of odd numbered days during a non-leap year.
+186 is the rank of Somaliland in countries by population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
