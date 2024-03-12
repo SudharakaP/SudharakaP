@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is the cholesterol level above which is considered high risk.
+172 is the record in miles per hour of John White's shot in squash.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
