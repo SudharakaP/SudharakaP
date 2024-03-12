@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-175 is the weight in grams of a flying disc used in Ultimate.
+1 is the number of Gods in monotheism.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
