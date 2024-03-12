@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the atomic number of an element temporarily called untriquadium.
+90000 is the average number of hairs that redheads have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
