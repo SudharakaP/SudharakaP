@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the length in minutes of the Right Stuff.
+649 is the number of Pokémon as of Pokémon Black and White versions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
