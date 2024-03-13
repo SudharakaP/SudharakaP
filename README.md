@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-220 is the SMTP code meaning "service ready".
+173 is years it takes for all the water in Lake Superior to be changed.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
