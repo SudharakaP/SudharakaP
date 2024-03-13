@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is years it takes for all the water in Lake Superior to be changed.
+91 is the atomic number of protactinium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
