@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-163 is the atomic number of an element temporarily called Unhextrium.
+165 is miles of shoreline of Lake Berryessa in Napa County, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
