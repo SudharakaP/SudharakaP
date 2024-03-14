@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-850 is the maximum possible Fair Isaac credit score.
+85 is the IQ and nickname of Aaron in Alien 3.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
