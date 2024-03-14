@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
+106000000000 is the number of homo sapiens that have lived since speciation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
