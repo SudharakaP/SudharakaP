@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150000000 is the number of items held in the British Library.
+2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
