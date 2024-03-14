@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-84 is the atomic number of polonium.
+202 is the area code assigned to Washington D.C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
