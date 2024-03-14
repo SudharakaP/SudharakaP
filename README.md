@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the record number of goals scored by France at the 1998 World Cup.
+313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
