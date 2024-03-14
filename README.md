@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-161 is the the number of theatrical shorts of Tom and Jerry cartoons between 1940 and 1967.
+30 is the minimum age for United States senators.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
