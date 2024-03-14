@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
