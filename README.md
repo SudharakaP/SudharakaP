@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the minimum age for United States senators.
+145 is the atomic number of Unquadpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
