@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172 is the number that appears on the back of the US $5 dollar bill (in the bushes at the base of the Lincoln Memorial).
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
