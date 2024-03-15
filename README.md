@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-169 is the number of miles that Thomas Sopwith, an English aviation pioneer flew in 3 hours, 40 minutes on December 18, 1910.
+248 is the number of organs in the human body as traditionally depicted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
