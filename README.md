@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-70 is the distance (meter) from archer to targets in Olympic Archery.
+4200 is the number of standard size of a legion in the Roman Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
