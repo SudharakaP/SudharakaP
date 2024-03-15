@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-911 is the number of days after September 11th that the Madrid Attack took place.
+143 is the number of milligrams of caffeine in AMP Energy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
