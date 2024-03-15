@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the number of days of the average life span of a single red blood cell.
+1300 is the number of babies born prematurely in the USA every day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
