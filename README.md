@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the standard length (year) of a term in office for a United States senator.
+3825000 is the number of entries on Wikipedia in the English language.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
