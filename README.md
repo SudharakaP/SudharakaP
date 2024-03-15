@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-16 is the minimum age for getting an adult job in most states and provinces across the globe.
+43687 is the number of toilet related accidents in the United States in 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
