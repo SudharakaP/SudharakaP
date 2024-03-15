@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
+1979 is a song by American alternative rock band The Smashing Pumpkins.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
