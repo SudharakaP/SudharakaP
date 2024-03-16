@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-231 is the number of cubic inches in a U.S. liquid gallon.
+174 is the populatiokn of Aupaluk, Quebec (as of 2006).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
