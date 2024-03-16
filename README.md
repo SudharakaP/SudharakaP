@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the duration in years of the Thirty Years' War - 1618 to 1648.
+161 is the number of games that former German soccer referree Gerd Hennig refereed between 1964 and 1982.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
