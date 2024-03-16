@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-165 is miles of shoreline of Lake Berryessa in Napa County, California.
+197 is the approximate atomic mass of Gold.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
