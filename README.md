@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-273 is the zero of the Celsius temperature scale (to the nearest whole number) in Kelvin.
+81 is the number of prayers said in the Rosary in each night.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
