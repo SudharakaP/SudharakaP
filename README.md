@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-450 is a perfect score in Canadian five-pin bowling.
+107 is the atomic number of bohrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
