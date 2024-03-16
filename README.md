@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-207 is the area code for the US state of Maine.
+5 is the number of babies born in a quintuplet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
