@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-69 is the number Bill and Ted were thinking of when talking to their future selves.
+216 is the number of colors formed by a 6 color cube, sometimes known as the web-safe color palette.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
