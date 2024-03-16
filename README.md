@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the electricity emergency telephone number in Egypt.
+30 is the duration in years of the Thirty Years' War - 1618 to 1648.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
