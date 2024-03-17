@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-38 is the number of years it took the Israelites to travel from Kadesh Barnea to the Zered valley in Deuteronomy.
+134 is the number of episodes of the TV series Xena Warrior Princess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
