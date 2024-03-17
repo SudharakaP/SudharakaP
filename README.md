@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the number worn by the Clemson Tigers' record breaking running back C.J.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
