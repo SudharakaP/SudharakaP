@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22 is the number of letters in the Hebrew alphabet.
+172000 is tons of chocolate produced in Belgium in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
