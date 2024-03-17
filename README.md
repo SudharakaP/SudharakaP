@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-94 is the atomic number of plutonium.
+28 is the number of days in the average human menstrual cycle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
