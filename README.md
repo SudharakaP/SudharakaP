@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the length in miles of The Wild West Relay team running relay race held annually in August in Colorado.
+156 is the number of episodes the TV series The West Wing ran on NBC from 1999 to 2006, including an extra episode.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
