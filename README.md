@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25 is the number of cents in a quarter.
+72 is the number of disciples of Confucius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
