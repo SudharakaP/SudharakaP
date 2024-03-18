@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-95 is the atomic number of americium.
+97 is the number of different characters that can be used with a standard English Keyboard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
