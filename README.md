@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+63 is the estimate by Archimedes in The Sand Reckoner of the total number of grains of sand that could fit into the entire cosmos.
+149 is the number of goals a Madagascar soccer team scored against itself after the coach argued a call, and players kicked the ball into their own net 149 times.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
