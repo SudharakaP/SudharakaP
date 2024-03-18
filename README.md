@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the record number of goals scored by France at the 1998 World Cup.
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
