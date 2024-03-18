@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-107 is the number of Nobel Prize in Literature laureates.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
