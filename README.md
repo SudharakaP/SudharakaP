@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4.52e+46 is the upper bound for the number of legal chess positions.
+168 is the number of episodes that the The Practice ran on ABC from 1997 to 2004.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
