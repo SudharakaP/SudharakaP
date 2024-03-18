@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-29 is the highest possible score in a hand of Cribbage or Khanhoo.
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
