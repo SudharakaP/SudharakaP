@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-42 is the angle in degrees for which a rainbow appears or the critical angle.
+79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
