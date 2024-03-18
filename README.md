@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is number of performers in a trio.
+136 is the lower frequency band in kHz that amateur radio operators are allowed to transmit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
