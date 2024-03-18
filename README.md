@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1000 is the number of elephants it took to bring in the material to build the Taj Mahal from various parts of India.
+40 is the percentage of U.S. paper currency in circulation that was counterfeit by the end of the Civil War.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
