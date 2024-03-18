@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61 is the number of points required to win a "standard" game of Cribbage.
+204 is the HTTP status code indicating the request was received but there is no response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
