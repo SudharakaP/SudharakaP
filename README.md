@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-95 is the atomic number of americium.
+189 is the atomic number of an element temporarily called Unoctennium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
