@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+40 is the Eddington–Dirac number.
+1 is the number of moons orbiting Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
