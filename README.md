@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is a number considred unlucky in enduro, given to a race entrant and is colloquially known as a "blind pew".
+8674 is the number of unique words in the Hebrew Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
