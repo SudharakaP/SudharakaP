@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-215 is the Dewey Decimal Classification for Science and religion.
+95 is the atomic number of americium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
