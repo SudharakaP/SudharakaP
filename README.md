@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-130 is the approximate maximum height in meters of trees.
+208 is the heaviest stable isotope of any element (lead).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
