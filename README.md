@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
+27 is the number of grains in some Buddhist rosary (108 divided by 4).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
