@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-210 is the world speed record (km/h) for a mountain bike on a ski slope.
+186 is the number of odd numbered days during a non-leap year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
