@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+132 is the number of episodes of the TV series Martin that ran on Fox from 1992 to 1997.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
