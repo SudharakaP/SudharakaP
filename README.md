@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5500000000000000 is the number of estimated ants on Earth alive at any one time.
+390 is the speed in feet per second that nerve impulses for muscle position travel at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
