@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
+950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
