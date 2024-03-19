@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-78 is the number of lines that make up Metatron's Cube.
+65 is the minimum grade required to pass an exam, or class, in many areas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
