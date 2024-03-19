@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-167 is the kilometers in length of Andros, Bahamas.
+112 is the atomic number of the element copernicium (formerly called ununbium).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
