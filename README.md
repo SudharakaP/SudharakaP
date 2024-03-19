@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-103 is the atomic number of lawrencium, an actinide.
+159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
