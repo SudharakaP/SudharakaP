@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
