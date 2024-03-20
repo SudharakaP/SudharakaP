@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-216 is the ISO's standard for paper sizes.
+251 is the last and most powerful prime mover (engine) designed and built by the American Locomotive Company (ALCO).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
