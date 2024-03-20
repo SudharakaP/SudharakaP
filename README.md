@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-165 is miles of shoreline of Lake Berryessa in Napa County, California.
+27 is the number of outs in a regulation baseball game for each team at all adult levels.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
