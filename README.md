@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-174 is the populatiokn of Aupaluk, Quebec (as of 2006).
+10 is the average thickness of the Arctic ice sheet in feet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
