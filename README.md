@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
+136 is the number of episodes the TV series Fame ran on NBC and syndication from 1982 to 1987.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
