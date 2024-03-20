@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
+117 is the substitute for the number 17, which is considered unlucky in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
