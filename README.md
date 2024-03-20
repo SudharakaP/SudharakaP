@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
+153 is the code for malignant neoplasm of the colon in the International Statistical Classification of Diseases and Related Health Problems.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
