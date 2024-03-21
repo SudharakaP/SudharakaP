@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
+40000000 is the number of Americans that have "chronic halitosis," which is bad breath that never goes away.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
