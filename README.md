@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-27 is the number of countries in the European Union (as of August 2011).
+72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
