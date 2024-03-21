@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-126 is the number of years that Gilgamesh reigned according to the Sumerian king list.
+179 is the number of even numbered days of the year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
