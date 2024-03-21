@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-213 is the radical meaning "turtle", one of only two of the 214 Kangxi radicals that are composed of 16 strokes.
+500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
