@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
+1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
