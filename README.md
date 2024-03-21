@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-202 is the area code assigned to Washington D.C.
+587 is the outgoing port for email message submission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
