@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
+56000000000 is the number of web pages indexed by Google as of 2010.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
