@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-220 is the SMTP code meaning "service ready".
+145 is the atomic number of Unquadpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
