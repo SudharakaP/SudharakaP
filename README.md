@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1311000000 is the population of the People's Republic of China in 2007.
+168 is the number of the episoodes that Hogan's Heroes ran on CBS from 1965 to 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
