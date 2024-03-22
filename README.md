@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-105 is the atomic number of hahnium, also known as dubnium.
+50 is the traditional number of years in a jubilee period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
