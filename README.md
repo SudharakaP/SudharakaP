@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-402000000 is the number of native speakers of English.
+39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
