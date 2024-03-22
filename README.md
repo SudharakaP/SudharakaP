@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the number of rays in the Japanese Rising Sun on the cover of Incubus' 2006 album Light Grenades.
+1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
