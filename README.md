@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-187 is 187th Street in the Washington Heights section of Manhattan.
+300 is the approximate number of Spartans who fought to death at the Battle of Thermopylae.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
