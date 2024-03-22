@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150000000 is the number of items held in the British Library.
+5 is the number of basic tastes (sweet, salty, sour, bitter, and umami).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
