@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
+5 is the most common number of gears for automobiles with manual transmission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
