@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
+105 is the atomic number of hahnium, also known as dubnium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
