@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110000 is the average number of hairs that people with black hair have.
+68 is the ideal temperature (F) for developing black-and-white film.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
