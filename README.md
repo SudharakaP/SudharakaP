@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-194 is the rank of Isle of Man in world population.
+189 is the rank of Jersey in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
