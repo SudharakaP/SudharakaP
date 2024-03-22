@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the name of an improve improv game where, given a subject from the audience, players make up jokes beginning with "185 (blanks) walk into a bar.
+334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
