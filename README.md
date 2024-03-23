@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is the cholesterol level above which is considered high risk.
+51 is the atomic number of antimony.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
