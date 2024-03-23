@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1400000 is the number of species that have been named by the World Resources Institute.
+42 is the number of museums in Amsterdam (Netherlands has the highest concentration of museums in the world).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
