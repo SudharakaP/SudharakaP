@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
+197 is the number of years that Fu Xi lived for altogether.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
