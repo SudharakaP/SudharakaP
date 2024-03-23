@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-267000 is the number of words in James Joyce's Ulysses.
+82 is the atomic number of lead.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
