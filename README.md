@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+164 is the number of episodes that the TV show Mad About You ran on NBC from 1992 to 1999.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
