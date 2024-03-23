@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
+44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
