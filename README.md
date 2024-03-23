@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-164 is the number of episodes that the TV show Mad About You ran on NBC from 1992 to 1999.
+151 is the height of the Statue of Liberty from the base to the torch in feet (46 m).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
