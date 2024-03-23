@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the distance a single playing card was thrown in feet by Kevin St. Onge to set a Guinness World Record.
+180 is the number of Death in the In the Final Destination series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
