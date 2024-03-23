@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8674 is the number of unique words in the Hebrew Bible.
+118 is the beginning of directory enquiries numbers in the United Kingdom,France, Germany, Latvia, Sweden, Ireland, and Turkey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
