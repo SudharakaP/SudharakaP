@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
+1e+63 is the estimate by Archimedes in The Sand Reckoner of the total number of grains of sand that could fit into the entire cosmos.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
