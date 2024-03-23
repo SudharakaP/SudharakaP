@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-38 is the number of surviving plays written by William Shakespeare.
+614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
