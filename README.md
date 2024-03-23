@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-65 is the minimum grade required to pass an exam, or class, in many areas.
+59 is the number of days, approximately in two lunar months.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
