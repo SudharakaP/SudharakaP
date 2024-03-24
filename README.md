@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the number of feet below ground level a coffin is traditionally buried.
+179 is the number of games played in the MLB with 162 games in the regular season and the potential 17 post-season games.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
