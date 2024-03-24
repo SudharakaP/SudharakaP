@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-131 is the medical emergency telephone number in Chile.
+123 is the emergency telephone number in Colombia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
