@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1728 is braces were first invented by Pierre Fauchard.
+96 is the rating of Skyrim on metacritic.com.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
