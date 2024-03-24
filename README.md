@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-198 is the atomic number of an element temporarily called Unennoctium.
+151 is the total number of Pokémon in the original set, counting Mewtwo and Mew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
