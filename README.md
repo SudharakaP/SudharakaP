@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the length of the Adda River in Italy.
+200 is degrees in a human"s field of vision (approximately).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
