@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-123 is the emergency telephone number in Colombia.
+202 is the area code assigned to Washington D.C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
