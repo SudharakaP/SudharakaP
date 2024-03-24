@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-210 is the world speed record (km/h) for a mountain bike on a ski slope.
+197 is the rank of the Solomon Islands in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
