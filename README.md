@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-167 is the number of tennis titles Martina Navratilova has, an all-time record for men or women.
+195 is minuscule 195 is a Greek minuscule manuscript of the New Testament, on parchment.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
