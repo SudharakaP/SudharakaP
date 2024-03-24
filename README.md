@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1000 is the number of elephants it took to bring in the material to build the Taj Mahal from various parts of India.
+32 is the number of pages in the average comic book (not including the cover).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
