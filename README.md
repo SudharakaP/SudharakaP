@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-45000000000 is the number of galaxies in the observable universe.
+175 is the rank of Belize in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
