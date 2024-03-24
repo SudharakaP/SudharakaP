@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500 is the number of detectable earthquakes in the world each year.
+195 is the number of episodes of Chickenman series which began in 1966.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
