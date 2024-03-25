@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-44 is the number of candles in a box of Hanukkah candles.
+9 is the number of circles of Hell in Dante's Divine Comedy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
