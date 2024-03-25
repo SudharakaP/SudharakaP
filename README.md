@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-215 is the Dewey Decimal Classification for Science and religion.
+32 is the number of teeth of a full set of teeth in an adult human, including wisdom teeth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
