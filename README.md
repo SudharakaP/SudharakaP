@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-102 is the number of floors in Empire State Building in New York City.
+93 is the atomic number of neptunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
