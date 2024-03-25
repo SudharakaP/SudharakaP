@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
+2 is the lowest channel of television in the United States, Canada, Argentina and Mexico on which television signals are broadcast.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
