@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+40 is the Eddington–Dirac number.
+15 is the number of minutes carbon monoxide can kill a person in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
