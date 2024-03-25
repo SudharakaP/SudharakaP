@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35000 is the number of genes in a human being.
+199 is the number of goals scored by Randy Burridge in his NHL career between 1985-1998.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
