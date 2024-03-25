@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is number of codons in the RNA codon table under genetic code.
+128 is the atomic number of unbioctium, an element yet to be discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
