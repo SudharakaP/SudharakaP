@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-Infinity is the estimation of the game-tree complexity in the game of Go.
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
