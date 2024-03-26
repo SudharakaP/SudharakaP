@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4200000 is the number of couples in the United States that live together but are not married.
+243 is the number of isotopes or variations of elements calculated by Dr. Plichta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
