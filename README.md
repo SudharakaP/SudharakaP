@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-470 is the minimum length in yards from the tee to the hole on a Par 5.
+43687 is the number of toilet related accidents in the United States in 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
