@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-108 is the percentage volume expansion of freezing water.
+198 is the atomic number of an element temporarily called Unennoctium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
