@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
+1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
