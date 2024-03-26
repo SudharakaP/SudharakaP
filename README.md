@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is a police term for a murder or homicide.
+37 is the number of plays William Shakespeare is thought to have written (counting Henry IV as three parts).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
