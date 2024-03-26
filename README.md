@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-84 is the atomic number of polonium.
+128 is a sacred number honored by Beans for many generations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
