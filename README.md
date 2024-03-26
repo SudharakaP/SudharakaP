@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15 is the length in miles of a train of boxcars that can be filled from recycled paper in the USA every day.
+1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
