@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is the number of surat al-Falaq in the Qur'an.
+10 is the number of spacetime dimensions in some superstring theories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
