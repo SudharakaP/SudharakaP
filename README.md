@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1979 is a song by American alternative rock band The Smashing Pumpkins.
+88 is a standard length of playing cards in mm.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
