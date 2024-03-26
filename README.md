@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-166 is the number of episodes that the Flintstones ran on ABC from 1960 to 1966.
+50 is the number of states in the United States of America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
