@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-200 is the minimum number of varieties of watermelons grown in the U.S.
+211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
