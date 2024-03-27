@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the number of months in a year.
+168 is hours in a week.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
