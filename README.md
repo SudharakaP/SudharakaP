@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-46 is the number of mountains in the 46 peaks of the Adirondack mountain range.
+352 is the number of international appearances by Kristine Lilly for the USA women's national soccer team, an all-time record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
