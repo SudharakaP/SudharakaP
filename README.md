@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
+6 is the number of points received for a touchdown in American and Canadian football.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
