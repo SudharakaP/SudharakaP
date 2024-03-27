@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-215 is the Dewey Decimal Classification for Science and religion.
+161 is the number of kilometers in about 100 miles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
