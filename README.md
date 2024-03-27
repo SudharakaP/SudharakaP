@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-390 is the speed in feet per second that nerve impulses for muscle position travel at.
+10000 is the gallons of saliva an average human produces in a lifetime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
