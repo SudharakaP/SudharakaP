@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-129 is the atomic number of Unbiennium, an element yet to be discovered.
+114 is the element with the highest number of protons yet discovered, Ununquadium with the highest number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
