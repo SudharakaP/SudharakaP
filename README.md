@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the total number of cards in the game Racko.
+175 is the weight in grams of a flying disc used in Ultimate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
