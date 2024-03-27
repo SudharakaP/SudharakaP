@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1337 is the weight in pounds of the biggest pumpkin in the world.
+82 is the atomic number of lead.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
