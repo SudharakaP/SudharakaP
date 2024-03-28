@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1337 is the number that spells "leet" in leetspeak.
+104 is the number of Corinthian columns in the Temple of Olympian Zeus, the largest temple ever built in Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
