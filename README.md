@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+21 is the number of grains of sand on all the world's beaches put together.
+15250 is the number of times the average driver will honk in a lifetime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
