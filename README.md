@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-13 is the number of unique ranks in a suit in a pack of cards.
+192 is the number of episodes with Moose, a dog, playing Eddie Crane on Frasier.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
