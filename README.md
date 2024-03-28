@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+83 is the number of fundamental particles in the observable universe.
+30 is the number of uprights that formed the Sarsen Circle at Stonehenge, also the supposed number of holes forming the arrays of Y and Z Holes at Stonehenge.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
