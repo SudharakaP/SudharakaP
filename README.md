@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
+80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
