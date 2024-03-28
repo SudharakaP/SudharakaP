@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-366 is the number of days in a leap year.
+3500000000000 is the estimated population of fish in the ocean.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
