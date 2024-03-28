@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-194 is the NHL record number of saves, set by Bruce Sutter in 1982.
+1e+83 is the number of fundamental particles in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
