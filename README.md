@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-52 is the approximate number of weeks in a year.
+7 is the number of main islands of mythological Atlantis.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
