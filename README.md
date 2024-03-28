@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-167 is width in feet of the Lincoln Memorial Reflecting Pool, which is is 2,029 feet (618 m) long and 167 feet (51 m) wide.
+155 is the number of performances Ivanhoe, the romantic opera that opened in January 31, 1891, ran for.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
