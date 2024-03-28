@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-184 is a weight class in collegiate wrestling, 184 lb (83 kg).
+77 is the atomic number of iridium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
