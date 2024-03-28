@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-105 is the number of surat al-Fil in the Qur'an.
+72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
