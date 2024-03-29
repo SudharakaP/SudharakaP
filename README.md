@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56 is the number of Aubrey Holes in the first stage of Stonehenge.
+13 is the number of unique ranks in a suit in a pack of cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
