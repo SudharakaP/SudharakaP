@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-199 is the rank of Highway to Hell (1979) by AC/DC on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
+161 is the number of songs Pink Floyd recorded.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
