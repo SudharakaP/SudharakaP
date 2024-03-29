@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-123 is the atomic number of the yet-to-be-discovered element unbitrium.
+172000 is tons of chocolate produced in Belgium in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
