@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-119 is the default port for unencrypted NNTP connections.
+115 is the atomic number of an element temporarily called ununpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
