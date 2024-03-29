@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
+154 is the period in days that the sun follows on gamma-ray flares.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
