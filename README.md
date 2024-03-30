@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-193 is the number of member states of the United Nations as of 2011.
+126 is the number of years that Gilgamesh reigned according to the Sumerian king list.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
