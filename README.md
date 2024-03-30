@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-189 is the number of irregular verbs in the English language (from "abide" to "write").
+168 is the number of the episoodes that Hogan's Heroes ran on CBS from 1965 to 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
