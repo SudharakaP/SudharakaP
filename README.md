@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
+1e+63 is the estimate by Archimedes in The Sand Reckoner of the total number of grains of sand that could fit into the entire cosmos.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
