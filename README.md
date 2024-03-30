@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-Infinity is the number of universes in multiverse theory.
+165 is miles of shoreline of Lake Berryessa in Napa County, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
