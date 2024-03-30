@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-59 is the number corresponding to the last second in a given minute.
+190 is the number of member states of the United Nations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
