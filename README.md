@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30000 is the number of distinct Chinese characters.
+8674 is the number of unique words in the Hebrew Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
