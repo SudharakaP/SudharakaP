@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the pairs of ribs normally in the human body.
+115 is the atomic number of an element temporarily called ununpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
