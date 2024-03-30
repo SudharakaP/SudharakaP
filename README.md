@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8 is the number of principles of Yong in Chinese calligraphy.
+24 is the maximum number of Knight Companions in the Order of the Garter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
