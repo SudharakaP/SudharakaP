@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
+22 is the number of stars in the Paramount Films logo.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
