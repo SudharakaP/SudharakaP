@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61000 is the average number of people airborne over the US at any given hour.
+40000000 is the number of Americans that have "chronic halitosis," which is bad breath that never goes away.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
