@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-174 is the populatiokn of Aupaluk, Quebec (as of 2006).
+19 is the number of years in 235 lunations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
