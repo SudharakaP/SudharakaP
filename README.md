@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-53 is the port number of UDP and TCP for the Domain Name System protocol.
+1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
