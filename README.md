@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-555 is the number of seats of the airliner A380-800.
+88 is a standard length of playing cards in mm.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
