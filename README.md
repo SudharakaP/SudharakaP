@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40 is the percentage of U.S. paper currency in circulation that was counterfeit by the end of the Civil War.
+188 is the rank of Tonga in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
