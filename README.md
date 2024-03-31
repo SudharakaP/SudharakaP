@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4200 is the number of standard size of a legion in the Roman Republic.
+40 is the percentage of U.S. paper currency in circulation that was counterfeit by the end of the Civil War.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
