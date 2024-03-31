@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-160 is the lowest radio frequency band allocation in meters available to amateur radio operators in most countries.
+186 is the rank of Aruba in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
