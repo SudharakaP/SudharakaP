@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-174 is the rank of Barbados in world population.
+171 is the rank of Bahamas in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
