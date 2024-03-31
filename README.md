@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the number worn by LeBron James in the NBA.
+267000 is the number of words in James Joyce's Ulysses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
