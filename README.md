@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
+55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
