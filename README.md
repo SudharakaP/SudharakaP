@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-129 is the rank of Liberia in world population.
+82 is the number of games in an NBA or NHL regular season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
