@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
+167 is the branch spread in feet of Santa Barbara's Moreton Bay Fig Tree in Santa Barbara, California, which is believed to be the largest Ficus macrophylla in the United States).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
