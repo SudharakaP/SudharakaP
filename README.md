@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-187 is a signature wrestling move by wrestler New Jack (diving elbow drop while holding a steel chair underneath his arm).
+1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
