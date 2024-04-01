@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-71 is the atomic number of lutetium.
+441 is the number of squares on a Super Scrabble board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
