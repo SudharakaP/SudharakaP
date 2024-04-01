@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
+134 is the number of episodes of the TV series Xena Warrior Princess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
