@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61 is the number of points required to win a "standard" game of Cribbage.
+212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
