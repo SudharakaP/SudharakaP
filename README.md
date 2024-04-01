@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-53 is the maximum number of facial muscles a smile can require.
+7 is the maximum number of times a letter-sized paper can be folded in half.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
