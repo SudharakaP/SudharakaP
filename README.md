@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6000000000000000000 is the number of transistor produced worldwide in 2008.
+110000 is the average number of hairs that people with black hair have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
