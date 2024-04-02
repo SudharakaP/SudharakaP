@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-136 is the lower frequency band in kHz that amateur radio operators are allowed to transmit.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
