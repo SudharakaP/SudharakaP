@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the atomic number of the undiscovered chemical element Unbiunium.
+131 is the medical emergency telephone number in Chile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
