@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the average number of heartbeats per minute for a resting adult.
+1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
