@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-31 is the number of flavors of Baskin-Robbins ice cream.
+178 is the rank of Samoa in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
