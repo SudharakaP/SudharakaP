@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1337 is the number that spells "leet" in leetspeak.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
