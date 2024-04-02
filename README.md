@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-89 is the number of units of each colour in the board game Blokus.
+40 is the number of eggs that female alligators lay, which hatch in 60 - 70 days.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
