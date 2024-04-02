@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-168 is the death toll of the 1995 Oklahoma City bombing.
+360000 is the number of words definitions in the New Oxford Dictionary of English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
