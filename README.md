@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7 is the number of periods, or horizontal rows of elements, in the periodic table.
+187 is 187th Street in the Washington Heights section of Manhattan.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
