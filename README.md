@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is the number of spatial dimensions we perceive our universe to have.
+76 is the atomic number of osmium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
