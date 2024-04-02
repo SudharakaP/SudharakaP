@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the consumption in pounds of candy annually per person in Denmark, the country with the highest candy consumption.
+383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
