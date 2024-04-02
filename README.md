@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
