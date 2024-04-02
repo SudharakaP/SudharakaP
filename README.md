@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-156 is the number of episodes the TV series The West Wing ran on NBC from 1999 to 2006, including an extra episode.
+384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
