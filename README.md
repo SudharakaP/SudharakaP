@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the height in kilometres that a volcano can shoot ash into the sky.
+153 is the code for malignant neoplasm of the colon in the International Statistical Classification of Diseases and Related Health Problems.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
