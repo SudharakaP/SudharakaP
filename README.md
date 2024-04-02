@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
+102 is the number of floors in Empire State Building in New York City.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
