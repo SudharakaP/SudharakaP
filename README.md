@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-441 is the number of squares on a Super Scrabble board.
+137 is a radioactive isotope of Caesium formed by nuclear fission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
