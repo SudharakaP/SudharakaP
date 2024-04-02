@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-749 is the pounds of paper products used by an American individual annually on average.
+31 is the number of days in the months January, March, May, July, August, October and December.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
