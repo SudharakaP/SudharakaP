@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is a number that in an astrological aspect is considered to be negative in influence.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
