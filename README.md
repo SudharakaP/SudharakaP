@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-184 is the distance in light years to Eta Aquarii,a star in the constellation Aquarius.
+30 is the height in feet that stalks of sugar cane can reach up to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
