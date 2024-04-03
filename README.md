@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
+194 is the rank of Equatorial Guinea in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
