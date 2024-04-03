@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the life duration of the ovule in hours.
+104 is the atomic number of rutherfordium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
