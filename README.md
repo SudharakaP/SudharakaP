@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-239 is the atomic mass number of the most common isotope of plutonium.
+66 is the total number of chapters in the Bible book of Isaiah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
