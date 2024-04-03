@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-90000 is the average number of hairs that redheads have.
+110 is the atomic number of darmstadtium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
