@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is the number of players that competed in badminton at the 2008 Summer Olympics in Beijing, China.
+220 is the SMTP code meaning "service ready".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
