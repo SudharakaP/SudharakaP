@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3000 is the number of years for which Carpenter ants have been used to close wounds in parts of India, Asia and South America.
+160 is the lowest radio frequency band allocation in meters available to amateur radio operators in most countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
