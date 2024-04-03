@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is the total number of black and white squares on the game board in chess or draughts.
+37 is the cost in cents of the Whopper Sandwich when Burger King first introduced it in 1957.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
