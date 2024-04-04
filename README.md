@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15 is the number of letters in the words "uncopyrightable", "dermatoglyphics", "misconjugatedly", and "hydropneumatics", the longest English words with no repeat letters.
+108 is the number of stitches in an official Major League Baseball baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
