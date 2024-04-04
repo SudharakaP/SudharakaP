@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-124 is a stable isotope of tellurium.
+74 is the atomic number of tungsten.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
