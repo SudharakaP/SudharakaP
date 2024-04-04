@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-125 is the atomic number of the yet-to-be-discovered element Unbipentium.
+134 is the number of episodes of the TV series Xena Warrior Princess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
