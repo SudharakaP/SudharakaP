@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-13 is the number of colonies that formed the United States.
+120 is a file medium format developed by Kodak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
