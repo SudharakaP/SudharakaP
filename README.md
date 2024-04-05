@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is the number of stories (by common reckoning) of the Sears Tower in Chicago.
+161 is the number of kilometers in about 100 miles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
