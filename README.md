@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+7 is the number of estimated objects that can be simultaneously held in human working memory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
