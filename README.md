@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
+6 is the number of basic holes or keys on most woodwind instruments.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
