@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
+110 is the number of stories (by common reckoning) of the Sears Tower in Chicago.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
