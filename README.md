@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5500000 is the number of jews killed in the Holocaust.
+15 is the number of days in each of the 24 cycles of the Chinese calendar.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
