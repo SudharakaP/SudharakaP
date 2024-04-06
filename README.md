@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-62 is the number which Sigmund Freud has an irrational fear of.
+182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
