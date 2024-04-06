@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-108 is the name of a community of and for open source developers, created by Red Hat.
+25 is the number of fruits that a grapefruit cluster can have up to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
