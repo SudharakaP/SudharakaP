@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172 is the rank of Djibouti in world population density.
+108 is the name of a community of and for open source developers, created by Red Hat.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
