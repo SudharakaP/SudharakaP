@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-24 is the maximum number of Knight Companions in the Order of the Garter.
+280000000000000 is the number of possible unique physical addresses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
