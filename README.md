@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-525998433 is the number of distinct websites as of November 2011.
+56 is the number of Aubrey Holes in the first stage of Stonehenge.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
