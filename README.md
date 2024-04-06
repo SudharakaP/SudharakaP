@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-19 is the final year a person is a teenager.
+132 is the rank of Uruguay in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
