@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is the number of players that competed in badminton at the 2008 Summer Olympics in Beijing, China.
+80 is the length (years) of the Eighty Years' War (1568–1648).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
