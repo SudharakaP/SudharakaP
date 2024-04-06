@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-107 is a common police code denoting a suspicious person.
+23 is the number of chromosomes normal human sex cells have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
