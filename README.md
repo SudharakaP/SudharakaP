@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the police non-emergency number in Denmark.
+127 is the highest signed 8 bit integer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
