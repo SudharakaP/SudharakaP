@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-213 is one of the first three area codes created in California.
+24 is the maximum number of Knight Companions in the Order of the Garter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
