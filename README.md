@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-152 is the number of diapers solder in a Pampers Swaddlers pack.
+175 is the number of films that actress Rose Tapley appeared in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
