@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is distinct solutions of the Soma cube puzzle.
+67 is the number of throws in Judo.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
