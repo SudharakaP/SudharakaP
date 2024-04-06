@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
+383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
