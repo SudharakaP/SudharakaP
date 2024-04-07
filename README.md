@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
