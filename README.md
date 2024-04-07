@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-68 is the ideal temperature (F) for developing black-and-white film.
+84 is the atomic number of polonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
