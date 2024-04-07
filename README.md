@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-695 is the number of people dead in the single deadliest tornado in United States history (the F5 Tri-State Tornado in 1925).
+167 is the number of workers trapped for more than 24 hours in the Blyvooruitzicht gold mine in Johannesburg, South Africa on January 18, 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
