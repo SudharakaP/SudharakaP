@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-36 is the number of vehicles that run in each race of NASCAR's Camping World Truck Series.
+199 is the number of points by Mario Lemieux in the 1988-1989 NHL season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
