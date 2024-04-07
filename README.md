@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the price in cents per acre the USA bought Alaska from Russia.
+20 is the number of questions in the popular party game Twenty Questions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
