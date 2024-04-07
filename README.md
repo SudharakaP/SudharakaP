@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-187 is 187th Street in the Washington Heights section of Manhattan.
+87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
