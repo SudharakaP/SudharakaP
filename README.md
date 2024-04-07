@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is the number also known as "eleventy", a term made famous by linguist and author J. R. R. Tolkien (Bilbo Baggins celebrates his eleventy-first birthday at the beginning of The Lord of the Rings) and derived from the Old English hund endleofantig.
+536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
