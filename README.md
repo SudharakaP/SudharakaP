@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61 is the number of points required to win a "standard" game of Cribbage.
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
