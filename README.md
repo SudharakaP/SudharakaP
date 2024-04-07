@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
+64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
