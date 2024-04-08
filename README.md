@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150000000 is the number of items held in the British Library.
+47 is the number of phonemes in English phonology in Received Pronunciation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
