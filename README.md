@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7e+22 is the number of stars within range of telescopes (as of 2003).
+13 is the number of Oscar nominations of actress Meryl Streep, who holds the record for the most Oscar nominated actress.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
