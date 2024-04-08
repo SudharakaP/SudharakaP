@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-179 is the rank of Guam in world population.
+98 is the temperature (F) of the normal body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
