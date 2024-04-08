@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-273 is the zero of the Celsius temperature scale (to the nearest whole number) in Kelvin.
+227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
