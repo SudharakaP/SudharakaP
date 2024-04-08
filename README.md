@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is a trick used in extreme sports where a rider rotates half a turn while airborne and lands.
+203 is the HTTP status code indicating partial information.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
