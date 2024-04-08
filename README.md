@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100000 is the number of verses (shlokas) in the Mahabharata.
+131 is the medical emergency telephone number in Chile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
