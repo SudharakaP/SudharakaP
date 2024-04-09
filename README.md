@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-208 is the area code for the US state of Idaho.
+285 is the total number of Rules of Acquisition in Star Trek.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
