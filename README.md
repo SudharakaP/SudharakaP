@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-214 is the first area code of metropolitan Dallas, Texas.
+242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
