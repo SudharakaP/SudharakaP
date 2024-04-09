@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-70 is the distance (meter) from archer to targets in Olympic Archery.
+199 is the population of Woodstock, Newfoundland and Labrador, Newfoundland and Labrador Canada according to the 2006 Census.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
