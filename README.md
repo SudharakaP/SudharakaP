@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-213 is the radical meaning "turtle", one of only two of the 214 Kangxi radicals that are composed of 16 strokes.
+147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
