@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
