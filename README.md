@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35 is the basic film gauge in mm most commonly used for both analog photography and motion pictures.
+203 is the HTTP status code indicating partial information.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
