@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the rank of Bahamas in world population.
+143 is the number of milligrams of caffeine in AMP Energy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
