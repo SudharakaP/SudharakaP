@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-199 is the population of Woodstock, Newfoundland and Labrador, Newfoundland and Labrador Canada according to the 2006 Census.
+613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
