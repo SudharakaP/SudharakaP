@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the price in cents per acre the USA bought Alaska from Russia.
+157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
