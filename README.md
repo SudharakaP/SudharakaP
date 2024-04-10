@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-90 is the latitude of the North Pole and the South Pole.
+90000 is the average number of hairs that redheads have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
