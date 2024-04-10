@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
+150 is years in a sesquicentennial.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
