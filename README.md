@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
+95 is the NBA record for Most Assists in a 7-game playoff series (by Magic Johnson of the Los Angeles Lakers in 1984).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
