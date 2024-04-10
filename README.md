@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-280000000000000 is the number of possible unique physical addresses.
+227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
