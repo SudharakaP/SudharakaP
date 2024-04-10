@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
+22 is the number of players on the field in a football (soccer) match.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
