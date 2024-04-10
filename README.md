@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-144 is the Intel 8086 instruction for no operation (NOP).
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
