@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is the Exit status indicated by Mac App Store software when receipt validation fails.
+178 is the rank of Samoa in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
