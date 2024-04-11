@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-84 is the code for international direct dial phone calls to Vietnam.
+56 is the number of curls Shirley Temple, as a child, wore in her hair.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
