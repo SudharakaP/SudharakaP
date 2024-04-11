@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20 is the number of questions in the popular party game Twenty Questions.
+41 is the number of soldiers in The Expendables (2010 film) tactor Eric Roberts laments to his subordinates about having been killed by star Sylvester Stallone in his escape from their island.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
