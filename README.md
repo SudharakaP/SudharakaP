@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the rank of Bahamas in world population.
+216 is the ISO's standard for paper sizes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
