@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-119 is the default port for unencrypted NNTP connections.
+104 is the number of guns on Admiral Horatio Nelson's flagship HMS Victory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
