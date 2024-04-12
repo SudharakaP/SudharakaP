@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-169 is the first number of an automatic IPv4 address assigned by TCP/IP when no external networking device is contactable.
+126 is the atomic number of unbihexium, an element that has not yet been discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
