@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-125000 is the number of average strands of hair in the human head.
+11 is the number of players in an American football team on the field at one time during play.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
