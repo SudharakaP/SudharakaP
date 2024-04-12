@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
+1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
