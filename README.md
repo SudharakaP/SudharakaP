@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the detainee number of the Mohammad Al Rahman Al Shumrani at Guantanamo Bay.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
