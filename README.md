@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-19 is the number of years in 235 lunations.
+490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
