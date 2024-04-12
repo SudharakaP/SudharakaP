@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
+136 is the hottest temperature ever recorded in Fahrenheits at Aziziya, Libya in September 1922.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
