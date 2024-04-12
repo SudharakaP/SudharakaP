@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-69 is the number Bill and Ted were thinking of when talking to their future selves.
+202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
