@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172 is the record in miles per hour of John White's shot in squash.
+11 is the number of incarnations of The Doctor in BBC sci-fi series Doctor Who.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
