@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
+1631 is two London bible printers accidentally left "not" out of the 7th commandment, which then read "Thou shalt commit adultery.".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
