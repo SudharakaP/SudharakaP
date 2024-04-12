@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
+39 is the number of Scud missiles which Iraq fired at Israel during the Gulf War in 1991.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
