@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the number of pieces the body of Osiris was torn into by his fratricidal brother Set.
+27 is the number of grains in some Buddhist rosary (108 divided by 4).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
