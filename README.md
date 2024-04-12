@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
+187 is a signature wrestling move by wrestler New Jack (diving elbow drop while holding a steel chair underneath his arm).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
