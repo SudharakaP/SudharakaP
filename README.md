@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
+198 is the rank of Marshall Islands in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
