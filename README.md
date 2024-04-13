@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is the maximum possible score in one turn at darts (three triple 20s).
+108 is the percentage volume expansion of freezing water.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
