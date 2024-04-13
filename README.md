@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35000 is the number of genes in a human being.
+180 is the maximum possible score in one turn at darts (three triple 20s).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
