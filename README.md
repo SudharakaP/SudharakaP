@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the population density in square kilometers of Italy, the fifth-highest population density in Europe.
+157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
