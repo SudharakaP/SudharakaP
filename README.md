@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is the intelligence Agency telephone number in Iran.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
