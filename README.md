@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-46 is the number of human chromosomes.
+42 is the angle in degrees for which a rainbow appears or the critical angle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
