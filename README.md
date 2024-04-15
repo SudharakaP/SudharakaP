@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the max number of shine sprites in Super Mario Sunshine.
+490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
