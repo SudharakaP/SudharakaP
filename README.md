@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-400000000000 is the number of stars in the Milky Way galaxy.
+76 is the atomic number of osmium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
