@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
+1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
