@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-47 is the total numbers of balloons that a player can collect in Rareware's Nintendo 64 game Diddy Kong Racing.
+1e+63 is the estimate by Archimedes in The Sand Reckoner of the total number of grains of sand that could fit into the entire cosmos.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
