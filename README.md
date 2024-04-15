@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172 is the record in miles per hour of John White's shot in squash.
+44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
