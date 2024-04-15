@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-402000000 is the number of native speakers of English.
+14 is the earliest age that the emancipation of minors can occur in the U.S.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
