@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-130 is the approximate maximum height in meters of trees.
+199 is the number of hits by Ron Davis in his MLB career from 1962-1969.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
