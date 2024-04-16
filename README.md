@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the atomic number of the undiscovered chemical element Unbiunium.
+59 is the number corresponding to the last minute in a given hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
