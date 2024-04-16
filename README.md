@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-92 is the percentage of water in watermelons.
+220 is the common voltage in many countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
