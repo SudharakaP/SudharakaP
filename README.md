@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
+9220000000000000000 is the largest number which can fit into a signed (two's complement) 64-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
