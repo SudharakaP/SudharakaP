@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-194 is the NHL record number of saves, set by Bruce Sutter in 1982.
+18 is the number of levels in hell in the Chinese mythos.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
