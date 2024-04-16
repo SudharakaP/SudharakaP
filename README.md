@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-154 is the period in days that the sun follows on gamma-ray flares.
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
