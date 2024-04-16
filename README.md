@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-202 is the area code assigned to Washington D.C.
+60 is the number of miles polar bears have been known to swim without a rest.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
