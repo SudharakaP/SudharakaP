@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-900000000 is the approximate number of trees cut down in a year to make the raw materials for US pulp mills and paper.
+135 is the cartridge version of 35mm photographic film, used widely in still photogaphy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
