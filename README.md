@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61000 is the average number of people airborne over the US at any given hour.
+135 is the height of the World's tallest thermometer in feet located in Baker, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
