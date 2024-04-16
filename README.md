@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-152 is the number of diapers solder in a Pampers Swaddlers pack.
+30 is the duration in years of the Thirty Years' War - 1618 to 1648.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
