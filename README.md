@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-402000000 is the number of native speakers of English.
+5 is the number of permanent members with veto power on the United Nations Security Council.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
