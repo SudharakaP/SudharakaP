@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
+47 is the number of phonemes in English phonology in Received Pronunciation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
