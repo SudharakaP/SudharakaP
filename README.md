@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the number worn by the Clemson Tigers' record breaking running back C.J.
+170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
