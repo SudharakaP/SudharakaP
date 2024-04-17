@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-179 is the atomic number of an element temporarily called Unseptennium.
+91 is the atomic number of protactinium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
