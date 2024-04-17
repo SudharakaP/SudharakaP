@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-199 is the number of games pitched by MLB pitcher Art Herring from 1929-1947.
+20000000000 is the approximate number of coconuts produced worldwide each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
