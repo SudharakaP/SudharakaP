@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000 is the weight in tons of the average iceberg.
+15 is the number of times an average person laughs a day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
