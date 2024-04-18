@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
+30 is the total number of major and minor keys in Western tonal music, including enharmonic equivalents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
