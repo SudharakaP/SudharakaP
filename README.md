@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the distance in feet the Hampstead London Underground station is below ground level.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
