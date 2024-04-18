@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-850 is the maximum possible Fair Isaac credit score.
+6800 is the approximate number of languages in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
