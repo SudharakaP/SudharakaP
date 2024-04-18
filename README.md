@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-136 is the number of episodes of the TV series That Girl ran on ABC from 1966 to 1971.
+101 is the first course in a subject taught at a college or university in Australia, Canada, South Africa, or the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
