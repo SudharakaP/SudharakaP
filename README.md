@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the average number of minutes in a day that kids in the U.S. between the ages of 2 - 8 spend coloring.
+36 is the number of vehicles that run in each race of NASCAR's Camping World Truck Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
