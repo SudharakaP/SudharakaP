@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-175 is years Harriet (1830–2006) the Galápagos tortoise lived.
+172000 is tons of chocolate produced in Belgium in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
