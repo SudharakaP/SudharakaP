@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-911 is the number of days after September 11th that the Madrid Attack took place.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
