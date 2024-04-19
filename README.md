@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15 is the approximate speed in miles per hour a penguin swims at.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
