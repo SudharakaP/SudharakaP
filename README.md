@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-107 is a common police code denoting a suspicious person.
+192 is the number of episodes with Moose, a dog, playing Eddie Crane on Frasier.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
