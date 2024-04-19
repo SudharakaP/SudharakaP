@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is the rank of Aruba in world population.
+131 is the medical emergency telephone number in Chile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
