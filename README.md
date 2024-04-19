@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-74 is the atomic number of tungsten.
+66 is the total number of chapters in the Bible book of Isaiah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
