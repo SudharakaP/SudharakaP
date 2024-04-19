@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1982 is the average price for a major league baseball game ticket in 2004 in cents.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
