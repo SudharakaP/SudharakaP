@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17 is the number of the raka'ahs that Muslims perform during Salah on a daily basis.
+13 is the number of unique ranks in a suit in a pack of cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
