@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is the number of consecutive successful attempts in a hat trick in sports.
+198 is the population of Perlethorpe, Nottinghamshire England.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
