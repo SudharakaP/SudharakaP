@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
+199 is the number of episodes of Coach in which actress Shelley Fabares appeared in 199 (of 200 total) episodes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
