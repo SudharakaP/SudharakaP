@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-144 is the number of square inches in a square foot.
+998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
