@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
+38 is the number of games that each team in the current English Premiership, the top division in English Association Football, plays in a season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
