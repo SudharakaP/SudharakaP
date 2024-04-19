@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the speed limit, in kilometers per hour, of Australian roads with unspecified limits.
+273 is the number of seconds in American composer John Cage's piano composition 4'33" of silence, in three movements.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
