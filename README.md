@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000 is the gallons of saliva an average human produces in a lifetime.
+12 is the number of people who have walked on Earth's moon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
