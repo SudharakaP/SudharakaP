@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17 is 'the least random number' as described at MIT, according to hackers' lore.
+156 is the number of episodes the TV series The West Wing ran on NBC from 1999 to 2006, including an extra episode.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
