@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the approximate periodicity of a sunspot cycle in years.
+208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
