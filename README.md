@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
+222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
