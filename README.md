@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the number of Men of the Great Assembly who canonized the Books of the Tanakh and formulated the Jewish prayers.
+193 is the number of member states of the United Nations as of 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
