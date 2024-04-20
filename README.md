@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-256 is the number of NFL regular season football games.
+114 is the police non-emergency number in Denmark.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
