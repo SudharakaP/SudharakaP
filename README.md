@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
+142 is the number of home-based business ideas included in the 142 Now packet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
