@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-189 is the atomic number of an element temporarily called Unoctennium.
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
