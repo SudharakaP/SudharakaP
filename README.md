@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is the port number of the IDENT Internet protocol that helps identify the user of a particular TCP connection.
+168 is the nubmer of performances that A Day in Hollywood / A Night in the Ukraine ran for.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
