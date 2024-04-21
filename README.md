@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15250 is the number of times the average driver will honk in a lifetime.
+39 is the duration, in nanoseconds, of the nuclear reaction in the largest nuclear explosion ever performed (Tsar bomb).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
