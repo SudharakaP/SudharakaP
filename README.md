@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is distinct solutions of the Soma cube puzzle.
+1000000 is the number of people buried in Père Lachaise Cemetery, the most visited cemetary in the world, opened in 1804.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
