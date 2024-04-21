@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-193 is the number of member states of the United Nations as of 2011.
+159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
