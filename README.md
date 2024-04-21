@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
+227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
