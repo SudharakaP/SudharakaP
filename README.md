@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the electricity emergency telephone number in Egypt.
+107 is a common police code denoting a suspicious person.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
