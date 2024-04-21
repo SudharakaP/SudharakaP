@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+150 is the estimation of the game-tree complexity of xiangqi.
+1 is the number of dimensions of a line.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
