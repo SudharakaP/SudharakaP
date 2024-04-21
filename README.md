@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the Opus number of one of Beethoven's greatest works.
+53 is the port number of UDP and TCP for the Domain Name System protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
