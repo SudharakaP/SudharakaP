@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-137 is a radioactive isotope of Caesium formed by nuclear fission.
+63 is the atomic number of europium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
