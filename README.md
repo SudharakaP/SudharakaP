@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1750000 is the number of entries in the freedb database of CD track listings as of June 2005.
+496 is what the dimension of the gauge group must be for a superstring theory to make sense.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
