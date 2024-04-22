@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the rank of Uruguay in population density.
+107 is a common police code denoting a suspicious person.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
