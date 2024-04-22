@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-137 is the atomic number of an element not yet observed called Untriseptium.
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
