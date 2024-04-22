@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-43687 is the number of toilet related accidents in the United States in 1996.
+141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
