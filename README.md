@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-165 is the number of episodes that the TV show Daniel Boone ran on NBC from 1964 to 1970.
+155 is the number of performances Ivanhoe, the romantic opera that opened in January 31, 1891, ran for.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
