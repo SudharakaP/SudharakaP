@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-29 is the number of Knuts in one Sickle in the fictional currency in the Harry Potter novels.
+172000 is tons of chocolate produced in Belgium in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
