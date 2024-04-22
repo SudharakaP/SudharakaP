@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-80 is the length (years) of the Eighty Years' War (1568–1648).
+19 is the final year a person is a teenager.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
