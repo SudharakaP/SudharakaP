@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-179 is the rank of the the song Love Will Tear Us Apart (1980) by the Joy Division on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
+59 is the number on a button commonly worn by feminist activists in the 1970s (based on the claim that a woman earned 59 cents to an equally qualified man's dollar).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
