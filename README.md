@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is the rank of Somaliland in countries by population density.
+850 is the maximum possible Fair Isaac credit score.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
