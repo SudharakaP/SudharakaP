@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6800 is the approximate number of languages in the world.
+164 is the number of cards in the set Baseball Talk, released by Topps Baseball Card Company in 1989.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
