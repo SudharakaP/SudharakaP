@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-136 is the number of episodes the TV series Fame ran on NBC and syndication from 1982 to 1987.
+383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
