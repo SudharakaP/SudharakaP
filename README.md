@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-197 is the number of years that Fu Xi lived for altogether.
+85 is the atomic number of astatine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
