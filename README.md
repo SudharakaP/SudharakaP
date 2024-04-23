@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-26 is the number of bones in the normal human foot and ankle.
+163 is the atomic number of an element temporarily called Unhextrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
