@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-164 is the number of cards in the set Baseball Talk, released by Topps Baseball Card Company in 1989.
+5600 is the number of metres above sea level of the highest bridge in the world, located in the Himalayan mountains.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
