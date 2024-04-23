@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+23 is the number of chromosomes normal human sex cells have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
