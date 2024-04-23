@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
+92 is the percentage of water in watermelons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
