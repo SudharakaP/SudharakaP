@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
+14 is the number of pounds in a stone in traditional British units of weight.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
