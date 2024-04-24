@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-207 is the area code for the US state of Maine.
+800000000 is the number of active users on Facebook as of December 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
