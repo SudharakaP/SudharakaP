@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-47 is the total numbers of balloons that a player can collect in Rareware's Nintendo 64 game Diddy Kong Racing.
+98 is the highest jersey number allowed in the National Hockey League (as 99 was retired by the entire league to honor Wayne Gretzky).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
