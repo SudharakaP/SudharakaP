@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150 is the number of estimated distinct phonemes in the Taa language.
+1 is the number of moons orbiting Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
