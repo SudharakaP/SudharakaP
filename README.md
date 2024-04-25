@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-216 is the number of stitches on a baseball, according to the Ken Burns series "Baseball".
+185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
