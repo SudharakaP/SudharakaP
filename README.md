@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
+166 is the number of athletes (104 men and 62 women) that represented Scotland in the 2006 Commonwealth Games in Melbourne, Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
