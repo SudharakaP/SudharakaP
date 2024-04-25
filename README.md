@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5200 is the number of standard size of a legion in the Roman Empire.
+195 is the number of episodes of Matlock ran on NBC from 1986-1992 and on ABC from 1992-1995.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
