@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
+216 is the number of stitches on a baseball, according to the Ken Burns series "Baseball".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
