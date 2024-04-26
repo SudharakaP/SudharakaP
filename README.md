@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-19 is the number of years in 235 lunations.
+150 is years in a sesquicentennial.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
