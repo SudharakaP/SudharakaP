@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the cartridge version of 35mm photographic film, used widely in still photogaphy.
+17 is the minimum driving age for a car or van in the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
