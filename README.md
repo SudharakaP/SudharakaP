@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-144 is a gross (a dozen dozen).
+139 is the number of episodes of the TV series Your Show of Shows that ran on NBC from 1950 to 1954.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
