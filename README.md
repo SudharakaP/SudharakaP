@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-42 is the sum of the codes of the letters in the words "BIG BANG" using the encoding A=1, B=2, C=3, etc.
+45 is the sapphire wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
