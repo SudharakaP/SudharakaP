@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-139 is the number of episodes of the TV series Your Show of Shows that ran on NBC from 1950 to 1954.
+1e+21 is the number of grains of sand on all the world's beaches put together.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
