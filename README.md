@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
+126 is the atomic number of unbihexium, an element that has not yet been discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
