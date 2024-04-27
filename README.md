@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
+73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
