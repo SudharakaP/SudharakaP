@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the standard length (year) of a term in office for a United States senator.
+153 is the frequency in kHz of of the longwave transmitters Donebach, Ingøy, Braşov, and Kenadsa.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
