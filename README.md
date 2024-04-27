@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-207 is the area code for the US state of Maine.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
