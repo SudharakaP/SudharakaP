@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-37 is the cost in cents of the Whopper Sandwich when Burger King first introduced it in 1957.
+3825000 is the number of entries on Wikipedia in the English language.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
