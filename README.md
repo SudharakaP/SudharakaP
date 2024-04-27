@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the duration in years of the Thirty Years' War - 1618 to 1648.
+178 is the rank of Samoa in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
