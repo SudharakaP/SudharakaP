@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-66 is the number of hot dogs eaten by World record holder Joey Chestnut in 15 minutes.
+2055001 is the number of people employed by Wal-mart in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
