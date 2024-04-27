@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is is the number of floors of Taipei 101, the tallest skyscraper in the world from 2004 to 2010.
+911 is the number of days after September 11th that the Madrid Attack took place.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
