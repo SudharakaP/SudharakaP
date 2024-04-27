@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-930000 is the number of words in the King James Version of the Bible.
+13 is the number of Oscar nominations of actress Meryl Streep, who holds the record for the most Oscar nominated actress.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
