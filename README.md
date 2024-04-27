@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40000000 is the number of Americans that have "chronic halitosis," which is bad breath that never goes away.
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
