@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-714 is the number of home runs Babe Ruth scored in his career.
+37 is the cost in cents of the Whopper Sandwich when Burger King first introduced it in 1957.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
