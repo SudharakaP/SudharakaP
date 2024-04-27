@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the height in kilometres that a volcano can shoot ash into the sky.
+33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
