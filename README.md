@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
