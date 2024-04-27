@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-127 is the atomic number of Unbiseptium, an element that has not yet been discovered.
+4.52e+46 is the upper bound for the number of legal chess positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
