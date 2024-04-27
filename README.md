@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-167 is width in feet of the Lincoln Memorial Reflecting Pool, which is is 2,029 feet (618 m) long and 167 feet (51 m) wide.
+3 is the number of notes in a triad, the basic form of any chord.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
