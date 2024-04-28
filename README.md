@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-54 is the number of cards in a deck of playing cards, if two jokers are included.
+267 is the number of groups of order 64.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
