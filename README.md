@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-695 is the number of people dead in the single deadliest tornado in United States history (the F5 Tri-State Tornado in 1925).
+101 is is the number of floors of Taipei 101, the tallest skyscraper in the world from 2004 to 2010.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
