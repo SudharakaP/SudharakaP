@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1300 is the number of babies born prematurely in the USA every day.
+101 is the HTTP status code indicating that a client should switch protocols.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
