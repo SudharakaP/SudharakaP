@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the jersey number worn by the starting stand-off half/five-eighth in most rugby league competitions.
+42 is the answer to the Ultimate Question of Life, the Universe, and Everything.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
