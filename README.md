@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
+100 is the number of common administrative grouping unit of homesteads in Northern Europe and Great Britain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
