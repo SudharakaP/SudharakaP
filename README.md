@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is the maximum possible score in one turn at darts (three triple 20s).
+44 is the number of candles in a box of Hanukkah candles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
