@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-46 is the number of mountains in the 46 peaks of the Adirondack mountain range.
+360 is the number of degrees in a circle for the purpose of angular measurement.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
