@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is the gent's clout shooting distance in archery measured in yards.
+133 is the number of career touchdowns from 1983 - 1996 of Canadian Football League quarterback Danny Barrett.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
