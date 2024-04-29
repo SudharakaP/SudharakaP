@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22 is the number of yards in a chain.
+183 is the rank of Laos in countries by population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
