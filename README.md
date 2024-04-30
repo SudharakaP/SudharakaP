@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15250 is the number of times the average driver will honk in a lifetime.
+166 is the number of episodes that the Growing Pains ran on ABC from 1985 to 1992.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
