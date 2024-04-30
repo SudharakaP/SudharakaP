@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-364 is the total number of gifts received in the song "The Twelve Days of Christmas".
+117 is the substitute for the number 17, which is considered unlucky in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
