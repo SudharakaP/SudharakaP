@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-86 is the device number for a lockout relay function in electrical circuit protection schemes.
+240 is the common voltage in England and Australia before conversion to 230V standard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
