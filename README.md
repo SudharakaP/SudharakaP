@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the earliest age that the emancipation of minors can occur in the U.S.
+69 is the atomic number of thulium, a lanthanide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
