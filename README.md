@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-37 is the normal human body temperature in degrees Celsius.
+187 is the number of the California Penal Code section describing murder.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
