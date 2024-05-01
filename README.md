@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-169 is the first number of an automatic IPv4 address assigned by TCP/IP when no external networking device is contactable.
+122 is the traffic emergency telephone number in China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
