@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-267000 is the number of words in James Joyce's Ulysses.
+15 is the approximate speed in miles per hour a penguin swims at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
