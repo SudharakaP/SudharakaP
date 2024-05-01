@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the years of marriage until the diamond wedding anniversary.
+192 is the atomic number of an element temporarily called Unennbium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
