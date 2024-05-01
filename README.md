@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-93 is the atomic number of neptunium.
+54 is the score in golf colloquially referred to as a perfect round.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
