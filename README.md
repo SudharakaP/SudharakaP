@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is years it takes for all the water in Lake Superior to be changed.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
