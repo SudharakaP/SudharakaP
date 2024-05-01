@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30000 is the number of distinct Chinese characters.
+139 is the number of episodes of the TV series 3rd Rock from the Sun that ran on NBC from 1996 to 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
