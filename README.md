@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-239 is the atomic mass number of the most common isotope of plutonium.
+22 is the number of players on the field in a football (soccer) match.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
