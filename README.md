@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-129 is the atomic number of Unbiennium, an element yet to be discovered.
+44 is the number of candles in a box of Hanukkah candles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
