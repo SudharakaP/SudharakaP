@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-666 is the number of the devil.
+64 is the maximum number of strokes in any Chinese character.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
