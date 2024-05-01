@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-48 is the number of Ptolemaic constellations.
+500 is the number of detectable earthquakes in the world each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
