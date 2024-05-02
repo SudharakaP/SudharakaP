@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20 is the number of questions in the popular party game Twenty Questions.
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
