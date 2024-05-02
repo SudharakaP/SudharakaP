@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-52 is the approximate number of weeks in a year.
+1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
