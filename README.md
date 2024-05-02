@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172000 is tons of chocolate produced in Belgium in a year.
+64 is number of codons in the RNA codon table under genetic code.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
