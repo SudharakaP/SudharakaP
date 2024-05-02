@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-139 is the atomic number of Untriennium, an unsynthesized chemical element.
+192 is the rank of Sweden in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
