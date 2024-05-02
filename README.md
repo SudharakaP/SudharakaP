@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
+9 is the number of circles of Hell in Dante's Divine Comedy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
