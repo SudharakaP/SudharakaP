@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-76 is the atomic number of osmium.
+50 is the focal length in millimeters of the normal lens in 35 mm photography.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
