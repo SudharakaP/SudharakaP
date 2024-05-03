@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-102 is the atomic number of nobelium, an actinide.
+137 is the average brain mass of a baboon in grams.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
