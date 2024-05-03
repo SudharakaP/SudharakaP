@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
+108 is the number of Mbit/s of a non-standard extension of IEEE 802.11g wireless network using channel bonding.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
