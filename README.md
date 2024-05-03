@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the total number of major and minor keys in Western tonal music, including enharmonic equivalents.
+29 is the number of cups of milk needed to make one pound of butter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
