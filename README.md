@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-133 is the number of career touchdowns from 1983 - 1996 of Canadian Football League quarterback Danny Barrett.
+55 is the highest speed limit allowed in the United States between 1974 and 1986 per the National Maximum Speed Law.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
