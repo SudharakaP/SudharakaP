@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
+6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
