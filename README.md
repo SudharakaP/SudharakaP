@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-201 is the HTTP status code indicating a new resource was successfully created in response to the request.
+133 is the number of career touchdowns from 1983 - 1996 of Canadian Football League quarterback Danny Barrett.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
