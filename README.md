@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30000 is the number of distinct Chinese characters.
+200 is the minimum number of varieties of watermelons grown in the U.S.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
