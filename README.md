@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
+153 is the ordinal number of the coat of arms of Komi Republic in the State Heraldic Register of the Russian Federation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
