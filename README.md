@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-187 is the atomic number of an element temporarily called Unoctseptium.
+10 is the number of official inkblots in the Rorschach inkblot test.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
