@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-116 is the number of pages in the Lost pages, the original manuscript of what Joseph Smith, Jr. said was the translation of the Book of Lehi, of the Golden plates revealed to him in 1827.
+168 is the number of episodes that Barney Miller ran on ABC from 1975 to 1982.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
