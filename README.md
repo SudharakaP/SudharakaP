@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1750000 is the number of entries in the freedb database of CD track listings as of June 2005.
+159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
