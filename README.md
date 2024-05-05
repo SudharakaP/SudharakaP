@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61 is the code for international direct dial phone calls to Australia.
+32 is the number of completed, numbered piano sonatas by Ludwig van Beethoven.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
