@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
+911 is the number of days after September 11th that the Madrid Attack took place.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
