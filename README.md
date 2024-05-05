@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the number of states in the United States of America.
+192 is the number of days it took to form the 2007 Belgian government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
