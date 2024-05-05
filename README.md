@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15 is the approximate speed in miles per hour a penguin swims at.
+150 is the number of estimated distinct phonemes in the Taa language.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
