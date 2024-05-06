@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-432 is three-dozen sets of a dozen, making it three gross.
+54 is the number of cards in a deck of playing cards, if two jokers are included.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
