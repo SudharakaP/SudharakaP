@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the consumption in pounds of candy annually per person in Denmark, the country with the highest candy consumption.
+183 is the number of runs scored by former cricket player Sourav Ganguly in the 1999 Cricket World Cup, second highest in World Cup history, and highest by an Indian in the tournament.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
