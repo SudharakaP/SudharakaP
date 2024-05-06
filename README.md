@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-123 is the electricity emergency telephone number in Indonesia.
+8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
