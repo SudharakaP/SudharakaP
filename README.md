@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4000 is the weight in pounds that the Great White Shark can grow to.
+136 is the lower frequency band in kHz that amateur radio operators are allowed to transmit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
