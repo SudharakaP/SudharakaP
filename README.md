@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35000 is the number of genes in a human being.
+50 is the speed limit, in kilometers per hour, of Australian roads with unspecified limits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
