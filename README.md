@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-183 is the id number of Issam Hamid Al Bin Ali Al Jayfi, a detainee at Guantanamo Bay.
+273 is the zero of the Celsius temperature scale (to the nearest whole number) in Kelvin.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
