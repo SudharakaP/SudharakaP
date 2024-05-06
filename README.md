@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
+169 is the number of miles that Thomas Sopwith, an English aviation pioneer flew in 3 hours, 40 minutes on December 18, 1910.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
