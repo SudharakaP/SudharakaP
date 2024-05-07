@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
+12 is the number of basic hues in the color wheel (3 primary colors (red, yellow, blue), 3 secondary colors (orange, green & purple) and 6 tertiary colors).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
