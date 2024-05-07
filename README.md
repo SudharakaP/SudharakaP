@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
