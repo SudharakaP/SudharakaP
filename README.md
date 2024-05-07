@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
+173 is the atomic number of an element temporarily called Unsepttrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
