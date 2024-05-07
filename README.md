@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000000000 is the number of bacteria in the human oral cavity.
+242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
