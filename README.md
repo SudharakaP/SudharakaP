@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
+156 is the number of episodes the TV series The West Wing ran on NBC from 1999 to 2006, including an extra episode.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
