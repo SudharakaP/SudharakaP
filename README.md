@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-245 is the number of Jewish singers who returned from captivity in Babylon in circa 538 BCE BC following the rise of Cyrus the Great and the Persian Empire.
+167 is the number of workers trapped for more than 24 hours in the Blyvooruitzicht gold mine in Johannesburg, South Africa on January 18, 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
