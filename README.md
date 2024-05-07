@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-62 is the number which Sigmund Freud has an irrational fear of.
+20 is the number of questions in the popular party game Twenty Questions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
