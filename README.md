@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the number of polynucleotide strands in a DNA double helix.
+89 is the number of units of each colour in the board game Blokus.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
