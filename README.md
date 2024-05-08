@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the largest number that has just one syllable.
+27 is the current number of Amendments to the United States Constitution (2012 February).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
