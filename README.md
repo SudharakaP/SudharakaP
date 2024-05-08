@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-464 is the number of legal positions of the kings in chess, not counting mirrored positions.
+361 is the number of positions on a standard 19 x 19 Go board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
