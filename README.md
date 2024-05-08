@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-90000 is the average number of hairs that redheads have.
+174 is the number of miles the Columbia University Library System collection, with over 9.3 million volumes, would stretch end-to-end.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
