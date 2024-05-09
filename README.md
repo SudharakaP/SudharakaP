@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-525998433 is the number of distinct websites as of November 2011.
+41 is the number of times Paul McCartney sings the phrase "Let It Be" in the Beatles' hit Let It Be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
