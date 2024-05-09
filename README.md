@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-162 is total number of baseball games each team plays during a regular season in Major League Baseball.
+4 is the maximal number of horses in one row for carriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
