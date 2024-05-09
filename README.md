@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-167 is the branch spread in feet of Santa Barbara's Moreton Bay Fig Tree in Santa Barbara, California, which is believed to be the largest Ficus macrophylla in the United States).
+189 is the number of irregular verbs in the English language (from "abide" to "write").
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
