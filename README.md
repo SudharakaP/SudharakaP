@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-222 is the score in the 1916 Cumberland vs. Georgia Tech football game, with Georgia Tech winning 222-0, which was the record for most points scored by one team in an American football game.
+245 is the number of Jewish singers who returned from captivity in Babylon in circa 538 BCE BC following the rise of Cyrus the Great and the Persian Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
