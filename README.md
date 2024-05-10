@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20 is the number of ounces in Venti size coffees at Starbucks coffee shops.
+5500000 is the number of jews killed in the Holocaust.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
