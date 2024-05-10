@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
+17 is the number of syllables in a haiku (5+7+5).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
