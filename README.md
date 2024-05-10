@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
+161 is the number of kilometers in about 100 miles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
