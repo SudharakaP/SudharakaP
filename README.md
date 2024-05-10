@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the police non-emergency number in Denmark.
+66 is the total number of chapters in the Bible book of Isaiah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
