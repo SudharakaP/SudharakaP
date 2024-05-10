@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the percentage of movies released that are Rated R.
+163 is the atomic number of an element temporarily called Unhextrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
