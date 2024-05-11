@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
+850 is the maximum possible Fair Isaac credit score.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
