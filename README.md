@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is the number of players that competed in badminton at the 2008 Summer Olympics in Beijing, China.
+18 is the number of chapters into which James Joyce's epic novel Ulysses is divided.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
