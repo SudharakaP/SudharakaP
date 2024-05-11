@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
+27 is the total number of letters in the Spanish alphabet (5 vowels and 22 consonants).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
