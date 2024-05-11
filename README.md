@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+27 is the total number of letters in the Hebrew alphabet (22 regular letters and 5 final consonants).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
