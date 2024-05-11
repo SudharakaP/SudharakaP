@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-116 is the atomic number of an element temporarily called ununhexium.
+60 is the total number of cards in the game Racko.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
