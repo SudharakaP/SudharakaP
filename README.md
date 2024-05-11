@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-116 is the prefix for several EU-wide telephone helplines designated as harmonised service of social value.
+122 is the age of Jeanne Calment when she died.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
