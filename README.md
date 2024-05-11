@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+166 is the number of cartoons that Bugs Bunny starred in Warner Bros. from 1940 to 1964.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
