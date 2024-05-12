@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-99 is the highest jersey number allowed in most major league sports.
+67 is the number of throws in Judo.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
