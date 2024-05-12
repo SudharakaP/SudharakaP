@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-155 is the number of performances Ivanhoe, the romantic opera that opened in January 31, 1891, ran for.
+60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
