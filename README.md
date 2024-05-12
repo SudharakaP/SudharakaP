@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-214 is the first area code of metropolitan Dallas, Texas.
+173 is the rank of Maldives in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
