@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-199 is the number of hits MLB pitcher Alex Jones gave up in his career from 1889-1903.
+361 is the number of positions on a standard 19 x 19 Go board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
