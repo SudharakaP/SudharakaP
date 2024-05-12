@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5600 is the number of metres above sea level of the highest bridge in the world, located in the Himalayan mountains.
+202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
