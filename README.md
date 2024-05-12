@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-62 is the number which Sigmund Freud has an irrational fear of.
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
