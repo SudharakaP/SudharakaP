@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-27 is the number of outs in a regulation baseball game for each team at all adult levels.
+221 is sMTP status code for service closing transmission channel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
