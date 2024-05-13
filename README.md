@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-91 is the code for international direct dial phone calls to India.
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
