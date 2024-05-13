@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-179 is the number of even numbered days of the year.
+54 is the score in golf colloquially referred to as a perfect round.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
