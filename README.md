@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
+235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
