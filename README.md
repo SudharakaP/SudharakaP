@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-45000000 is the number of turkeys Americans eat at Thanksgiving annually.
+48 is the number of Ptolemaic constellations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
