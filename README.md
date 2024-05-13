@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-91 is the code for international direct dial phone calls to India.
+49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
