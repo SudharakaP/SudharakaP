@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000 is the gallons of saliva an average human produces in a lifetime.
+1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
