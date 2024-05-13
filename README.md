@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000000000000000000 is the estimated insect population.
+10 is the Number of dots in a tetractys.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
