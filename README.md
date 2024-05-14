@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-125 is years in a quasquicentennial.
+62 is the atomic number of samarium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
