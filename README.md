@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25000000 is the number of different inhabited planets in the the Galactic Empire.
+8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
