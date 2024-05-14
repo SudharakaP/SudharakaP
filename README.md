@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-270 is the average number of days in human pregnancy.
+95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
