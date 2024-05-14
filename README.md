@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35 is the basic film gauge in mm most commonly used for both analog photography and motion pictures.
+218 is votes required in the US House of Representatives to achieve a majority as of 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
