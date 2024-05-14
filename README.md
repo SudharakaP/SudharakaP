@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the distance a single playing card was thrown in feet by Kevin St. Onge to set a Guinness World Record.
+45000000 is the number of turkeys Americans eat at Thanksgiving annually.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
