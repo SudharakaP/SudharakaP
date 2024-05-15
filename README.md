@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-139 is the all-time record number of rugby union international appearances made by Australia scrum-half George Gregan.
+147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
