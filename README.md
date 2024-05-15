@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-142600 is tonnes of gold mined in the world by the end of 2000.
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
