@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
+97 is the number of different characters that can be used with a standard English Keyboard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
