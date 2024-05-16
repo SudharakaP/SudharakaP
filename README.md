@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172 is the record in miles per hour of John White's shot in squash.
+7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
