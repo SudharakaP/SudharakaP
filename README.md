@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
+1e+83 is the number of fundamental particles in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
