@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-207 is the area code for the US state of Maine.
+6800 is the approximate number of languages in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
