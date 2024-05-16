@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+40 is the Eddington–Dirac number.
+178 is the rank of Estonia in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
