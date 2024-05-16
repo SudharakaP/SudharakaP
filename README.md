@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1337 is the number that spells "leet" in leetspeak.
+175 is the atomic number of an element temporarily called Unseptpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
