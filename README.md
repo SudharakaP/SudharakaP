@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-366 is the number of days in a leap year.
+61 is the code for international direct dial phone calls to Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
