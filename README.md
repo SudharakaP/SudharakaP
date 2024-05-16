@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the number of seconds in a minute.
+5 is the number of appendages on most starfish, which exhibit pentamerism.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
