@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is a number considred unlucky in enduro, given to a race entrant and is colloquially known as a "blind pew".
+141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
