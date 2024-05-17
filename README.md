@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
+204 is the HTTP status code indicating the request was received but there is no response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
