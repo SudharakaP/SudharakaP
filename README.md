@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the atomic number of the undiscovered chemical element Unbiunium.
+199 is the position that Tom Brady was picked in the 2000 NFL draft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
