@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-92 is the number of pounds of sugar the average American child consumes per year.
+5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
