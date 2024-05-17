@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
+109 is the atomic number of meitnerium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
