@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the rank Grenada in world population.
+89 is the atomic number of actinium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
