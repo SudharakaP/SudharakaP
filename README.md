@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the number of basic holes or keys on most woodwind instruments.
+71 is the atomic number of lutetium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
