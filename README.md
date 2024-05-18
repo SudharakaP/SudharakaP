@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-194 is the rank of Equatorial Guinea in population density.
+100 is the number of years in a century.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
