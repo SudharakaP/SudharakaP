@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56000000000 is the number of web pages indexed by Google as of 2010.
+136 is the lower frequency band in kHz that amateur radio operators are allowed to transmit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
