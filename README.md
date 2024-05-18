@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the number of episodes in the original airing of Futurama.
+14 is the number of points in a proposed republican constitution of the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
