@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-161 is the number of different ways to bet on a roulette wheel.
+172 is the rank of Djibouti in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
