@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the telephone number "to report a car breakdown on the highway in Austria.
+171 is the record number of goals scored by France at the 1998 World Cup.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
