@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-36 is the number of vehicles that run in each race of NASCAR's Camping World Truck Series.
+1300 is the number of babies born prematurely in the USA every day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
