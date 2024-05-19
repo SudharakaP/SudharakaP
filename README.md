@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
+550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
