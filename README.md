@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-159 is the number of counties in the state of Georgia.
+720 is the number of degrees in two circles (= 2 × 360).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
