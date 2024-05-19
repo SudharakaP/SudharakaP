@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-152 is the number of diapers solder in a Pampers Swaddlers pack.
+88 is the approximate number of days it takes Mercury to complete its orbit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
