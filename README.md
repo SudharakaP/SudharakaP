@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-52 is the approximate number of weeks in a year.
+106000000000 is the number of homo sapiens that have lived since speciation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
