@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1300 is the number of babies born prematurely in the USA every day.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
