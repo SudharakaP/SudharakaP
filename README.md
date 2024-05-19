@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-37 is the normal human body temperature in degrees Celsius.
+365 is the number of solar days in the mean tropical year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
