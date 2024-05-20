@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-261 is number of possible unfolded tesseract patterns.
+175 is the atomic number of an element temporarily called Unseptpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
