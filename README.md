@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22 is the number of chapters of the Revelation of John in the Bible.
+5e+30 is the number of bacterial cells on Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
