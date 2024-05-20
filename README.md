@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-18 is the number of chapters into which James Joyce's epic novel Ulysses is divided.
+18 is the number of wheels on the most common type of North American tractor-trailer truck, which are hence often called 18-wheelers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
