@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22 is the typical (minimum) number of episodes in a season for a television program broadcast on a major American network.
+149 is the number of legal proceedings against 149 communists in Estonia in 1924.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
