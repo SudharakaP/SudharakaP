@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the population of Giry, France.
+195 is the rank of Dominica ranks in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
