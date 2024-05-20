@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-216 is the number of colors formed by a 6 color cube, sometimes known as the web-safe color palette.
+8 is the number of bits in a byte.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
