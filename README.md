@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the number of lines in a sonnet.
+195 is the number of countries in the world if Taiwan is included.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
