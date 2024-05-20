@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-280000000000000 is the number of possible unique physical addresses.
+213 is the name of a hip hop, active 1990-2004.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
