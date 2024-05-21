@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
+8 is the number of principles of Yong in Chinese calligraphy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
