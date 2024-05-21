@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-91 is the code for international direct dial phone calls to India.
+88 is the pounds of oxygen that the adult human body requires daily.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
