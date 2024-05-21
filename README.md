@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the maximum number of marbles (game pieces) in Chinese checkers.
+14 is the number of muqatta'at in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
