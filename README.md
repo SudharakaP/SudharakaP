@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-68 is the ideal temperature (F) for developing black-and-white film.
+400000000000 is the number of stars in the Milky Way galaxy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
