@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100 is the number of pounds in an American short hundredweight.
+404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
