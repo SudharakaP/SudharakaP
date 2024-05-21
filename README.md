@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the height in kilometres that a volcano can shoot ash into the sky.
+210 is the world speed record (km/h) for a mountain bike on a ski slope.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
