@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the number of days in the shortest month of the Gregorian calendar, February (except in leap years, when there are twenty-nine).
+3 is the number of witches in William Shakespeare's Macbeth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
