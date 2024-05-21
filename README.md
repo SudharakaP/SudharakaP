@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
+100000 is the number of thunderstorms that occur in the USA every year, of which 10% are classified as severe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
