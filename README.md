@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
+216 is the number of digits in a number that Max becomes obsessed with in the film Pi in his quest to find the numeric equation behind existence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
