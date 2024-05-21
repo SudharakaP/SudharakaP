@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-112 is the atomic number of the element copernicium (formerly called ununbium).
+140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
