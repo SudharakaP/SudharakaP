@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-164 is the atomic number of an element temporarily called Unhexquadium.
+180 is the maximum possible score in one turn at darts (three triple 20s).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
