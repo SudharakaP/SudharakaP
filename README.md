@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-199 is the record of strikeouts in the 2007 MLB season, held by Ryan Howard of the Philadelphia Phillies.
+1728 is braces were first invented by Pierre Fauchard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
