@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
+89 is the number of units of each colour in the board game Blokus.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
