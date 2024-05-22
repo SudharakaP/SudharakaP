@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1337 is the number that spells "leet" in leetspeak.
+128 is a sacred number honored by Beans for many generations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
