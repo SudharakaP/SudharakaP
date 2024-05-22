@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is the temperature in Fahrenheit of milk when it leaves the body of a cow.
+103 is the atomic number of lawrencium, an actinide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
