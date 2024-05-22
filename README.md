@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+134 is the number of episodes in the TV series Hawaiian Eye that ran on ABC from 1959 to 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
