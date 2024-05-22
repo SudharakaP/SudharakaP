@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is the length of the Judgment at Nuremberg measured in 186 minutes.
+27 is the number of outs in a regulation baseball game for each team at all adult levels.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
