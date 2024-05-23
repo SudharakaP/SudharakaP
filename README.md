@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-99 is the number of names of Allah, the names or attributes of God in the Qur'an.
+525998433 is the number of distinct websites as of November 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
