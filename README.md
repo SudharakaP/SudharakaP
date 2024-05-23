@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the highest number on one end of a standard domino.
+8674 is the number of unique words in the Hebrew Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
