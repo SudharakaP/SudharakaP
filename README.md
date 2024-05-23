@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
+145 is the atomic number of Unquadpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
