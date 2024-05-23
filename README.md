@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
+132 is the number of columns of a Line printer printing in landscape mode on 14-inch paper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
