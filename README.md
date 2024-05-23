@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000 is the number of other neurons each neuron is connected to in the human brain.
+42 is the answer to the Ultimate Question of Life, the Universe, and Everything.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
