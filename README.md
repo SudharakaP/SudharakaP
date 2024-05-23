@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-38 is the number of minutes in the shortest war in history in which Zanzibar surrendered to England in 1896.
+216 is the number of colors formed by a 6 color cube, sometimes known as the web-safe color palette.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
