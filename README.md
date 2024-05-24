@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-181 is the wing area of a Boeing 757 airplane in meters.
+107 is a common police code denoting a suspicious person.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
