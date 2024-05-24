@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-77 is the atomic number of iridium.
+110 is the TCP port used for POP3 email protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
