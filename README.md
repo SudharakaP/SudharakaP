@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-27 is the current number of Amendments to the United States Constitution (2012 February).
+73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
