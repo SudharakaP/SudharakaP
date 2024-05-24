@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1311000000 is the population of the People's Republic of China in 2007.
+Infinity is the estimation of the game-tree complexity in the game of Go.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
