@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-300 is the approximate number of Spartans who fought to death at the Battle of Thermopylae.
+160 is the number of characters permitted in a standard short message service in Australia and Europe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
