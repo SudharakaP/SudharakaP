@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the number worn by the Clemson Tigers' record breaking running back C.J.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
