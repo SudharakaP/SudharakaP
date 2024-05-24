@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-66 is the total number of books in the Protestant edition of the Bible (Old Testament and New Testament) combined.
+1750000 is the number of entries in the freedb database of CD track listings as of June 2005.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
