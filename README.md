@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-189 is the rank of Jersey in world population.
+132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
