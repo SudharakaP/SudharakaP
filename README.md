@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7 is the figurative number of seas.
+171 is the atomic number of an element called Ununseptunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
