@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17 is 'the least random number' as described at MIT, according to hackers' lore.
+167 is the branch spread in feet of Santa Barbara's Moreton Bay Fig Tree in Santa Barbara, California, which is believed to be the largest Ficus macrophylla in the United States).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
