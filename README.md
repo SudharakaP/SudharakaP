@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-140 is liters of water needed to produce 1 cup of coffee.
+221 is sMTP status code for service closing transmission channel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
