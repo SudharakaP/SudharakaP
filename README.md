@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1750000 is the number of entries in the freedb database of CD track listings as of June 2005.
+110 is a percentage in the expression "To give 110%", meaning to give a little more effort than one's maximum effort.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
