@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-78 is the atomic number of platinum.
+70 is the distance (meter) from archer to targets in Olympic Archery.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
