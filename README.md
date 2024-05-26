@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the number of names of God, according to Kabbalah.
+10000 is the gallons of saliva an average human produces in a lifetime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
