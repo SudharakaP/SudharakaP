@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-496 is what the dimension of the gauge group must be for a superstring theory to make sense.
+125 is the atomic number of the yet-to-be-discovered element Unbipentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
