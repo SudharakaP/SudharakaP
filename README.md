@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-133 is the common processor speed in MHz for common 32-bit processor CPUs circa 1995 such as the Intel Pentium and AMD AMD K5.
+30 is the total number of major and minor keys in Western tonal music, including enharmonic equivalents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
