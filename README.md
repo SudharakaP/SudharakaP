@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-270 is the average number of days in human pregnancy.
+94 is the atomic number of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
