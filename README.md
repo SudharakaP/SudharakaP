@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the number of days in the months April, June, September and November (and in unusual circumstances February).
+80 is the length (years) of the Eighty Years' War (1568–1648).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
