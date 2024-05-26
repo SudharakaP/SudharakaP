@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-207 is the area code for the US state of Maine.
+111 is the lowest positive integer requiring six syllables to name in American English, or seven syllables (including "and") in Canadian and British English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
