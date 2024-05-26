@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-255 is the largest representable integer in an unsigned byte.
+199 is the number of games pitched by MLB pitcher Art Herring from 1929-1947.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
