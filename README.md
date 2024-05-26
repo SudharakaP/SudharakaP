@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
+384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
