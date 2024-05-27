@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000000000 is the number of times the original Pac Man has been played as estimated by Namco, the manufacturers of Pac Man.
+13 is the speed of rush hour traffic on average in kilometres per hour in London.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
