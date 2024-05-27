@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-76 is the atomic number of osmium.
+112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
