@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-242 is the number of a notable UN Security Council resolution pertaining to the Arab/Israeli conflict.
+1000000 is the number of colors that can be distinguished by the trichromatic color vision of the human eye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
