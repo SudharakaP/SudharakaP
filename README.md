@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-242 is the area code of The Bahamas located in the North West Atlantic Ocean.
+313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
