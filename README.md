@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
+199 is the number of points by Mario Lemieux in the 1988-1989 NHL season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
