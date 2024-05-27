@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
+72 is the percentage of water of which the human body is composed.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
