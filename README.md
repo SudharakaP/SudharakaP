@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-138 is the number of touchdowns football quarterback Donnie Davis had for the Georgia Force of the Arena Football League.
+500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
