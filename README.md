@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-193 is species of monkeys and apes.
+167 is the number of tennis titles Martina Navratilova has, an all-time record for men or women.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
