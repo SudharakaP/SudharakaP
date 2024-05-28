@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40 is the number of thieves in Ali Baba and the Forty Thieves and in Ali Shar and Zumurrud, from Thousand and One Nights.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
