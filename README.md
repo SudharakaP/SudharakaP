@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-199 is the position that Tom Brady was picked in the 2000 NFL draft.
+243 is the number of isotopes or variations of elements calculated by Dr. Plichta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
