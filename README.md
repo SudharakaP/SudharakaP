@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the population of Bide Arm in Newfoundland and Labrador, Canada.
+180 is the number of litres of saliva in one day that cattle can produce.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
