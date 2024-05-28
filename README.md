@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the population of Giry, France.
+174 is the rank of Zimbabwe in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
