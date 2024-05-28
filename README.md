@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-214 is the SMTP status code for help message.
+9 is the number of innings in a regulation, non-tied game of baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
