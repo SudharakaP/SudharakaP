@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-300 is the approximate number of Spartans who fought to death at the Battle of Thermopylae.
+178 is the rank of Estonia in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
