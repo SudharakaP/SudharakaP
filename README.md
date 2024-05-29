@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-42 is the number of US gallons in a barrel of oil.
+103 is the atomic number of lawrencium, an actinide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
