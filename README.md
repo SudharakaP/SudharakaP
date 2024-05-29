@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
+21 is the number of points required to win a game in badminton and table tennis (before 2001).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
