@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-42 is the angle in degrees for which a rainbow appears or the critical angle.
+60 is the maximum number of marbles (game pieces) in Chinese checkers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
