@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-470 is the minimum length in yards from the tee to the hole on a Par 5.
+211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
