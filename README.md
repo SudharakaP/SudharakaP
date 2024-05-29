@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the maximum number of marbles (game pieces) in Chinese checkers.
+220 is the SMTP code meaning "service ready".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
