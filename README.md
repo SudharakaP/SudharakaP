@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-108 is the name of a community of and for open source developers, created by Red Hat.
+172 is the temperature in Farenheit at which alcohol boils.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
