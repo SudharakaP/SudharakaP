@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-168 is the death toll of the 1995 Oklahoma City bombing.
+10000 is the number of other neurons each neuron is connected to in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
