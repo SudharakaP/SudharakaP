@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5600 is the number of metres above sea level of the highest bridge in the world, located in the Himalayan mountains.
+1982 is the average price for a major league baseball game ticket in 2004 in cents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
