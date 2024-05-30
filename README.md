@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-162 is 162 is the total number of baseball games each team plays during a regular season in Major League Baseball.
+343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
