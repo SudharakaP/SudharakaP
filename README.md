@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-109 is the atomic number of meitnerium.
+220 is the SMTP code meaning "service ready".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
