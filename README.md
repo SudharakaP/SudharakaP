@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
+100 is the number of runs required for a cricket batsman to score a century, a significant milestone.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
