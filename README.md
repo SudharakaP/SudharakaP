@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-118 is the medical and Alpine rescue emergency telephone number in Italy.
+7e+27 is the number of atoms in the average human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
