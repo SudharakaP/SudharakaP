@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-352 is the number of international appearances by Kristine Lilly for the USA women's national soccer team, an all-time record.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
