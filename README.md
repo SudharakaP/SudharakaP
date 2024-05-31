@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-167 is the kilometers in length of Andros, Bahamas.
+125 is years in a quasquicentennial.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
