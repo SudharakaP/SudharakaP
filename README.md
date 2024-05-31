@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000000000000000000 is the estimated insect population.
+73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
