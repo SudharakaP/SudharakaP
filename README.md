@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the number of denominations of Canadian currency produced in large quantities.
+1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
