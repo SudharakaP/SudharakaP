@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
+90000 is the average number of hairs that redheads have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
