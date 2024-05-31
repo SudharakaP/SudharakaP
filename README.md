@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-144 is a gross (a dozen dozen).
+88 is the pounds of oxygen that the adult human body requires daily.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
