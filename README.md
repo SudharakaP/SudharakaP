@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
+Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
