@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40 is the customary number of hours in a regular workweek in some Western countries.
+188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
