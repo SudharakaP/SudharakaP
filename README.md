@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-230 is the common voltage in the European Union.
+3825000 is the number of entries on Wikipedia in the English language.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
