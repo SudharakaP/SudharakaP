@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the miles per hours that the fastest moving land snake, the Black Mamba, can move.
+950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
