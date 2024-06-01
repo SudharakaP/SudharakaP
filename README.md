@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the hottest temperature ever measured in the United States in Fahrenheit  at Death Valley, California on July 10, 1913.
+196 is the number of athletes that Canada had in 15 sports at the 2006 Winter Olympics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
