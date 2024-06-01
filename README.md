@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
+304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
