@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
+199 is the number of steps to the top of the Cape May Lighthouse in Cape May, New Jersey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
