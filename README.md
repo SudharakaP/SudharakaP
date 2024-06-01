@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-68 is the ideal temperature (F) for developing black-and-white film.
+194 is the rank of Isle of Man in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
