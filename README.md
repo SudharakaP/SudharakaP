@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-161 is the number of songs Pink Floyd recorded.
+150 is the number of estimated distinct phonemes in the Taa language.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
