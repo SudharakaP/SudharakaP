@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-366 is the number of days in a leap year.
+90 is the latitude of the North Pole and the South Pole.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
