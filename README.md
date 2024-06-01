@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
+4 is the number of nucleobase types in DNA and RNA – adenine, guanine, cytosine, thymine (uracil in RNA).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
