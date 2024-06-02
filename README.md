@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the freezing point of water at sea level in degrees Fahrenheit.
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
