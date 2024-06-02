@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-155 is the number of episodes the TV series Sea Hunt ran in syndication from 1958 to 1961.
+626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
