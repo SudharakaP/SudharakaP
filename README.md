@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-21 is the number of trump cards of the tarot deck if one does not consider The Fool to be a proper trump card.
+64 is the total number of black and white squares on the game board in chess or draughts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
