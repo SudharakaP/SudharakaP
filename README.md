@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-194 is the number of episodes of I Love Lucy that ran on CBS from 1951 to 1960.
+180 is a trick used in extreme sports where a rider rotates half a turn while airborne and lands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
