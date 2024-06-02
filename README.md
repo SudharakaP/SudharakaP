@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-206 is the number of bones in the typical adult human body.
+169 is the number of nonequivalent starting hands in the Texas hold "em.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
