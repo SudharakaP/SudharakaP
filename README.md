@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-124 is the rank of the Palestinian territories in world population.
+88 is the pounds of oxygen that the adult human body requires daily.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
