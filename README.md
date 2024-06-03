@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
+248 is the number of organs in the human body as traditionally depicted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
