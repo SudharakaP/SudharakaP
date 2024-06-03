@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-161 is the number of different ways to bet on a roulette wheel.
+92 is the number of letters in the longest place name: Taumatawhakatangihangakoauauotamateaurehaeaturipukakapikimaungahoronukupokaiwhenuakitanatahu.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
