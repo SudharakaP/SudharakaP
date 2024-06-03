@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172 is the temperature in Farenheit at which alcohol boils.
+190 is the rank of Uruguay in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
