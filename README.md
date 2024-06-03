@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-273 is the number of seconds in American composer John Cage's piano composition 4'33" of silence, in three movements.
+235 is the atomic mass number of an important isotope of the element uranium, the fissile isotope which is used as the fuel for nuclear reactors and in some nuclear weapons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
