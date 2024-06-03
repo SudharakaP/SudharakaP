@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-128 is a sacred number honored by Beans for many generations.
+188 is the rank of Tonga in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
