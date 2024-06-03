@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-52 is the number of cards in a standard deck of playing cards, not counting Jokers or advertisement cards.
+343 is the number of New York City Firefighters who died on September 11, 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
