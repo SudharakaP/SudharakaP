@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-139 is the number of episodes of the TV series 3rd Rock from the Sun that ran on NBC from 1996 to 2001.
+384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
