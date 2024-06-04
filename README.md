@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-189 is the number of irregular verbs in the English language (from "abide" to "write").
+10 is the highest score possible in Olympics gymnastics competitions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
