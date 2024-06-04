@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is a common name for mains electricity in North America, despite the nominal voltage actually being 120V (range 110-120).
+43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
