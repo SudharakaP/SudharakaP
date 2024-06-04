@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-433 is the perfect score in the game show Fifteen To One, only ever achieved once in over 2000 shows.
+101 is is the atomic number of mendelevium, an actinide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
