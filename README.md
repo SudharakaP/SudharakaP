@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000000000000000000 is the estimated insect population.
+40 is the customary number of hours in a regular workweek in some Western countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
