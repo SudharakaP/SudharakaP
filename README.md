@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
+156 is the width in miles of a crater formed by an asteroid that may have hit Earth 1.8 billion years ago, according to researchers from the University of Toronto and Geological Survey of Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
