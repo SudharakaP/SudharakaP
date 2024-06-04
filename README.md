@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-169 is the first number of an automatic IPv4 address assigned by TCP/IP when no external networking device is contactable.
+106 is the number of surat Quraysh in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
