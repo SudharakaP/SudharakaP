@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-386 is the number of Pokémon in the 3rd Generation National Pokédex.
+84 is the atomic number of polonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
