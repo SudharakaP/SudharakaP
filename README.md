@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-13 is the speed of rush hour traffic on average in kilometres per hour in London.
+3 is the number of points received for a successful field goal in both American football and Canadian football.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
