@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-75 is the age in years that the Saguaro Cactus, found in southwestern US, must be to grow branches.
+2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
