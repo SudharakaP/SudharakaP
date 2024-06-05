@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the height in inches of a regulation basketball hoop.
+161 is the number of different ways to bet on a roulette wheel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
