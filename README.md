@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the rank of Uruguay in population density.
+255 is the largest representable integer in an unsigned byte.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
