@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
+313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
