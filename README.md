@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
+1728 is braces were first invented by Pierre Fauchard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
