@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the height in feet that stalks of sugar cane can reach up to.
+212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
