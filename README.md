@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is the size in bits of certain data types in some computer programming languages.
+200 is degrees in a human"s field of vision (approximately).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
