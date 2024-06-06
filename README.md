@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-97 is the atomic number of berkelium.
+75 is the age limit for Canadian senators.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
