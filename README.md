@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
+72 is the standard resolution of an Apple Macintosh screen in dots per inch.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
