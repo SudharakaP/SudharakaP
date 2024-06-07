@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-0 is the atomic number of the theoretical element tetraneutron.
+3000000000 is the number of base pairs in the human genome.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
