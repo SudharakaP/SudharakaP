@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
+141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
