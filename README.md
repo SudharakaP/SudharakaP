@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-511 is the number of collaborators mathematician Paul Erdős had.
+366 is the number of days in a leap year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
