@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-181 is the wing area of a Boeing 757 airplane in meters.
+221 is sMTP status code for service closing transmission channel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
