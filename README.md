@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-117 is the height in metres of the tallest tree recorded, located in Humboldt Redwoods State Park, California.
+222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
