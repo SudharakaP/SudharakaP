@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-9 is the number of circles of Hell in Dante's Divine Comedy.
+176 is the rank of Vanuatu in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
