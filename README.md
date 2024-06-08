@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-200 is degrees in a human"s field of vision (approximately).
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
