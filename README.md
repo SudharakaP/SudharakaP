@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-124 is the rank of the Palestinian territories in world population.
+79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
