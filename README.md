@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4200000 is the number of couples in the United States that live together but are not married.
+248 is the number of organs in the human body as traditionally depicted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
