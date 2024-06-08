@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
+6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
