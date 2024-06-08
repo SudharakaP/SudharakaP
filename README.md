@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-496 is what the dimension of the gauge group must be for a superstring theory to make sense.
+31 is the number of days in the months January, March, May, July, August, October and December.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
