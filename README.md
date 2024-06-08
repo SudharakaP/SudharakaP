@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40 is the number of weeks for an average term of pregnancy, counting from the woman’s last menstrual period.
+200 is degrees in a human"s field of vision (approximately).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
