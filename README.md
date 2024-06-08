@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the price in cents per acre the USA bought Alaska from Russia.
+1600000 is the number of people employed by the Indian railway system in India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
