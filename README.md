@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the police emergency telephone number in Egypt.
+150 is the number of runs in cricket that's a milestone for a batsman.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
