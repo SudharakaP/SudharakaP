@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7e+27 is the number of atoms in the average human body.
+2 is the number of polynucleotide strands in a DNA double helix.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
