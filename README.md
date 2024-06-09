@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the number of polynucleotide strands in a DNA double helix.
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
