@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100 is the minimum distance in yards for a Par 3 on a golf course.
+175 is the number of films that actress Rose Tapley appeared in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
