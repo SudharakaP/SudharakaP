@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-168 is the number of episodes that the The Practice ran on ABC from 1997 to 2004.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
