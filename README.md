@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-613 is a significant number in Judaism, as its metaphysics, the Kabbalah, views every full entity as divisible into 613 parts.
+197 is the number of episodes of the Cosby Show that ran on NBC from 1984-1992.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
