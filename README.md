@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-83 is the highest UHF channel on older televisions made before the late 1970s.
+242 is the number of a notable UN Security Council resolution pertaining to the Arab/Israeli conflict.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
