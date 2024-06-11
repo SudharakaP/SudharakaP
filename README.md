@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-270 is the average number of days in human pregnancy.
+182 is the atomic number of an element temporarily called Unoctbium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
