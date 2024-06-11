@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-216 is the number of stitches on a baseball, according to the Ken Burns series "Baseball".
+64 is the number of Braille characters in the old 6-dot system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
