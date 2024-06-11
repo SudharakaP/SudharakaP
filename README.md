@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-191 is a common flight number for flights involved in crashes.
+Infinity is the estimation of the game-tree complexity in the game of Go.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
