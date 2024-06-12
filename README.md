@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
+181 is the rider number given to Lance Armstrong in 1999 when he won his first of seven Tour de France consecutive victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
