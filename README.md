@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-235 is the atomic mass number of an important isotope of the element uranium, the fissile isotope which is used as the fuel for nuclear reactors and in some nuclear weapons.
+133 is the common processor speed in MHz for common 32-bit processor CPUs circa 1995 such as the Intel Pentium and AMD AMD K5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
