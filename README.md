@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100 is the number of blessings a religious Jewish person is expected to utter daily.
+135 is the cartridge version of 35mm photographic film, used widely in still photogaphy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
