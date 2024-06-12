@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-182 is the atomic number of an element temporarily called Unoctbium.
+64 is number of codons in the RNA codon table under genetic code.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
