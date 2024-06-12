@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is number of codons in the RNA codon table under genetic code.
+100000000000 is the number of neurons in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
