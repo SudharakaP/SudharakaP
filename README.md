@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150000000 is the number of items held in the British Library.
+9 is the number of circles of Hell in Dante's Divine Comedy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
