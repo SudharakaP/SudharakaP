@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the price in cents per acre the USA bought Alaska from Russia.
+9 is the number of innings in a regulation, non-tied game of baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
