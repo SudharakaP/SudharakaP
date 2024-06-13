@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-213 is the code for character "Õ" in codepages such as ISO-8859-1 and UTF-8.
+68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
