@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
+614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
