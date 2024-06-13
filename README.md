@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-165 is the miles that twenty-mule teams, which were mules and horses attached to wagons, traveled from mines to the nearest railroad spur, 165 miles (275 km) away in Mojave, California.
+4 is the number of characters in a canonical four-character idiom in Chinese.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
