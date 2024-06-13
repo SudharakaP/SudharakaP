@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the single-season home run record in baseball set by Barry Bonds in 2001.
+Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
