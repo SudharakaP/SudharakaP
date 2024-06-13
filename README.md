@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is the number of the Vault that is the starting area of Fallout 3.
+180 is the number of litres of saliva in one day that cattle can produce.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
