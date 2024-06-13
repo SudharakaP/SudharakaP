@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-88 is the approximate number of days it takes Mercury to complete its orbit.
+720 is five gross (= 500 duodecimal, 5 × 144).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
