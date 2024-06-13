@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-386 is the number of Pokémon in the 3rd Generation National Pokédex.
+73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
