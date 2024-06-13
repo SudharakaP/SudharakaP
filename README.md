@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-166 is the number of films that Actress Margaret Joslin appeared in between 1910 and 1923.
+273 is the zero of the Celsius temperature scale (to the nearest whole number) in Kelvin.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
