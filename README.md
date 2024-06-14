@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-99 is the number of names of Allah, the names or attributes of God in the Qur'an.
+61000 is the average number of people airborne over the US at any given hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
