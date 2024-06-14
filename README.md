@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100 is the number of common administrative grouping unit of homesteads in Northern Europe and Great Britain.
+304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
