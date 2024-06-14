@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172 is the rank of Djibouti in world population density.
+210 is the world speed record (km/h) for a mountain bike on a ski slope.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
