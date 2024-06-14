@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-217 is the room in Stephen King's novel "The Shining", that plays a central part in the story as it is haunted.
+171 is the top speed in miles per hours of the the Porsche Cayenne Turbo S automobile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
