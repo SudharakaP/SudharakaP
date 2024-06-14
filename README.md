@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-107 is the number of Nobel Prize in Literature laureates.
+199 is travis Pastrana's number for dirtbiking and rally car racing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
