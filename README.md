@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
+221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
