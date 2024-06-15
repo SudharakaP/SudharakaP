@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
+213 is the name of a hip hop, active 1990-2004.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
