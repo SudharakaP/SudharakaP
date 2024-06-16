@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
+46 is the number of slices of pizza an average American kid eats in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
