@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the medical emergency number in Ghana.
+7 is the approximate number of years in the lifespan of Irish Wolfhound dogs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
