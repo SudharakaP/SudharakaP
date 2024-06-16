@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-24 is the maximum number of Knight Companions in the Order of the Garter.
+44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
