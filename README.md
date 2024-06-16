@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
+171 is the record number of goals scored by France at the 1998 World Cup.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
