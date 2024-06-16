@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
+9220000000000000000 is the largest number which can fit into a signed (two's complement) 64-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
