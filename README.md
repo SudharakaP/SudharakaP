@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-179 is the rank of the the song Love Will Tear Us Apart (1980) by the Joy Division on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
+200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
