@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-98 is the temperature (F) of the normal body.
+102 is the atomic number of nobelium, an actinide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
