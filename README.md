@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the approximate periodicity of a sunspot cycle in years.
+714 is the number of home runs Babe Ruth scored in his career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
