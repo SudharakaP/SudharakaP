@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-42 is the number of gallons that one barrel of petroleum holds.
+1400000 is the number of species that have been named by the World Resources Institute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
