@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-152 is the number of diapers solder in a Pampers Swaddlers pack.
+189 is the rank of Jersey in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
