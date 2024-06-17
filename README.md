@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
