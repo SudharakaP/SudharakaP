@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-9 is the number of circles of Hell in Dante's Divine Comedy.
+6 is the number of feet below ground level a coffin is traditionally buried.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
