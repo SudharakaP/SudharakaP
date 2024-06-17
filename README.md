@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-106 is the maximum number of characters filenames can have in Joliet, an extension to the ISO 9660 file system.
+149 is the number of legal proceedings against 149 communists in Estonia in 1924.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
