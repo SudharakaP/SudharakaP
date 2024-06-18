@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-390 is the speed in feet per second that nerve impulses for muscle position travel at.
+73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
