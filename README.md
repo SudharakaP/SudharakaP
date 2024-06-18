@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-174 is the rank of Zimbabwe in world population density.
+71 is the atomic number of lutetium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
