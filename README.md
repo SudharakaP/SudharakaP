@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-67890 is the number of largest decimal places of π that have been recited from memory.
+15 is the age for obtaining a driver's (or learner's) permit in certain jurisdictions, including some where the age for a driver's license is sixteen.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
