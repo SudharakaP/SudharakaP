@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is the cholesterol level above which is considered high risk.
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
