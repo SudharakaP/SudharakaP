@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
+53 is the number of bytes in an Asynchronous Transfer Mode packet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
