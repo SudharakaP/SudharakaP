@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the number of tracks on The Beatles' eponymous album, usually known as The White Album.
+365 is the number of solar days in the mean tropical year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
