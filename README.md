@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the traditional number of years in a jubilee period.
+39 is the number of mentions of work or labor in the Torah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
