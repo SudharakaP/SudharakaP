@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-564000 is the number of words in War and Peace by Leo Tolstoy.
+2055001 is the number of people employed by Wal-mart in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
