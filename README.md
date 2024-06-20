@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-720 is five gross (= 500 duodecimal, 5 × 144).
+511 is the number of collaborators mathematician Paul Erdős had.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
