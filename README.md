@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-189 is the rank of Jersey in world population.
+110 is a common name for mains electricity in North America, despite the nominal voltage actually being 120V (range 110-120).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
