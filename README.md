@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5 is the number of dots in a quincunx.
+365 is the number of solar days in the mean tropical year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
