@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-109 is the atomic number of meitnerium.
+208 is the area code for the US state of Idaho.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
