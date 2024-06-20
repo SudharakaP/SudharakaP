@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-92 is the number of letters in the longest place name: Taumatawhakatangihangakoauauotamateaurehaeaturipukakapikimaungahoronukupokaiwhenuakitanatahu.
+555 is the number of seats of the airliner A380-800.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
