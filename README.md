@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-187 is a signature wrestling move by wrestler New Jack (diving elbow drop while holding a steel chair underneath his arm).
+451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
