@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is the Exit status indicated by Mac App Store software when receipt validation fails.
+45000000 is the number of turkeys Americans eat at Thanksgiving annually.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
