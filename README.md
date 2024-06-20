@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-163 is the atomic number of an element temporarily called Unhextrium.
+121 is the electricity emergency telephone number in Egypt.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
