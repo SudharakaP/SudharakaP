@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
+64 is the number of sexual positions in the Kama Sutra.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
