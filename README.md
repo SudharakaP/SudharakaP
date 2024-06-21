@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-143 is the number of episodes of the TV series The Adventures of Robin Hood on CBS from 1955 to 1959.
+216 is the number of stitches on a baseball, according to the Ken Burns series "Baseball".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
