@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-525 is the number of scan lines in the NTSC television standard.
+16 is the minimum age for getting an adult job in most states and provinces across the globe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
