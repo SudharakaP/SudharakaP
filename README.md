@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-158 is days it took for the Surprize ship that set sail from England on January 19, 1790, to make port in Port Jackson, Sydney, Australia on June 26, 158 days later.
+142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
