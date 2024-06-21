@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-88 is the number of constellations in the sky as defined by the International Astronomical Union.
+626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
