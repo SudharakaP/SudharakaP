@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the number of points on a Star of David.
+123 is the electricity emergency telephone number in Indonesia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
