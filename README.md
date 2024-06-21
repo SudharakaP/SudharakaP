@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-216 is the number of stitches on a baseball, according to the Ken Burns series "Baseball".
+181 is the number of 181 colleges, universities and other higher education institutions in Texas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
