@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the approximate periodicity of a sunspot cycle in years.
+693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
