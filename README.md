@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1000000000000 is the number of bacteria on the surface of the human body.
+31 is the number of flavors of Baskin-Robbins ice cream.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
