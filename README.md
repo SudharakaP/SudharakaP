@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-179 is the atomic number of an element temporarily called Unseptennium.
+51 is the atomic number of antimony.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
