@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the maximum number of power stars a player can get in Super Mario 64 for the Nintendo 64.
+171 is the record number of goals scored by France at the 1998 World Cup.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
