@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-213 is one of the first three area codes created in California.
+220 is the common voltage in many countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
