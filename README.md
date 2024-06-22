@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110000 is the average number of hairs that people with black hair have.
+213 is one of the first three area codes created in California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
