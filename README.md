@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-137 is the atomic number of an element not yet observed called Untriseptium.
+193 is species of monkeys and apes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
