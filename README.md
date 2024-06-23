@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40 is the number of points that a Premier League team needs to avoid relegation in soccer.
+5 is times Muslims pray to Allah a day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
