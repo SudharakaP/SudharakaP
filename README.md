@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1300 is the number of babies born prematurely in the USA every day.
+13 is the speed of rush hour traffic on average in kilometres per hour in London.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
