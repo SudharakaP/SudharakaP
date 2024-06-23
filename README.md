@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-38 is the number of years it took the Israelites to travel from Kadesh Barnea to the Zered valley in Deuteronomy.
+480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
