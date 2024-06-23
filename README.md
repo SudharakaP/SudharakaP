@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the element with the highest number of protons yet discovered, Ununquadium with the highest number.
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
