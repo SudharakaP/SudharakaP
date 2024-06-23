@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
+162 is total number of baseball games each team plays during a regular season in Major League Baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
