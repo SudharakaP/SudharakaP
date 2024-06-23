@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35 is the basic film gauge in mm most commonly used for both analog photography and motion pictures.
+7e+27 is the number of atoms in the average human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
