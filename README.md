@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-160 is the number of characters permitted in a standard short message service in Australia and Europe.
+1400000 is the number of species that have been named by the World Resources Institute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
