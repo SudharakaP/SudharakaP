@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
+42 is the answer to the Ultimate Question of Life, the Universe, and Everything.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
