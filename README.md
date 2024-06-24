@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-130 is the approximate maximum height in meters of trees.
+29 is the number of attributes existing according to The Strokes in You Only Live Once.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
