@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the medical emergency number in Ghana.
+110 is a card game related to Forty-five (card game).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
