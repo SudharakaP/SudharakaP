@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10 is the average thickness of the Arctic ice sheet in feet.
+17 is the maximum number of strokes of a Chinese radical.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
