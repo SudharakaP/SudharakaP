@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the total number of cards in the game Racko.
+54 is the number of countries in Africa.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
