@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
+562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
