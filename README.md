@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+83 is the number of fundamental particles in the observable universe.
+63 is the number of chromosomes found in the offspring of a donkey and a horse.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
