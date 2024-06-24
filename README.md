@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
+188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
