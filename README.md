@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-52 is the approximate number of weeks in a year.
+50 is the number of states in the United States of America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
