@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-84 is the code for international direct dial phone calls to Vietnam.
+108 is the number of stitches in an official Major League Baseball baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
