@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-107 is a common police code denoting a suspicious person.
+144 is the Intel 8086 instruction for no operation (NOP).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
