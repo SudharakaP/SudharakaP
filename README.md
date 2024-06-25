@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-115 is the atomic number of an element temporarily called ununpentium.
+148 is the number of episodes of the TV series The Fresh Prince of Bel-Air on NBC from 1990 to 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
