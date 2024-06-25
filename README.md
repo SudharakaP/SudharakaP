@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-179 is the number of episodes of I Love Lucy which ran on CBS.
+186 is the rank of Somaliland in countries by population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
