@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is distinct solutions of the Soma cube puzzle.
+850 is the maximum possible Fair Isaac credit score.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
