@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the first magic number in physics.
+464 is the number of legal positions of the kings in chess, not counting mirrored positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
