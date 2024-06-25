@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-273 is the death toll of the air crash of American Airlines Flight 191.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
