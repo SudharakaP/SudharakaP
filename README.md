@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-229 is the lowest individual batting score not achieved by any player in test match cricket.
+81 is the number of stanzas or chapters in the Tao te Ching (in the most common arrangements).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
