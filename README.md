@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-666 is the number of the devil.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
