@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-139 is the all-time record number of rugby union international appearances made by Australia scrum-half George Gregan.
+87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
