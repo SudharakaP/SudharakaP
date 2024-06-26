@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-911 is the number of days after September 11th that the Madrid Attack took place.
+168 is the number of touchdowns that NFL quarterback Drew Brees had with the San Diego Chargers (2001–2005) and New Orleans Saints (2006 through the 2008 season).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
