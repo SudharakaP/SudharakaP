@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-108 is the name of a community of and for open source developers, created by Red Hat.
+67890 is the number of largest decimal places of π that have been recited from memory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
