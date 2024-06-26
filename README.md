@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the height in feet that stalks of sugar cane can reach up to.
+118 is the atomic number of the element Ununoctium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
