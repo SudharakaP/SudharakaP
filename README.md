@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the traditional number of years in a jubilee period.
+188 is the rank of Tonga in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
