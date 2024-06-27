@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-175 is the rank of Belize in world population.
+96 is the rating of Skyrim on metacritic.com.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
