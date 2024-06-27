@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-48 is the number of Ptolemaic constellations.
+90 is the latitude of the North Pole and the South Pole.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
