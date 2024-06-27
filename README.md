@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4 is the number of characters in a canonical four-character idiom in Chinese.
+106 is the atomic number of seaborgium (Unilhexium Unh).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
