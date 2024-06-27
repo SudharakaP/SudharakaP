@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-90 is the latitude of the North Pole and the South Pole.
+496 is what the dimension of the gauge group must be for a superstring theory to make sense.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
