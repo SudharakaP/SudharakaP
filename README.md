@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is the number of Braille characters in the old 6-dot system.
+144 is the Intel 8086 instruction for no operation (NOP).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
