@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1300 is the number of babies born prematurely in the USA every day.
+114 is the number of chapter in the Quran, the holy book of Islam contains 114.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
