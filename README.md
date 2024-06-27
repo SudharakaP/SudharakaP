@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the population of Guedanga, in the Ouo Department of ComoÃ© Province, Burkina Faso.
+30 is the height in feet that stalks of sugar cane can reach up to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
