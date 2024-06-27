@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the height in feet that stalks of sugar cane can reach up to.
+49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
