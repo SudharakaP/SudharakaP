@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-165 is the miles of Tahoe Rim Trail, a long-distance hiking trail around Lake Tahoe.
+1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
