@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the atomic number of the chemical element unbibium.
+441 is the number of squares on a Super Scrabble board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
