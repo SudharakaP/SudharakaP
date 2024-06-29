@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10 is the number of letters used in the traditional Snellen chart.
+46 is the number of slices of pizza an average American kid eats in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
