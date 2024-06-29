@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35 is the percentage of all bingo players are under the age of 35.
+110 is the number also known as "eleventy", a term made famous by linguist and author J. R. R. Tolkien (Bilbo Baggins celebrates his eleventy-first birthday at the beginning of The Lord of the Rings) and derived from the Old English hund endleofantig.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
