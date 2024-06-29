@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61 is the code for international direct dial phone calls to Australia.
+11 is the number of pounds one gallon of pure maple syrup weighs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
