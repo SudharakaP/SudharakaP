@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-63 is the number of chromosomes found in the offspring of a donkey and a horse.
+171 is the atomic number of an element called Ununseptunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
