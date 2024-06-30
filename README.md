@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-51 is the atomic number of antimony.
+7 is the number of colors of the rainbow.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
