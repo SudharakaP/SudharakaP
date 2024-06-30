@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-13 is the number of Oscar nominations of actress Meryl Streep, who holds the record for the most Oscar nominated actress.
+729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
