@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-182 is the atomic number of an element temporarily called Unoctbium.
+124 is the rank of the Palestinian territories in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
