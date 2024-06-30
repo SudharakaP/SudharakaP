@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6909 is the number of estimate for the linguistic diversity of living human languages or dialects.
+100 is the record number of points scored in one NBA game by a single player, set by Wilt Chamberlain of the Philadelphia Warriors on March 2, 1962 I.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
