@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-89 is the number of units of each colour in the board game Blokus.
+195 is the length in miles of The Wild West Relay team running relay race held annually in August in Colorado.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
