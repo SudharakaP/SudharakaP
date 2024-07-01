@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000000000000000000 is the estimated insect population.
+115 is the atomic number of an element temporarily called ununpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
