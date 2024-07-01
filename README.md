@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-213 is one of the first three area codes created in California.
+Infinity is the estimation of the game-tree complexity in the game of Go.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
