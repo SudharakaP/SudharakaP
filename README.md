@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-151 is total number of types of Pokémon in the original set.
+68 is the ideal temperature (F) for developing black-and-white film.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
