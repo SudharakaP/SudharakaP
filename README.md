@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
+3 is the number of notes in a triad, the basic form of any chord.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
