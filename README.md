@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the telephone number "to report a car breakdown on the highway in Austria.
+1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
