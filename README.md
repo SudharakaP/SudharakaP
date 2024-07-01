@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the number of the Immortals of Taoism.
+183 is the rank of the U.S. Virgin Islands in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
