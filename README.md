@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-175 is the weight in grams of a flying disc used in Ultimate.
+51 is the atomic number of antimony.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
