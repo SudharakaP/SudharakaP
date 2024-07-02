@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the total number of major and minor keys in Western tonal music, including enharmonic equivalents.
+6000000 is the number of parts in the Boeing 747-400.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
