@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
+729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
