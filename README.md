@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-168 is the highest test score of Australian cricket captain Michael Clarke.
+26 is the number of bones in the normal human foot and ankle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
