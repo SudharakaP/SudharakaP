@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
+108 is the number of cards in a deck of UNO cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
