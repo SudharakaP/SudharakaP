@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
+550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
