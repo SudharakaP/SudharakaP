@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is the number of Death in the In the Final Destination series.
+4 is the number of strings on a violin, a viola, a cello, double bass, a cuatro and a ukulele, and the number of string pairs on a mandolin.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
