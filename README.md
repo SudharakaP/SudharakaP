@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is the standard number of days in the school year in most areas of the USA.
+242 is the number of a notable UN Security Council resolution pertaining to the Arab/Israeli conflict.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
