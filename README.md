@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-46 is the number of samurai, out of 47, who carried out the attack in the historical Ako vendetta.
+304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
