@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is the number of surat al-Falaq in the Qur'an.
+67 is the number of counties in Florida.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
