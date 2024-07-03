@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
