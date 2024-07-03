@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-21 is the number of trump cards of the tarot deck if one does not consider The Fool to be a proper trump card.
+235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
