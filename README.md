@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-88 is a standard length of playing cards in mm.
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
