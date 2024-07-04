@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-84 is the atomic number of polonium.
+77 is the atomic number of iridium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
