@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is the cholesterol level above which is considered high risk.
+186 is the length of the Judgment at Nuremberg measured in 186 minutes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
