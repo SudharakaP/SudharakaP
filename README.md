@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-105 is the atomic number of hahnium, also known as dubnium.
+194 is the rank of Equatorial Guinea in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
