@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61 is the code for international direct dial phone calls to Australia.
+90000 is the average number of hairs that redheads have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
