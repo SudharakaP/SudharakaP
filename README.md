@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-143 is the number of episodes of the TV series The Adventures of Robin Hood on CBS from 1955 to 1959.
+169 is the first number of an automatic IPv4 address assigned by TCP/IP when no external networking device is contactable.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
