@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-248 is the number of organs in the human body as traditionally depicted.
+126 is the atomic number of unbihexium, an element that has not yet been discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
