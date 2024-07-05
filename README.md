@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
+11 is the number of points on the stylized maple leaf on the Flag of Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
