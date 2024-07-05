@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
