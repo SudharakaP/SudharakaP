@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-255 is the largest representable integer in an unsigned byte.
+172 is the temperature in Farenheit at which alcohol boils.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
