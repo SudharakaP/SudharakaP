@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000 is the gallons of saliva an average human produces in a lifetime.
+451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
