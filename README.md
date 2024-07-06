@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the distance a single playing card was thrown in feet by Kevin St. Onge to set a Guinness World Record.
+9220000000000000000 is the largest number which can fit into a signed (two's complement) 64-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
