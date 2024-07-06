@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-270 is the average number of days in human pregnancy.
+15 is the number of letters in the words "uncopyrightable", "dermatoglyphics", "misconjugatedly", and "hydropneumatics", the longest English words with no repeat letters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
