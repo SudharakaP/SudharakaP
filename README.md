@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the rank of Bahamas in world population.
+123 is the electricity emergency telephone number in Indonesia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
