@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172000 is tons of chocolate produced in Belgium in a year.
+230 is the common voltage in the European Union.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
