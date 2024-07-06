@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the atomic number of the chemical element unbibium.
+149000000 is the number of kilometres from the Earth the sun is.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
