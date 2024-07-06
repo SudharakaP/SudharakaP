@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-176 is the rank of Madagascar 176 world population density.
+60 is the years of marriage until the diamond wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
