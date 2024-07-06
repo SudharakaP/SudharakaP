@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-149000000 is the number of kilometres from the Earth the sun is.
+176 is the rank of Vanuatu in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
