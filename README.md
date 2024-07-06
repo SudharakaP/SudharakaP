@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-209 is the basketball record for most three pointers in a row.
+10000000000000000000 is the estimated insect population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
