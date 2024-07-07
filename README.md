@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-138 is keith Deller's score in the 1983 BDO World Darts Championship trophy against Eric Bristow, amongst the most memorable in darting history.
+36 is the perfect score on the ACT.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
