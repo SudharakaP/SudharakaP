@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
+127 is the atomic number of Unbiseptium, an element that has not yet been discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
