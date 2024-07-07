@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-54 is the score in golf colloquially referred to as a perfect round.
+13 is the number of colonies that formed the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
