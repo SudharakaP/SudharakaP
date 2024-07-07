@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1300 is the number of babies born prematurely in the USA every day.
+2 is the number of polynucleotide strands in a DNA double helix.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
