@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5 is the most common number of gears for automobiles with manual transmission.
+48 is the number of Ptolemaic constellations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
