@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-159 is the number of isomers of C11H24.
+216 is the number of stitches on a baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
