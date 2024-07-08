@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-48 is the number of Ptolemaic constellations.
+120 is a file medium format developed by Kodak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
