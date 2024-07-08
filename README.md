@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-142 is the number of home-based business ideas included in the 142 Now packet.
+24 is the number of bits a computer needs to represent falseColor images (for a maximum of 16,777,216 colours).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
