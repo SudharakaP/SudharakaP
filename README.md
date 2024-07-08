@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-71 is the number of different characters that can be used with a standard English Keyboard, excluding uppercase letters.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
