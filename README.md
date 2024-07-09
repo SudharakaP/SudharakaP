@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
