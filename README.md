@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-193 is the number of member states of the United Nations as of 2011.
+184 is a weight class in collegiate wrestling, 184 lb (83 kg).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
