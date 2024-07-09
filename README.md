@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
+28 is the number of letters in the Danish and Swedish alphabets (not counting W), and also in the Arabic and Esperanto alphabets.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
