@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-613 is a significant number in Judaism, as its metaphysics, the Kabbalah, views every full entity as divisible into 613 parts.
+14 is the number of pounds in a stone in traditional British units of weight.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
