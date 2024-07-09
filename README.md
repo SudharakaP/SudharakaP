@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
+2055001 is the number of people employed by Wal-mart in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
