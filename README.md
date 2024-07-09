@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-177 is the elevation of Borgarvirki, in the north of Iceland, in meteres above sea level.
+115 is the atomic number of an element temporarily called ununpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
