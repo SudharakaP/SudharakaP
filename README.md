@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-175 is the weight in grams of a flying disc used in Ultimate.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
