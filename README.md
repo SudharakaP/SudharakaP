@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-176 is the atomic number of an element temporarily called Unsepthexium.
+240 is the cholesterol level above which is considered high risk.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
