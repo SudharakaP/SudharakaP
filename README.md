@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-230 is the common voltage in the European Union.
+8 is the number of legs that arachnids have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
