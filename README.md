@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-273 is the number of seconds in American composer John Cage's piano composition 4'33" of silence, in three movements.
+386 is the number of Pokémon in the 3rd Generation National Pokédex.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
