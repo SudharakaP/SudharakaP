@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61 is the code for international direct dial phone calls to Australia.
+135 is the atomic number of an element temporarily called untriquadium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
