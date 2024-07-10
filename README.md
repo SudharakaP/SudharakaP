@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40 is the number of positions on a number of radio countdown programs, most notably American Top 40 and American Country Countdown.
+28 is the average number of minutes in a day that kids in the U.S. between the ages of 2 - 8 spend coloring.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
