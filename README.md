@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
+67890 is the number of largest decimal places of π that have been recited from memory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
