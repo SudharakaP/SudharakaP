@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6000000000000000000 is the number of transistor produced worldwide in 2008.
+32 is the number of rays in the Japanese Rising Sun on the cover of Incubus' 2006 album Light Grenades.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
