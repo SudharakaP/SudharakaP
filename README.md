@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-59 is the number corresponding to the last second in a given minute.
+171 is the top speed in miles per hours of the the Porsche Cayenne Turbo S automobile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
