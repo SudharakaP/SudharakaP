@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10 is the number of Provinces in Canada.
+50 is the traditional number of years in a jubilee period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
