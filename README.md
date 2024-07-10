@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is the number of stories (by common reckoning) of the Sears Tower in Chicago.
+343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
