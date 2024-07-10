@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1400000 is the number of species that have been named by the World Resources Institute.
+196 is the length in miles of the Adda River in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
