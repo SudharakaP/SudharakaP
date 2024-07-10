@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
+40 is the number of thieves in Ali Baba and the Forty Thieves and in Ali Shar and Zumurrud, from Thousand and One Nights.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
