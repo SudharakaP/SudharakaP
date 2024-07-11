@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-136 is the lower frequency band in kHz that amateur radio operators are allowed to transmit.
+182 is the atomic number of an element temporarily called Unoctbium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
