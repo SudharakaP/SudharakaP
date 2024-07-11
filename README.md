@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
+3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
