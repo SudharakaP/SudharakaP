@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-133 is the common processor speed in MHz for common 32-bit processor CPUs circa 1995 such as the Intel Pentium and AMD AMD K5.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
