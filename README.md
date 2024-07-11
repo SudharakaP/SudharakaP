@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
+131 is the number serving a monkiker for Indie music.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
