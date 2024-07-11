@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-108 is the number of suitors coveting Penelope, wife of Odysseus in Homer's Odyssey.
+Infinity is the estimation of the game-tree complexity in the game of Go.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
