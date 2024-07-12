@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-300 is the approximate number of Spartans who fought to death at the Battle of Thermopylae.
+128 is the bytes of memory of the Atari 2600 console.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
