@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
+182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
