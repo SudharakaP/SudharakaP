@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-218 is votes required in the US House of Representatives to achieve a majority as of 2008.
+210 is the world speed record (km/h) for a mountain bike on a ski slope.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
