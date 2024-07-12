@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
+44 is the percentage of kids who watch television before they go to sleep in the US.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
