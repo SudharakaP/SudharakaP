@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
+6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
