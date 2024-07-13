@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-191 is a common flight number for flights involved in crashes.
+114 is the police non-emergency number in Denmark.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
