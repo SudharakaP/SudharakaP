@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-212 is the boiling point of water at sea level in Fahrenheit degrees.
+134 is the number of episodes of the TV series Xena Warrior Princess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
