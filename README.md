@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-181 is the atomic number of an element temporarily called Unoctunium.
+20000000 is the weight in tons of the average iceberg.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
