@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-27 is the current number of Amendments to the United States Constitution (2012 February).
+188 is the rank of Tonga in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
