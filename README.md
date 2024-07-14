@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-105 is the atomic number of hahnium, also known as dubnium.
+32 is the percentage of employees in the USA who eat lunch and work at the same time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
