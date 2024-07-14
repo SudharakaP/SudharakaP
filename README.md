@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the rank of Bahamas in world population.
+433 is the perfect score in the game show Fifteen To One, only ever achieved once in over 2000 shows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
