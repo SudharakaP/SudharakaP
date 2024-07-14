@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
+27 is the current number of Amendments to the United States Constitution (2012 February).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
