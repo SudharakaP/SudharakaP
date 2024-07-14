@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
+480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
