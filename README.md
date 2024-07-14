@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15 is the length in miles of a train of boxcars that can be filled from recycled paper in the USA every day.
+166 is the feet above sea level at Turriff in Aberdeenshire, Scotland.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
