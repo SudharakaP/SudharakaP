@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-365 is the number of solar days in the mean tropical year.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
