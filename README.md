@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
+189 is the number of irregular verbs in the English language (from "abide" to "write").
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
