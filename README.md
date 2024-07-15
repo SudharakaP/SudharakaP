@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-242 is the number of a notable UN Security Council resolution pertaining to the Arab/Israeli conflict.
+440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
