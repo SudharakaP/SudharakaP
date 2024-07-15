@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-215 is the Dewey Decimal Classification for Science and religion.
+192 is the number of days it took to form the 2007 Belgian government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
