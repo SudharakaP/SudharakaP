@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6000000 is the number of parts in the Boeing 747-400.
+142600 is tonnes of gold mined in the world by the end of 2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
