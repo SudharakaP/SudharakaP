@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-126 is the atomic number of unbihexium, an element that has not yet been discovered.
+5 is the most common number of gears for automobiles with manual transmission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
