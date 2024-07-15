@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-145 is the atomic number of Unquadpentium.
+850 is the maximum possible Fair Isaac credit score.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
