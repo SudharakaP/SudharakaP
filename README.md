@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the distance off the coast of Malta that the ocean liner RMS Franconia was sunk by German torpedoes in 1916.
+20000000000 is the approximate number of coconuts produced worldwide each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
