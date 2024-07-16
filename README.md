@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-187 is 187th Street in the Washington Heights section of Manhattan.
+222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
