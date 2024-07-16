@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the percentage of methane on Earth produced from the flatulence of domesticated cows.
+119 is the default port for unencrypted NNTP connections.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
