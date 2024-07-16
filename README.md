@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
+149000000 is the number of kilometres from the Earth the sun is.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
