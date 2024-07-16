@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-176 is the rank of Rocks (1976) by Aerosmith on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
+39 is the traditional number of times citizens of Ancient Rome hit their slaves when beating them, referred to as "Forty save one".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
