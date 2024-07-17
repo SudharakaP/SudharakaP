@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-714 is the number of home runs Babe Ruth scored in his career.
+68 is the ideal temperature (F) for developing black-and-white film.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
