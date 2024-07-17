@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
+3 is the cost in cents to make a $1 bill in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
