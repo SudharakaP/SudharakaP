@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-155 is the maximum possible score in a single break in snooker, with a free ball at the start of the break (147 is the highest possible without a free ball).
+1311000000 is the population of the People's Republic of China in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
