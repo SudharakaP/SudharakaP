@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
+360 is the number of degrees in a circle for the purpose of angular measurement.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
