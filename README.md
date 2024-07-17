@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61000 is the average number of people airborne over the US at any given hour.
+162 is total number of baseball games each team plays during a regular season in Major League Baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
