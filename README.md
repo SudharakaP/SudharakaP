@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-166 is the number of points the Dow Jones Industrials fell on June 24, 2005.
+343 is the number of frames in which U.S. President John F. Kennedy's presidential limousine can be seen in the Zapruder film.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
