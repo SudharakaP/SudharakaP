@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-158 is the number of episdoes the TV series The Dick Van Dyke Show ran on CBS from 1961 to 1966 with 158 episodes.
+166 is the number of athletes (104 men and 62 women) that represented Scotland in the 2006 Commonwealth Games in Melbourne, Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
