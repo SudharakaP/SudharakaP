@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56 is the maximum speed of analog data transmission over a POTS in the 20th century measured in kbit/s.
+93 is that approximate distance in millions of miles the Sun is away from the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
