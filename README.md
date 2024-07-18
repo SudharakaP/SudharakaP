@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-169 is miles that the Thames River flows through Ontario, Canada.
+6 is the number of dots in a Braille cell.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
