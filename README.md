@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
+126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
