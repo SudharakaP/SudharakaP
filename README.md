@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-183 is the id number of Issam Hamid Al Bin Ali Al Jayfi, a detainee at Guantanamo Bay.
+158 is days it took for the Surprize ship that set sail from England on January 19, 1790, to make port in Port Jackson, Sydney, Australia on June 26, 158 days later.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
