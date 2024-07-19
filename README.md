@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the number of miles per hour an automobile accelerates from rest as one of the standard measurements of performance.
+9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
