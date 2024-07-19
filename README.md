@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-59 is the number corresponding to the last minute in a given hour.
+139 is the number of unlabeled topologies with 5 elements.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
