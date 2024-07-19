@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
+132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
