@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-174 is the populatiokn of Aupaluk, Quebec (as of 2006).
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
