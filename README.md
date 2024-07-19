@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-16777216 is the number of different colors that can be generated using the hex code system in HTML.
+80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
