@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the standard length (year) of a term in office for a United States senator.
+100 is the number of yards in an American football field (not including the end zones).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
