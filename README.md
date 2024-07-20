@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-343 is the number of New York City Firefighters who died on September 11, 2001.
+100 is the number of yards in an American football field (not including the end zones).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
