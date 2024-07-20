@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the atomic number of an element called Ununseptunium.
+15 is the legal age for sexual intercourse in many countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
