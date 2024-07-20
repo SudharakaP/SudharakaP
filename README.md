@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-45000000000 is the approximate number of fat cells in an average adult.
+66 is the total number of books in the Protestant edition of the Bible (Old Testament and New Testament) combined.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
