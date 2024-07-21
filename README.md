@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
+199 is the number of episodes of Ironside that ran on NBC from 1967 to 1975 with 199 episodes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
