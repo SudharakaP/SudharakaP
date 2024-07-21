@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the detainee number of the Mohammad Al Rahman Al Shumrani at Guantanamo Bay.
+31 is the number of musical triads (12 major, 12 minor, 4 diminished, and 3 augmented).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
