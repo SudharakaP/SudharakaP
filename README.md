@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-127 is the highest signed 8 bit integer.
+201 is the title of an episode of South Park.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
