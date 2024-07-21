@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-211 is the SMTP status code system status.
+28 is the number of a car formerly run in the NASCAR Sprint Cup Series by Yates Racing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
