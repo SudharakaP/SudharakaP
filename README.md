@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is a common speed limit (mph) for freeways in many US states.
+61 is the code for international direct dial phone calls to Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
