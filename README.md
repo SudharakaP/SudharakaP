@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-169 is miles that the Thames River flows through Ontario, Canada.
+8 is the number of legs that arachnids have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
