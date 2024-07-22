@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the years of marriage until the diamond wedding anniversary.
+38 is the number of surviving plays written by William Shakespeare.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
