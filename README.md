@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40 is the number of weeks for an average term of pregnancy, counting from the woman’s last menstrual period.
+202 is the area code assigned to Washington D.C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
