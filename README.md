@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the number of grams in an ounce (approximately), and used as such in the illegal drug trade.
+136 is the number of episodes the TV series Fame ran on NBC and syndication from 1982 to 1987.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
