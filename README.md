@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-200 is degrees in a human"s field of vision (approximately).
+113 is the atomic number of an element temporarily called ununtrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
