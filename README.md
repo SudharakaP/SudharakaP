@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-496 is what the dimension of the gauge group must be for a superstring theory to make sense.
+188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
