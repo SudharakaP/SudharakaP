@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-29 is the number of cups of milk needed to make one pound of butter.
+3825000 is the number of entries on Wikipedia in the English language.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
