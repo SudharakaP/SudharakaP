@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
+40 is the number of weeks for an average term of pregnancy, counting from the woman’s last menstrual period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
