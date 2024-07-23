@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the standard resolution of an Apple Macintosh screen in dots per inch.
+1e+21 is the number of grains of sand on all the world's beaches put together.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
