@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the top speed in miles per hours of the the Porsche Cayenne Turbo S automobile.
+48 is the number of Ptolemaic constellations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
