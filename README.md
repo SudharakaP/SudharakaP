@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-136 is the lower frequency band in kHz that amateur radio operators are allowed to transmit.
+179 is the number of episodes of I Love Lucy which ran on CBS.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
