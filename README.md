@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-432 is three-dozen sets of a dozen, making it three gross.
+30 is the number of variations in Bach's Goldberg Variations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
