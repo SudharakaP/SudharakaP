@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-127 is the atomic number of Unbiseptium, an element that has not yet been discovered.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
