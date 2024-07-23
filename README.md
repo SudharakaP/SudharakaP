@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
+115 is the atomic number of an element temporarily called ununpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
