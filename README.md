@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2055001 is the number of people employed by Wal-mart in 2007.
+1 is the number of Gods in monotheism.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
