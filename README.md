@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-81 is the number of stanzas or chapters in the Tao te Ching (in the most common arrangements).
+555 is the number of keyboard sonatas written by Domenico Scarlatti, according to the catalog by Ralph Kirkpatrick.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
