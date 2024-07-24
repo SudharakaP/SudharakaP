@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-85 is the IQ and nickname of Aaron in Alien 3.
+59 is the number corresponding to the last second in a given minute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
