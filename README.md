@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
+174 is the number of miles the Columbia University Library System collection, with over 9.3 million volumes, would stretch end-to-end.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
