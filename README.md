@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the length in minutes of the Right Stuff.
+28 is the number of days in the average human menstrual cycle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
