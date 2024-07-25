@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-107 is a common police code denoting a suspicious person.
+72 is the life duration of the ovule in hours.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
