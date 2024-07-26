@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-184 is the distance in light years to Eta Aquarii,a star in the constellation Aquarius.
+2055001 is the number of people employed by Wal-mart in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
