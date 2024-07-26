@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-137 is a radioactive isotope of Caesium formed by nuclear fission.
+402000000 is the number of native speakers of English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
