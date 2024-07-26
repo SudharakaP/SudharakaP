@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7 is the maximum number of times a letter-sized paper can be folded in half.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
