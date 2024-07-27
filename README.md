@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
+10 is the highest score possible in Olympics gymnastics competitions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
