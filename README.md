@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-153 is the ordinal number of the coat of arms of Komi Republic in the State Heraldic Register of the Russian Federation.
+185 is the distance a single playing card was thrown in feet by Kevin St. Onge to set a Guinness World Record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
