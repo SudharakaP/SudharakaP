@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the first magic number in physics.
+109 is the atomic number of meitnerium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
