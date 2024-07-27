@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-203 is the HTTP status code indicating partial information.
+1337 is the weight in pounds of the biggest pumpkin in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
