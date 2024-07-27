@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-97 is the number of different characters that can be used with a standard English Keyboard.
+18 is the number of levels in hell in the Chinese mythos.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
