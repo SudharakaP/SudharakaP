@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-336 is the number of dimples on an American golf ball.
+40 is the number of positions on a number of radio countdown programs, most notably American Top 40 and American Country Countdown.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
