@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-138 is essendon's losing margin against Adelaide in round 10 of the 2006 AFL season.
+242 is the number of a notable UN Security Council resolution pertaining to the Arab/Israeli conflict.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
