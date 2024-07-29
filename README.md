@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-117 is the atomic number of a recently discovered element temporarily called ununseptium.
+172 is the rank of Iceland in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
