@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-16777216 is the number of different colors that can be generated using the hex code system in HTML.
+33 is the temperature at which water boils according to the Newton scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
