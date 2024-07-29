@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the earliest age that the emancipation of minors can occur in the U.S.
+511 is the number of collaborators mathematician Paul Erdős had.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
