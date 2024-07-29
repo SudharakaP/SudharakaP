@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-86 is the device number for a lockout relay function in electrical circuit protection schemes.
+47 is the total numbers of balloons that a player can collect in Rareware's Nintendo 64 game Diddy Kong Racing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
