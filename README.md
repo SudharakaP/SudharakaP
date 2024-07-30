@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-97 is the number of different characters that can be used with a standard English Keyboard.
+562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
