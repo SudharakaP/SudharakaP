@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-70 is the number of years of marriage until the platinum wedding anniversary.
+65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
