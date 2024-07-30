@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-136 is the lower frequency band in kHz that amateur radio operators are allowed to transmit.
+22 is the number of yards in a chain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
