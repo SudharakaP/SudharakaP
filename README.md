@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-67 is the number of counties in Florida.
+221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
