@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22 is the typical (minimum) number of episodes in a season for a television program broadcast on a major American network.
+493 is the number of bronze knuts equivalent to one gold galleon, in the monetary system of the world of Harry Potter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
