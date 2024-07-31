@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5200 is the number of standard size of a legion in the Roman Empire.
+0 is the coldest possible temperature old the Kelvin scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
