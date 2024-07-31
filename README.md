@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61 is the code for international direct dial phone calls to Australia.
+6 is the number of ponies in the main cast of My Little Pony: Friendship is Magic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
