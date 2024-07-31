@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-70 is the distance (meter) from archer to targets in Olympic Archery.
+165 is the miles of Tahoe Rim Trail, a long-distance hiking trail around Lake Tahoe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
