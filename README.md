@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-27 is the total number of letters in the Spanish alphabet (5 vowels and 22 consonants).
+69 is the number Bill and Ted were thinking of when talking to their future selves.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
