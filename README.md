@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-39 is the number of mentions of work or labor in the Torah.
+69 is the atomic number of thulium, a lanthanide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
