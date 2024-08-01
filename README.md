@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35000 is the number of genes in a human being.
+37 is the normal human body temperature in degrees Celsius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
