@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the percentage of employees in the USA who eat lunch and work at the same time.
+108 is the number of pressure points in the human body according to Marma Adi and Ayurveda, where consciousness and flesh intersect to give life to the living being.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
