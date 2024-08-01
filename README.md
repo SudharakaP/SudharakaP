@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-18 is the number of holes in a stipulated round of golf.
+100000000000 is the number of neurons in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
