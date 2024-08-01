@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the distance off the coast of Malta that the ocean liner RMS Franconia was sunk by German torpedoes in 1916.
+100000000000000 is the number of cells in the the human body, of which only 10^{13} are human. The remaining 90% non-human cells are bacteria.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
