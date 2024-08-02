@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
+1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
