@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
+110 is a percentage in the expression "To give 110%", meaning to give a little more effort than one's maximum effort.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
