@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the total number of books in the Holy Bible in the Catholic version.
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
