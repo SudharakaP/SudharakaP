@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-720 is five gross (= 500 duodecimal, 5 × 144).
+98 is the temperature (F) of the normal body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
