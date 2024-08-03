@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-248 is the number of organs in the human body as traditionally depicted.
+28 is the number worn by the Clemson Tigers' record breaking running back C.J.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
