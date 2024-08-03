@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-166 is the number of points the Dow Jones Industrials fell on June 24, 2005.
+196 is the length in miles of the New Orleans and Northeastern Railroad.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
