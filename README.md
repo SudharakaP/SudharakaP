@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
+208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
