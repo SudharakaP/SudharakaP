@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-91 is the code for international direct dial phone calls to India.
+198 is the number of places listed on the United States National Register of Historic Places in Los Angeles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
