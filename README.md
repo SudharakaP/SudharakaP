@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-53 is the port number of UDP and TCP for the Domain Name System protocol.
+91 is the code for international direct dial phone calls to India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
