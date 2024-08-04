@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10 is the number of official inkblots in the Rorschach inkblot test.
+108 is there number of love sonnets in Astrophil and Stella, the first English sonnet sequence by Sir Philip Sidney.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
