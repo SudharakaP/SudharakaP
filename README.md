@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is the atomic number of an element temporarily called Unocthexium.
+200 is the minimum number of varieties of watermelons grown in the U.S.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
