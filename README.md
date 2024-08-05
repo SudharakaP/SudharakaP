@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-214 is the first area code of metropolitan Dallas, Texas.
+511 is the number of collaborators mathematician Paul Erdős had.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
