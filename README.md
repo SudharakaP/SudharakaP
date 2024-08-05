@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-66 is the number of years of the longest hiccups on record by an American pig farmer from 1922 to 1987.
+65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
