@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-177 is the second highest possible score in darts that can be obtained by throwing three darts in a single visit to the oche.
+30 is the height in feet that stalks of sugar cane can reach up to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
