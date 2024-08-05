@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the height in feet that stalks of sugar cane can reach up to.
+7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
