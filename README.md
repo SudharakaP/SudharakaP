@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-98 is the temperature (F) of the normal body.
+121 is the number for voicemail for mobile phones on the Vodafone network.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
