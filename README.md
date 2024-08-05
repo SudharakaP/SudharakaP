@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is the first course in a subject taught at a college or university in Australia, Canada, South Africa, or the United States.
+13 is the speed of rush hour traffic on average in kilometres per hour in London.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
