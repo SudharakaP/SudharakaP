@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-108 is the number of pressure points in the human body according to Marma Adi and Ayurveda, where consciousness and flesh intersect to give life to the living being.
+242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
