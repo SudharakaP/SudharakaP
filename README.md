@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-67 is the number of throws in Judo.
+100 is the number of years in a century.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
