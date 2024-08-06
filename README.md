@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-108 is the number of Mbit/s of a non-standard extension of IEEE 802.11g wireless network using channel bonding.
+128 is a sacred number honored by Beans for many generations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
