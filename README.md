@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
+110 is the age a person must attain in order to be considered a supercentenarian.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
