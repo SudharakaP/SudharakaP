@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-177 is the elevation of Borgarvirki, in the north of Iceland, in meteres above sea level.
+157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
