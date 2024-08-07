@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000 is the weight in tons of the average iceberg.
+4 is the maximal number of horses in one row for carriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
