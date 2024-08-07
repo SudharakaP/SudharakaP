@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is the rank of Somaliland in countries by population density.
+35 is the percentage of all bingo players are under the age of 35.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
