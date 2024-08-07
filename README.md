@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-165 is the miles of Tahoe Rim Trail, a long-distance hiking trail around Lake Tahoe.
+24 is the number of letters in both the modern and classical Greek alphabet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
