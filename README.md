@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-103 is the atomic number of lawrencium, an actinide.
+166 is the number of points the Dow Jones Industrials fell on June 24, 2005.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
