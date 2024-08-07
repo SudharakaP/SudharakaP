@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-441 is the number of squares on a Super Scrabble board.
+14 is the number of muqatta'at in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
