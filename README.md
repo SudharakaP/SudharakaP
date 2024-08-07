@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the rank of Bluesbreakers (1966) by John Mayall With Eric Clapton on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
