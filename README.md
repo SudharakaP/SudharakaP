@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-88 is the pounds of oxygen that the adult human body requires daily.
+5200 is the number of standard size of a legion in the Roman Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
