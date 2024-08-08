@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-45000000 is the number of turkeys Americans eat at Thanksgiving annually.
+285 is the total number of Rules of Acquisition in Star Trek.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
