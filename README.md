@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4200000 is the number of couples in the United States that live together but are not married.
+199 is the number of episodes of Coach in which actress Shelley Fabares appeared in 199 (of 200 total) episodes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
