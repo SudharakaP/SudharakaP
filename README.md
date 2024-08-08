@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
+169 is the height in feet of The Oak Island Lighthouse on Oak Island, North Carolina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
