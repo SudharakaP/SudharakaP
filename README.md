@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-200 is degrees in a human"s field of vision (approximately).
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
