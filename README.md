@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-170 is largest integer for which Google"s built-in calculator function can compute the factorial.
+1337 is the weight in pounds of the biggest pumpkin in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
