@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is the atomic number of an element temporarily called Unsepttrium.
+113 is the number of surat al-Falaq in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
