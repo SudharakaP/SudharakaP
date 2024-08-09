@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-126 is the atomic number of unbihexium, an element that has not yet been discovered.
+142600 is tonnes of gold mined in the world by the end of 2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
