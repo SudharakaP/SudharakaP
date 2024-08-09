@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-107 is the atomic number of bohrium.
+125 is the atomic number of the yet-to-be-discovered element Unbipentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
