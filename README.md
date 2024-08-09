@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the life duration of the ovule in hours.
+154 is the period in days that the sun follows on gamma-ray flares.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
