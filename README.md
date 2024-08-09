@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+21 is the number of grains of sand on all the world's beaches put together.
+129 is the rank of Liberia in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
