@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the length in minutes of the Right Stuff.
+173 is the atomic number of an element temporarily called Unsepttrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
