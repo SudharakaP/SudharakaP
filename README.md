@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the record number of victories in an NBA season (1995-96 Chicago Bulls).
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
