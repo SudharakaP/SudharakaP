@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150 is the number of degrees in the quincunx astrological aspect explored by Johannes Kepler.
+139 is the all-time record number of rugby union international appearances made by Australia scrum-half George Gregan.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
