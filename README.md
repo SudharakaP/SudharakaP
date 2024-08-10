@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is is the number of floors of Taipei 101, the tallest skyscraper in the world from 2004 to 2010.
+20000000000 is the approximate number of coconuts produced worldwide each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
