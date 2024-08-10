@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-139 is the all-time record number of rugby union international appearances made by Australia scrum-half George Gregan.
+22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
