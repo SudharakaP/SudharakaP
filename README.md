@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-133 is the number of career touchdowns from 1983 - 1996 of Canadian Football League quarterback Danny Barrett.
+83 is the highest UHF channel on older televisions made before the late 1970s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
