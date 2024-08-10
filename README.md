@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-78 is the number of lines that make up Metatron's Cube.
+194 is the number of episodes of Will & Grace that ran on NBC from 1998 to 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
