@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
+185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
