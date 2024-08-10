@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
+Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
