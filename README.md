@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
+525998433 is the number of distinct websites as of November 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
