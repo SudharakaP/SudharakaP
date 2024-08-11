@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-82 is the number of games in an NBA or NHL regular season.
+99 is the number of names of Allah, the names or attributes of God in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
