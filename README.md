@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-361 is the number of positions on a standard 19 x 19 Go board.
+81 is the number of stanzas or chapters in the Tao te Ching (in the most common arrangements).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
