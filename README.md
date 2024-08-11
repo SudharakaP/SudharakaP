@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100 is the approximate number of eyes a scallop has around the edge of its shell.
+193 is the number of member states of the United Nations as of 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
