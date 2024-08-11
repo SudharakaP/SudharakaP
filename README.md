@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-167 is the number of tennis titles Martina Navratilova has, an all-time record for men or women.
+390 is the speed in feet per second that nerve impulses for muscle position travel at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
