@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5500000000000000 is the number of estimated ants on Earth alive at any one time.
+43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
