@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
+32 is the percentage of employees in the USA who eat lunch and work at the same time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
