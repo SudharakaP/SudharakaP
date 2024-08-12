@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-201 is the HTTP status code indicating a new resource was successfully created in response to the request.
+712 is the largest known number such that it and its 8th power have no common digits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
