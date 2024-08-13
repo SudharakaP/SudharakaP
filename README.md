@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-178 is the rank of Estonia in world population density.
+193 is species of monkeys and apes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
