@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-216 is the ISO's standard for paper sizes.
+222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
