@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-153 is the code for "mental processes & intelligence" in the Dewey Decimal Classification.
+192 is the atomic number of an element temporarily called Unennbium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
