@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-142 is the number of 6-vertex planar graphs.
+52 is the approximate number of weeks in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
