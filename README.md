@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-198 is the number of places listed on the United States National Register of Historic Places in Los Angeles.
+166 is the number of athletes (104 men and 62 women) that represented Scotland in the 2006 Commonwealth Games in Melbourne, Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
