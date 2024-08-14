@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-94 is the length of an NBA court in feet.
+178 is the rank of Estonia in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
