@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2500 is the number of letters on a typical typed page of text.
+27 is the number of countries in the European Union (as of August 2011).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
