@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-45000000000 is the number of galaxies in the observable universe.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
