@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-105 is the atomic number of hahnium, also known as dubnium.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
