@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
+117 is the height in metres of the tallest tree recorded, located in Humboldt Redwoods State Park, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
