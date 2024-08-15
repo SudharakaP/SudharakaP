@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-106000000000 is the number of homo sapiens that have lived since speciation.
+11 is the number of points on the stylized maple leaf on the Flag of Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
