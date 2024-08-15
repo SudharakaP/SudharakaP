@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the traditional number of years in a jubilee period.
+213 is one of the first three area codes created in California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
