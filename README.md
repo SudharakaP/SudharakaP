@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-89 is the atomic number of actinium.
+64 is number of golden disks in the myth of the Tower of Hanoi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
