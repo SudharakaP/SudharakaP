@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-123 is the medical emergency telephone number in Egypt.
+39 is the number of books in the Old Testament according to Protestant canon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
