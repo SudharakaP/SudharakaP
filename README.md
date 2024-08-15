@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the number of completed, numbered piano sonatas by Ludwig van Beethoven.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
