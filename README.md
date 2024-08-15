@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
+135 is the cartridge version of 35mm photographic film, used widely in still photogaphy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
