@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
+4.52e+46 is the upper bound for the number of legal chess positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
