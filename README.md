@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
+1982 is the average price for a major league baseball game ticket in 2004 in cents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
