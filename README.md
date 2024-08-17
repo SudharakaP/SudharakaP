@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
+6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
