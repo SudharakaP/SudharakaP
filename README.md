@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the cartridge version of 35mm photographic film, used widely in still photogaphy.
+7 is the number of main islands of mythological Atlantis.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
