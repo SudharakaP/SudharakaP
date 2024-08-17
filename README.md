@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7 is the number of main islands of mythological Atlantis.
+124 is a stable isotope of tellurium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
