@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+83 is the number of fundamental particles in the observable universe.
+32 is the size, in bits, of certain integer data types, used in computer representations of numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
