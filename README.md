@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the percentage of water of which the human body is composed.
+180 is a trick used in extreme sports where a rider rotates half a turn while airborne and lands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
