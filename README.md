@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
