@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
+216 is the number of stitches on a baseball, according to the Ken Burns series "Baseball".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
