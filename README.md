@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the number for voicemail for mobile phones on the Vodafone network.
+195 is the rank of Dominica ranks in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
