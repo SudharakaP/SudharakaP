@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-82 is the number of games in an NBA or NHL regular season.
+118 is the beginning of directory enquiries numbers in the United Kingdom,France, Germany, Latvia, Sweden, Ireland, and Turkey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
