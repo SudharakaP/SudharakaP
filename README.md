@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
+613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
