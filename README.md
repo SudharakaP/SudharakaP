@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-53 is the number of bytes in an Asynchronous Transfer Mode packet.
+1979 is a song by American alternative rock band The Smashing Pumpkins.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
