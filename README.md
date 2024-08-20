@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the maximum number of electrons that can fit in an f sublevel.
+365 is the number of solar days in the mean tropical year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
