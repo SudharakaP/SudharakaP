@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-177 is the atomic number of an element temporarily called Unseptseptium.
+85 is the atomic number of astatine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
