@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-600 is the maximum credit score considered poor, thus limiting available credit in the USA.
+169 is the number of nonequivalent starting hands in the Texas hold "em.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
