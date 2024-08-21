@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
+139 is the number of law enforcement officers killed in the line of duty in 1998.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
