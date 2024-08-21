@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is the number of hair strands used to animate Rapunzel's 70 meter long hair in Tangled (2010).
+480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
