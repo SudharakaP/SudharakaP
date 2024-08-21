@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is the number of Death in the In the Final Destination series.
+180 is a number that in an astrological aspect is considered to be negative in influence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
