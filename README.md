@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1000000000000 is the number of bacteria on the surface of the human body.
+104 is the number of Corinthian columns in the Temple of Olympian Zeus, the largest temple ever built in Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
