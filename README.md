@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-99 is the number of names of Allah, the names or attributes of God in the Qur'an.
+755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
