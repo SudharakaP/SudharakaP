@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-151 is the height of the Statue of Liberty from the base to the torch in feet (46 m).
+128 is the number of characters in the ASCII character set.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
