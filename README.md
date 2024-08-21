@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-88 is the approximate number of days it takes Mercury to complete its orbit.
+400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
