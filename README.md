@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-193 is species of monkeys and apes.
+23 is the number of crosses on Calvary in the Monty Python film Life Of Brian.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
