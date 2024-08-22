@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-352 is the number of international appearances by Kristine Lilly for the USA women's national soccer team, an all-time record.
+650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
