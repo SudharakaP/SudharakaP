@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
+88 is the number of keys on a piano (36 black and 52 white).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
