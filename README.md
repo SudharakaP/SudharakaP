@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150000000 is the number of items held in the British Library.
+10 is the number of fingers on a pair of human hands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
