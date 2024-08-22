@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-511 is the number of collaborators mathematician Paul Erdős had.
+12 is the number of pence in a shilling in the former British currency system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
