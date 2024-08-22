@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
+300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
