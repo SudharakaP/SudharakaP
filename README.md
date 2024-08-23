@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40 is the customary number of hours in a regular workweek in some Western countries.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
