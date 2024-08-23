@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-138 is the number of touchdowns football quarterback Donnie Davis had for the Georgia Force of the Arena Football League.
+46 is the number of mountains in the 46 peaks of the Adirondack mountain range.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
