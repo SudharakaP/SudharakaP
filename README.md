@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+21 is the number of grains of sand on all the world's beaches put together.
+106 is the maximum number of characters filenames can have in Joliet, an extension to the ISO 9660 file system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
