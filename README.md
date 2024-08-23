@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7e+27 is the number of atoms in the average human body.
+30 is the duration in years of the Thirty Years' War - 1618 to 1648.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
