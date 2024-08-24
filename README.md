@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4294967296 is the number of bytes in 4 gibibytes.
+32 is the number of pages in the average comic book (not including the cover).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
