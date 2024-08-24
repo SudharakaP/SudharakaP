@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-21 is the number of trump cards of the tarot deck if one does not consider The Fool to be a proper trump card.
+255 is the largest values that can be assigned to elements in the 24-bit RGB color model, since each color channel is allotted eight bits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
