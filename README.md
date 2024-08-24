@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is a percentage in the expression "To give 110%", meaning to give a little more effort than one's maximum effort.
+295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
