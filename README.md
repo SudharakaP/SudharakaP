@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
+1000000 is the number of people buried in Père Lachaise Cemetery, the most visited cemetary in the world, opened in 1804.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
