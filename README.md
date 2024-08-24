@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-78 is the number of chromosomes in canine DNA.
+183 is the rank of Laos in countries by population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
