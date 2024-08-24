@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the angle between two planets in degrees so that they are in an astrological aspect called a sesquiquadrate.
+14 is the number of points in a proposed republican constitution of the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
