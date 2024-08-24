@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-93 is that approximate distance in millions of miles the Sun is away from the Earth.
+1600000 is the number of people employed by the Indian railway system in India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
