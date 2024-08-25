@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-128 is the number of ASCII characters (33 non-printing characters, mostly obsolete control characters that affect how text is processed, and 94 printable).
+139 is the margin in St Kilda's win over the Brisbane Lions in the last round of the 2005 season in the Australian Football League.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
