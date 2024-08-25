@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1979 is a song by American alternative rock band The Smashing Pumpkins.
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
