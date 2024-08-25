@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the pairs of ribs normally in the human body.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
