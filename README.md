@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-126 is the atomic number of unbihexium, an element that has not yet been discovered.
+40 is the customary number of hours in a regular workweek in some Western countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
