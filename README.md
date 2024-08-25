@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-712 is the largest known number such that it and its 8th power have no common digits.
+194 is the number of episodes of Will & Grace that ran on NBC from 1998 to 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
