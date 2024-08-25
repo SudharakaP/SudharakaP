@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-193 is species of monkeys and apes.
+0 is the coldest possible temperature old the Kelvin scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
