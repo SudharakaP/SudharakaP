@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the lowest channel of television in the United States, Canada, Argentina and Mexico on which television signals are broadcast.
+132 is the TV series Third Watch ran on NBC from 1999 to 2005 with 132 episodes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
