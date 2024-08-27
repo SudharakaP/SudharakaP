@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-198 is the atomic number of an element temporarily called Unennoctium.
+199 is the rank of Zambia in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
