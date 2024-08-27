@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the number of days the curing time of concrete is classically considered to be.
+159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
