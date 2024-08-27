@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-123 is the Notation for national and international telephone numbers Recommendation ITU-T Recommendation E.123 defines a standard way to write telephone numbers, e-mail addresses, and web addresses.
+105 is the atomic number of hahnium, also known as dubnium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
