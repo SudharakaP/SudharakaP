@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-106 is the atomic number of seaborgium (Unilhexium Unh).
+198 is the population of Wormshill, Kent, England.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
