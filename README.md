@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-138 is essendon's losing margin against Adelaide in round 10 of the 2006 AFL season.
+123 is the Notation for national and international telephone numbers Recommendation ITU-T Recommendation E.123 defines a standard way to write telephone numbers, e-mail addresses, and web addresses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
