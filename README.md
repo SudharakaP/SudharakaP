@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the angle between two planets in degrees so that they are in an astrological aspect called a sesquiquadrate.
+720 is the number of degrees in two circles (= 2 × 360).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
