@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
+110 is the TCP port used for POP3 email protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
