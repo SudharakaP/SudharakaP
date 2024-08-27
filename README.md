@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-136 is the lower frequency band in kHz that amateur radio operators are allowed to transmit.
+10 is the number of kingdoms in Five Dynasties and Ten Kingdoms Period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
