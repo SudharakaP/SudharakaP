@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the rank of Uruguay in population density.
+5200 is the number of standard size of a legion in the Roman Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
