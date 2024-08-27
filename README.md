@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-144 is the Intel 8086 instruction for no operation (NOP).
+94 is the atomic number of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
