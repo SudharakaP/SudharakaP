@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100 is the number of blessings a religious Jewish person is expected to utter daily.
+59 is the number of days, approximately in two lunar months.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
