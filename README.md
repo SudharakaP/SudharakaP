@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-146 is the Guinness World Record for the most languages a poem was recited in.
+64 is the number of demons in the Dictionnaire Infernal.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
