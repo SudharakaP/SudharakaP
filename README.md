@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-42 is the answer to the Ultimate Question of Life, the Universe, and Everything.
+17 is the minimum driving age for a car or van in the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
