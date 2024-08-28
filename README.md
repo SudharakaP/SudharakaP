@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35000 is the number of genes in a human being.
+3 is the number of semicircular canals a human ear has.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
