@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the number of lasers in the National Ignition Facility (NIF) at Lawrence Livermore National Laboratory in Livermore, California.
+5 is the number of permanent members with veto power on the United Nations Security Council.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
