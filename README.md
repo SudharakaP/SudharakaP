@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
+23 is the number of minutes that all flashbacks take place before the assassination attempt on the president in the film Vantage Point.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
