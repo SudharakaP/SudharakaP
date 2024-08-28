@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6000000 is the number of beavers in Canada before the fur trade started.
+149 is the number of legal proceedings against 149 communists in Estonia in 1924.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
