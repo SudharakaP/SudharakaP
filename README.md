@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-167 is the kilometers in length of Andros, Bahamas.
+42 is the answer to the Ultimate Question of Life, the Universe, and Everything.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
