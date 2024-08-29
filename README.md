@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
+1096000000 is the population of India in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
