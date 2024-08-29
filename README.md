@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-29 is the number of days February has in leap years.
+67 is the number of counties in Florida.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
