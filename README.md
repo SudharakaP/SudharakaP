@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
+24 is the number of carats representing 100% pure gold.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
