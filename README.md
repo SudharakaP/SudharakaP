@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
+1e+21 is the number of grains of sand on all the world's beaches put together.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
