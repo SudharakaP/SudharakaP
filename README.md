@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-555 is the number of seats of the airliner A380-800.
+109 is the atomic number of meitnerium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
