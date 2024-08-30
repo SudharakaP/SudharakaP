@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-155 is the number of performances Ivanhoe, the romantic opera that opened in January 31, 1891, ran for.
+124 is the rank of the Palestinian territories in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
