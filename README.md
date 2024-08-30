@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25000000 is the number of different inhabited planets in the the Galactic Empire.
+300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
