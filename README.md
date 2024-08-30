@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-587 is the outgoing port for email message submission.
+165 is miles of shoreline of Lake Berryessa in Napa County, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
