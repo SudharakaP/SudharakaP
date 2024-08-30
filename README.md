@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-53 is the port number of UDP and TCP for the Domain Name System protocol.
+25000000 is the number of different inhabited planets in the the Galactic Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
