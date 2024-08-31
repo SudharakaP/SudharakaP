@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+40 is the Eddington–Dirac number.
+120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
