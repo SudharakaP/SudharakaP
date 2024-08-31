@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-191 is the atomic number of an element temporarily called Unennunium.
+180 is the gent's clout shooting distance in archery measured in yards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
