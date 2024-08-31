@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-106000000000 is the number of homo sapiens that have lived since speciation.
+29 is the number of letters in the Turkish,Finnish, Swedish,Faroese,Danish and Norwegianalphabets.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
