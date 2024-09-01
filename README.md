@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1982 is the average price for a major league baseball game ticket in 2004 in cents.
+212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
