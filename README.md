@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
+6 is the number worn by LeBron James in the NBA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
