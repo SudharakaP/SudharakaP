@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-164 is the number of home runs the Baltimore Orioles hit in 2006.
+110000 is the average number of hairs that people with black hair have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
