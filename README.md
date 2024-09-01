@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
+201 is the HTTP status code indicating a new resource was successfully created in response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
