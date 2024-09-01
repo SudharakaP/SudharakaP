@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+150 is the estimation of the game-tree complexity of xiangqi.
+177 is the rank of Netherlands Antilles in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
