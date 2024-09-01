@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
+197 is the rank of the Solomon Islands in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
