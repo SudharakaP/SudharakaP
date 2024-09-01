@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
+911 is the number of days after September 11th that the Madrid Attack took place.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
