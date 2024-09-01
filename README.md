@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-174 is the populatiokn of Aupaluk, Quebec (as of 2006).
+77 is the atomic number of iridium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
