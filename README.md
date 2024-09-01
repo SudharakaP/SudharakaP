@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3000 is the number of years for which Carpenter ants have been used to close wounds in parts of India, Asia and South America.
+54 is the number of cards in a deck of playing cards, if two jokers are included.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
