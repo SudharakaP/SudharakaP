@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110000 is the average number of hairs that people with black hair have.
+186 is the length of the Judgment at Nuremberg measured in 186 minutes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
