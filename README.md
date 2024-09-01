@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
+313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
