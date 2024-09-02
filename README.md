@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
+217 is the area code for central Illinois.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
