@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6000000 is the number of beavers in Canada before the fur trade started.
+27 is the total number of letters in the Hebrew alphabet (22 regular letters and 5 final consonants).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
