@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
+187 is a signature wrestling move by wrestler New Jack (diving elbow drop while holding a steel chair underneath his arm).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
