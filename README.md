@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the official end score for Cribbage.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
