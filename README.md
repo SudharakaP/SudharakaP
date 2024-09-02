@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-88 is the number of keys on a piano (36 black and 52 white).
+13 is the number of loaves in a "baker's dozen".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
