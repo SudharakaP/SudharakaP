@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-108 is there number of love sonnets in Astrophil and Stella, the first English sonnet sequence by Sir Philip Sidney.
+128 is the number of ASCII characters (33 non-printing characters, mostly obsolete control characters that affect how text is processed, and 94 printable).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
