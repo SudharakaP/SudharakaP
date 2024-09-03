@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
+73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
