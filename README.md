@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the population density in square kilometers of Italy, the fifth-highest population density in Europe.
+44 is the percentage of kids who watch television before they go to sleep in the US.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
