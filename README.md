@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
+139 is the number of episodes of the TV series CHiPs that ran on NBC from 1977 to 1983.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
