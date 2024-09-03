@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-140 is liters of water needed to produce 1 cup of coffee.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
