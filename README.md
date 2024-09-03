@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-201 is the HTTP status code indicating a new resource was successfully created in response to the request.
+182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
