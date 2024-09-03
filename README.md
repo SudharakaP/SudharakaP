@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8e+60 is the number of Planck time intervals since the Big Bang.
+10000 is the gallons of saliva an average human produces in a lifetime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
