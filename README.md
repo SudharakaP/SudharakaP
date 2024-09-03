@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-511 is the number of collaborators mathematician Paul Erdős had.
+195 is the detainee number of the Mohammad Al Rahman Al Shumrani at Guantanamo Bay.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
