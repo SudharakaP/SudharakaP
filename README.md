@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-218 is votes required in the US House of Representatives to achieve a majority as of 2008.
+179 is the number of episodes of I Love Lucy which ran on CBS.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
