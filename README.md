@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the length in miles of the Adda River in Italy.
+7 is the maximum number of times a letter-sized paper can be folded in half.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
