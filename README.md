@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3500000000000 is the estimated population of fish in the ocean.
+390 is the speed in feet per second that nerve impulses for muscle position travel at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
