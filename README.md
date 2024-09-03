@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-163 is the atomic number of an element temporarily called Unhextrium.
+30000 is the number of distinct Chinese characters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
