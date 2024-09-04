@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the highest number on one end of a standard domino.
+20000000 is the weight in tons of the average iceberg.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
