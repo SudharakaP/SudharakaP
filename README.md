@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-83 is the highest UHF channel on older televisions made before the late 1970s.
+196 is the length in miles of the New Orleans and Northeastern Railroad.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
