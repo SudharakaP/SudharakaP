@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-162 is 162 is the total number of baseball games each team plays during a regular season in Major League Baseball.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
