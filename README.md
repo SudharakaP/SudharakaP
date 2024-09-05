@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-80 is the length (years) of the Eighty Years' War (1568–1648).
+1e+63 is the estimate by Archimedes in The Sand Reckoner of the total number of grains of sand that could fit into the entire cosmos.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
