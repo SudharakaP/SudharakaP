@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-Infinity is the estimation of the game-tree complexity in the game of Go.
+23 is the number of chromosomes normal human sex cells have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
