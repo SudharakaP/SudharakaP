@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-463 is the number of days in the synodic period of Ceres.
+122 is the police emergency telephone number in Egypt.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
