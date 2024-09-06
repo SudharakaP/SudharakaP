@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the number of people who have walked on Earth's moon.
+613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
