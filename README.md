@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
+191 is the atomic number of an element temporarily called Unennunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
