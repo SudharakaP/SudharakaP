@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
+134 is the number of episodes in the TV series Hawaiian Eye that ran on ABC from 1959 to 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
