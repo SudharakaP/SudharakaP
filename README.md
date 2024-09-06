@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-137 is a radioactive isotope of Caesium formed by nuclear fission.
+525 is the number of scan lines in the NTSC television standard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
