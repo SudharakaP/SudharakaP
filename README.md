@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172000 is tons of chocolate produced in Belgium in a year.
+180 is a trick used in extreme sports where a rider rotates half a turn while airborne and lands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
