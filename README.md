@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-62 is the atomic number of samarium.
+130 is the approximate maximum height in meters of trees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
