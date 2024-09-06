@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-400000000000 is the number of stars in the Milky Way galaxy.
+98 is the temperature (F) of the normal body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
