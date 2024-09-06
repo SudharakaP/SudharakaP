@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the earliest age that the emancipation of minors can occur in the U.S.
+390 is the speed in feet per second that nerve impulses for muscle position travel at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
