@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56 is the number of Aubrey Holes in the first stage of Stonehenge.
+191 is a common flight number for flights involved in crashes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
