@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
