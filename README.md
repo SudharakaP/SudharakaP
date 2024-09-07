@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-21 is the number of points required to win a game in badminton and table tennis (before 2001).
+22 is the number of letters in the Hebrew alphabet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
