@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the element with the highest number of protons yet discovered, Ununquadium with the highest number.
+35 is the percentage of all bingo players are under the age of 35.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
