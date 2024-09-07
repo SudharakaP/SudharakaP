@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-168 is the number of hours in a week, or 7 x 24 hours.
+168 is the number of triples that Shoeless Joe Jackson hit in his MLB career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
