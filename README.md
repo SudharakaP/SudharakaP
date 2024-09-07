@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-69 is the number Bill and Ted were thinking of when talking to their future selves.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
