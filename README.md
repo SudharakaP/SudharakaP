@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the number of polynucleotide strands in a DNA double helix.
+129 is the rank of Liberia in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
