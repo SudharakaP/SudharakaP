@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
+21 is the number of points required to win a game in badminton and table tennis (before 2001).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
