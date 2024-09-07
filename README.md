@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-112 is the number of pounds in a British long hundredweight.
+10000000000 is the number of bacteria in the human oral cavity.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
