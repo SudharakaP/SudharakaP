@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-800000000 is the number of active users on Facebook as of December 2011.
+141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
