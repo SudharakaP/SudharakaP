@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-360000 is the number of words definitions in the New Oxford Dictionary of English.
+42 is the number of gallons that one barrel of petroleum holds.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
