@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-16 is the minimum age that one can drop out of school in most states of the US (however, restrictions apply and vary depending on state).
+38 is the number of minutes in the shortest war in history in which Zanzibar surrendered to England in 1896.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
