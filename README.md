@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-21 is the number of demands which were sent to the Chinese government by the Japanese government of Okuma Shigenobu in 1915.
+120 is a file medium format developed by Kodak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
