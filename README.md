@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is a file medium format developed by Kodak.
+51 is the atomic number of antimony.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
