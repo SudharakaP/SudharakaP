@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4000 is the weight in pounds that the Great White Shark can grow to.
+404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
