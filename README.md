@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+150 is the estimation of the game-tree complexity of xiangqi.
+89 is the atomic number of actinium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
