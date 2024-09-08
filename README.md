@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the miles per hours that the fastest moving land snake, the Black Mamba, can move.
+6 is the number worn by LeBron James in the NBA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
