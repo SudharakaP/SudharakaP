@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-800000000 is the number of active users on Facebook as of December 2011.
+80 is the standard TCP/IP port number used for HTTP connections.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
