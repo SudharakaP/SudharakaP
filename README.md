@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-168 is the number of the episoodes that Hogan's Heroes ran on CBS from 1965 to 1971.
+42 is the number of museums in Amsterdam (Netherlands has the highest concentration of museums in the world).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
