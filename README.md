@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-9 is the number of innings in a regulation, non-tied game of baseball.
+850 is the maximum possible Fair Isaac credit score.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
