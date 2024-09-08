@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
