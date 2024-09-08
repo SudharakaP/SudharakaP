@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
+120 is the maximum number of power stars a player can get in Super Mario 64 for the Nintendo 64.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
