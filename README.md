@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the electricity emergency telephone number in Egypt.
+94 is the atomic number of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
