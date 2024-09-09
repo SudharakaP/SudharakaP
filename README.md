@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is the number of surat al-Falaq in the Qur'an.
+70 is the number of years of marriage until the platinum wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
