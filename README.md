@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-133 is the number of episodes of the TV series Good Times ran on CBS from 1974 to 1979.
+40 is the number of attempts needed before the creation of the "water displacing" substance in the spray WD-40.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
