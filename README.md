@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-177 is the rank of the United States in world population density.
+Infinity is the estimation of the game-tree complexity in the game of Go.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
