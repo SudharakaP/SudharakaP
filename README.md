@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the jersey number worn by the starting stand-off half/five-eighth in most rugby league competitions.
+562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
