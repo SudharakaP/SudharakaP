@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-18 is the number of levels in hell in the Chinese mythos.
+202 is the area code assigned to Washington D.C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
