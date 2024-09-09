@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the length in miles of the Adda River in Italy.
+147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
