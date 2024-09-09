@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-175 is the number of films that actress Rose Tapley appeared in.
+140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
