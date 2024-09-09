@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
