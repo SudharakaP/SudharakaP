@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-125000 is the number of average strands of hair in the human head.
+6 is the number of fundamental flight instruments lumped together on a cockpit display.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
