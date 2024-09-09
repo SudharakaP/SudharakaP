@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2055001 is the number of people employed by Wal-mart in 2007.
+39 is the duration, in nanoseconds, of the nuclear reaction in the largest nuclear explosion ever performed (Tsar bomb).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
