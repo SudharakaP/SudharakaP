@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
+43687 is the number of toilet related accidents in the United States in 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
