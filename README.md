@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-208 is the heaviest stable isotope of any element (lead).
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
