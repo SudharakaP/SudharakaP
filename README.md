@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-248 is the number of organs in the human body as traditionally depicted.
+179 is the number of episodes of I Love Lucy which ran on CBS.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
