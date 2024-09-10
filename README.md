@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-231 is the number of cubic inches in a U.S. liquid gallon.
+12 is the largest number that has just one syllable.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
