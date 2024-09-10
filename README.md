@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-230 is the common voltage in the European Union.
+600 is the maximum credit score considered poor, thus limiting available credit in the USA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
