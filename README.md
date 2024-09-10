@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is is the number of floors of Taipei 101, the tallest skyscraper in the world from 2004 to 2010.
+8e+120 is the ratio of the mass-energy in the observable universe to the energy of a photon with a wavelength the size of the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
