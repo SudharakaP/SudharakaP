@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-96 is the rating of Skyrim on metacritic.com.
+3 is cans of Spam consumed every second in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
