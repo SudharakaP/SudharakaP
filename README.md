@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-470 is the minimum length in yards from the tee to the hole on a Par 5.
+14 is the minimum age at which one can work in many U.S states.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
