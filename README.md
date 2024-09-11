@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-23 is the number of times Julius Caesar was stabbed.
+15250 is the number of times the average driver will honk in a lifetime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
