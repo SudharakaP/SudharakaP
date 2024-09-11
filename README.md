@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1979 is a song by American alternative rock band The Smashing Pumpkins.
+3000000000 is the number of base pairs in the human genome.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
