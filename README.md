@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-181 is the wing area of a Boeing 757 airplane in meters.
+8e+60 is the number of Planck time intervals since the Big Bang.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
