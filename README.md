@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
+384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
