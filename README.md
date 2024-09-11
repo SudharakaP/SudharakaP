@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the possible age of the youngest elected pope, Benedict IX.
+119 is the default port for unencrypted NNTP connections.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
