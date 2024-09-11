@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-78 is the total number of gifts in the song The Twelve Days of Christmas.
+649 is the number of Pokémon as of Pokémon Black and White versions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
