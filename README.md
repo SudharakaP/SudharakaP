@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
+550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
