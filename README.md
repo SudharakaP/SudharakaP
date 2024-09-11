@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
+650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
