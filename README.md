@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-45000000 is the number of turkeys Americans eat at Thanksgiving annually.
+24 is the number of a car in the NASCAR Sprint Cup Series owned by Hendrick Motorsports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
