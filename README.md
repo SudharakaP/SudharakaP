@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the number of symbolic foods placed on the Passover Seder Plate.
+64 is number of golden disks in the myth of the Tower of Hanoi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
