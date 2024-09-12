@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-92 is the number of stories in the Xujiahui Tower proposed to be built in Shanghai, China.
+22 is the number of letters in the Hebrew alphabet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
