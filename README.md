@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-102 is the atomic number of nobelium, an actinide.
+180 is the number of Death in the In the Final Destination series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
