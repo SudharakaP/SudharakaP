@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-564000 is the number of words in War and Peace by Leo Tolstoy.
+0 is the coldest possible temperature old the Kelvin scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
