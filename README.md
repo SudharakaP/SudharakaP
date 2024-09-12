@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4.52e+46 is the upper bound for the number of legal chess positions.
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
