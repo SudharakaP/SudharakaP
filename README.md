@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-13 is the speed of rush hour traffic on average in kilometres per hour in London.
+500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
