@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-78 is the number of lines that make up Metatron's Cube.
+61 is the number of points required to win a "standard" game of Cribbage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
