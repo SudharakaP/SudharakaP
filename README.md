@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
+649 is the number of Pokémon as of Pokémon Black and White versions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
