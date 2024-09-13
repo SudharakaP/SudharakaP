@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-78 is the atomic number of platinum.
+30 is the number of variations in Bach's Goldberg Variations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
