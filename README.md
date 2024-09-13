@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-160 is the number of characters permitted in a standard short message service in Australia and Europe.
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
