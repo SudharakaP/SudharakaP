@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-159 is the number of isomers of C11H24.
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
