@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000000 is the approximate number of coconuts produced worldwide each year.
+3000 is the number of years for which Carpenter ants have been used to close wounds in parts of India, Asia and South America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
