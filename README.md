@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-9220000000000000000 is the largest number which can fit into a signed (two's complement) 64-bit integer on a computer.
+113 is a number considred unlucky in enduro, given to a race entrant and is colloquially known as a "blind pew".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
