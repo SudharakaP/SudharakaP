@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the number of keys in any standard digital telephone (1 through 9, 0, * and #).
+113 is the atomic number of an element temporarily called ununtrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
