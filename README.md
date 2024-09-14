@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7 is the figurative number of seas.
+214 is the SMTP status code for help message.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
