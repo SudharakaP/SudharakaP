@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
+67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
