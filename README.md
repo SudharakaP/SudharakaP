@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
+235 is the atomic mass number of an important isotope of the element uranium, the fissile isotope which is used as the fuel for nuclear reactors and in some nuclear weapons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
