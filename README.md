@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1600000 is the number of people employed by the Indian railway system in India.
+151 is total number of types of Pokémon in the original set.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
