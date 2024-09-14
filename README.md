@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the number of months in a year.
+181 is the wing area of a Boeing 757 airplane in meters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
