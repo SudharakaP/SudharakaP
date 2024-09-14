@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-179 is the rank of Estonia in world population density.
+1 is the loneliest number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
