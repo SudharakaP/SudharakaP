@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the element with the highest number of protons yet discovered, Ununquadium with the highest number.
+220 is the common voltage in many countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
