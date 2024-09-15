@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is the rank of Maldives in world population.
+60 is the total number of years in a Sexagenary cycle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
