@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-464 is the number of legal positions of the kings in chess, not counting mirrored positions.
+159 is the number of counties in the state of Georgia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
