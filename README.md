@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
+496 is what the dimension of the gauge group must be for a superstring theory to make sense.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
