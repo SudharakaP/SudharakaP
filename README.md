@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-143 is the number of milligrams of caffeine in AMP Energy.
+42 is the number of kilometers in a marathon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
