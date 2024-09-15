@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is the rank of Aruba in world population.
+144 is the Intel 8086 instruction for no operation (NOP).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
