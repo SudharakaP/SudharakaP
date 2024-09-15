@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110000 is the average number of hairs that people with black hair have.
+83 is the highest UHF channel on older televisions made before the late 1970s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
