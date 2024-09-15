@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-174 is the number of miles the Columbia University Library System collection, with over 9.3 million volumes, would stretch end-to-end.
+216 is the number of digits in a number that Max becomes obsessed with in the film Pi in his quest to find the numeric equation behind existence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
