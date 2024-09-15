@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-88 is a standard length of playing cards in mm.
+3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
