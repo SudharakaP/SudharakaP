@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-800000000 is the number of active users on Facebook as of December 2011.
+24 is the number of carats representing 100% pure gold.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
