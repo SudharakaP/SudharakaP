@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-230 is the country code for Mauritius.
+121 is the electricity emergency telephone number in Egypt.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
