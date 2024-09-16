@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-169 is miles that the Thames River flows through Ontario, Canada.
+230 is the country code for Mauritius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
