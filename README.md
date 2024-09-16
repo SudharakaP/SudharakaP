@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-714 is the number of home runs Babe Ruth scored in his career.
+39 is the duration, in nanoseconds, of the nuclear reaction in the largest nuclear explosion ever performed (Tsar bomb).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
