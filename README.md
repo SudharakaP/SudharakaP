@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-136 is the hottest temperature ever recorded in Fahrenheits at Aziziya, Libya in September 1922.
+1000000000000 is the number of bacteria on the surface of the human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
