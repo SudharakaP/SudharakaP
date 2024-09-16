@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+153 is the code for "mental processes & intelligence" in the Dewey Decimal Classification.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
