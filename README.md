@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-206 is the number of bones in the typical adult human body.
+144 is a gross (a dozen dozen).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
