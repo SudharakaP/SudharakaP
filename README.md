@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
