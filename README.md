@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-714 is the number of home runs Babe Ruth scored in his career.
+169 is miles that the Thames River flows through Ontario, Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
