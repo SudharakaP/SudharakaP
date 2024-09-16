@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-587 is the outgoing port for email message submission.
+29 is the highest possible score in a hand of Cribbage or Khanhoo.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
