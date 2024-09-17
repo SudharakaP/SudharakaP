@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-239 is the number of chapters in the Book of Mormon.
+304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
