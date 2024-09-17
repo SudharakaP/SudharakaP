@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15 is the legal age for sexual intercourse in many countries.
+82 is the atomic number of lead.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
