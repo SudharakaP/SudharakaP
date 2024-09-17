@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-43687 is the number of toilet related accidents in the United States in 1996.
+550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
