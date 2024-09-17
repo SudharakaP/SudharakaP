@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-207 is the area code for the US state of Maine.
+192 is the rank of Andorra in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
