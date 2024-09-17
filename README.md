@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-144 is the number of square inches in a square foot.
+239 is the number of chapters in the Book of Mormon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
