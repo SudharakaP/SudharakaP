@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
+112 is the number of pounds in a British long hundredweight.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
