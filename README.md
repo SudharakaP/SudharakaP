@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000000 is the approximate number of coconuts produced worldwide each year.
+27 is the number of bones in the human foot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
