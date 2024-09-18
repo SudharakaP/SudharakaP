@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
--Infinity is negative infinity.
+132 is the number of columns of a Line printer printing in landscape mode on 14-inch paper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
