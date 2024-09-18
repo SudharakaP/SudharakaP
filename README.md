@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-221 is sMTP status code for service closing transmission channel.
+85 is the atomic number of astatine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
