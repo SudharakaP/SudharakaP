@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
+10000 is the number of other neurons each neuron is connected to in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
