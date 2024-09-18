@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the number of athletes that Canada had in 15 sports at the 2006 Winter Olympics.
+451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
