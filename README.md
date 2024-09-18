@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-24 is the number of frames per second at which motion picture film is usually projected.
+221 is sMTP status code for service closing transmission channel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
