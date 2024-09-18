@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56000000000 is the number of web pages indexed by Google as of 2010.
+110 is the number of stories of both towers of the former World Trade Center in New York.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
