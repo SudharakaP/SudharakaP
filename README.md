@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
+78 is the total number of gifts in the song The Twelve Days of Christmas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
