@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6909 is the number of estimate for the linguistic diversity of living human languages or dialects.
+26 is the number of red cards as well as the number of blue cards in a normal deck of cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
