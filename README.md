@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is a file medium format developed by Kodak.
+10 is the number of official inkblots in the Rorschach inkblot test.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
