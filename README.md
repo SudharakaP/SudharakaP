@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7 is the number of types of viruses according to the Baltimore classification.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
