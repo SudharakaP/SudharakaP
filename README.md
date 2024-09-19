@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
+93 is that approximate distance in millions of miles the Sun is away from the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
