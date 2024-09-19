@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-200 is the minimum number of varieties of watermelons grown in the U.S.
+295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
