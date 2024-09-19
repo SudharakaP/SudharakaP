@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1096000000 is the population of India in 2007.
+3 is the number of points received for a successful field goal in both American football and Canadian football.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
