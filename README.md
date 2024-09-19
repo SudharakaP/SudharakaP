@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1 is the loneliest number.
+14 is the number of muqatta'at in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
