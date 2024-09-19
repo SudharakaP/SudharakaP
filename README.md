@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
+99 is the highest jersey number allowed in most major league sports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
