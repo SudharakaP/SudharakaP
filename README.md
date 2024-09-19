@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-93 is that approximate distance in millions of miles the Sun is away from the Earth.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
