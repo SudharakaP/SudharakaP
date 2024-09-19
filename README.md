@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
+13 is the number of steps in the gallows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
