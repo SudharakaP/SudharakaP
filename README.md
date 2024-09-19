@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1979 is a song by American alternative rock band The Smashing Pumpkins.
+1400000 is the number of species that have been named by the World Resources Institute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
