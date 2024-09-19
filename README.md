@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is the first course in a subject taught at a college or university in Australia, Canada, South Africa, or the United States.
+99 is the number of names of Allah, the names or attributes of God in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
