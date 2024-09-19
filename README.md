@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-361 is the number of positions on a standard 19 x 19 Go board.
+38 is the number of games that each team in the current English Premiership, the top division in English Association Football, plays in a season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
