@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-153 is the code for "mental processes & intelligence" in the Dewey Decimal Classification.
+8 is the number of principles of Yong in Chinese calligraphy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
