@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the size, in bits, of certain integer data types, used in computer representations of numbers.
+35 is the basic film gauge in mm most commonly used for both analog photography and motion pictures.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
