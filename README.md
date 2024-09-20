@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-139 is the number of episodes of the TV series I Dream of Jeannie that ran on NBC from 1965 to 1970.
+28 is the number of Chinese constellations, "Xiu" or "mansions" (a literal translation), equivalent to the 12 western zodiac constellations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
