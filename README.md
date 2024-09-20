@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-229 is the lowest individual batting score not achieved by any player in test match cricket.
+139 is the number of episodes of the TV series I Dream of Jeannie that ran on NBC from 1965 to 1970.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
