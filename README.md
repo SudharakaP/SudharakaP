@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
+1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
