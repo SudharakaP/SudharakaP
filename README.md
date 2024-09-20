@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-83 is the highest UHF channel on older televisions made before the late 1970s.
+153 is the code for "mental processes & intelligence" in the Dewey Decimal Classification.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
