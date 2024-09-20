@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-140 is liters of water needed to produce 1 cup of coffee.
+235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
