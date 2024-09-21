@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the number of incarnations of The Doctor in BBC sci-fi series Doctor Who.
+490 is the number of Pokémon available as of the release of Pokémon Diamond and Pearl (excluding event Pokémon).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
