@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-161 is the number of different ways to bet on a roulette wheel.
+64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
