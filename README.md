@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
+950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
