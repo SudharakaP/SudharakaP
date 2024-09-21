@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-104 is the number of guns on Admiral Horatio Nelson's flagship HMS Victory.
+1e+83 is the number of fundamental particles in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
