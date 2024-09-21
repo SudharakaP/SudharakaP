@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-251 is the last and most powerful prime mover (engine) designed and built by the American Locomotive Company (ALCO).
+695 is the number of people dead in the single deadliest tornado in United States history (the F5 Tri-State Tornado in 1925).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
