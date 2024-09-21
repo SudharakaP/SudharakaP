@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-198 is the number of films that actor Harvey Clark appeared in between 1915 and 1938.
+464 is the number of legal positions of the kings in chess, not counting mirrored positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
