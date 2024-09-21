@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1600000 is the number of people employed by the Indian railway system in India.
+17 is the number of syllables in a haiku (5+7+5).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
