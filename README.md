@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-52 is the number of white keys (notes in the C major scale).
+10 is the number of years in a decade.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
