@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the atomic number of an element temporarily called Unennbium.
+3400000000 is the number of total number of speakers of Indo-European languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
