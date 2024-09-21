@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6800 is the approximate number of languages in the world.
+1600000 is the number of people employed by the Indian railway system in India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
