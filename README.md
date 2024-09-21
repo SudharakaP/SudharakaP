@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-300 is the number of bones humans are born with in their body.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
