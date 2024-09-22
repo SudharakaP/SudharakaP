@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-16777216 is the number of different colors that can be generated using the hex code system in HTML.
+163 is the atomic number of an element temporarily called Unhextrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
