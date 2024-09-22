@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-13 is the speed of rush hour traffic on average in kilometres per hour in London.
+70 is the number of years of marriage until the platinum wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
