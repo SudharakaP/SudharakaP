@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-75 is the age limit for Canadian senators.
+132 is the number of runs Pakistan was shot out o hand over the World cup trophy to a strong australian team in the Cricket World Cup 1999.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
