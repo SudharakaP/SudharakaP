@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-9220000000000000000 is the largest number which can fit into a signed (two's complement) 64-bit integer on a computer.
+100 is the number of yards in an American football field (not including the end zones).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
