@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-129 is the atomic number of Unbiennium, an element yet to be discovered.
+360000 is the number of words definitions in the New Oxford Dictionary of English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
