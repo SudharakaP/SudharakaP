@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1337 is the number that spells "leet" in leetspeak.
+56000000000 is the number of web pages indexed by Google as of 2010.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
