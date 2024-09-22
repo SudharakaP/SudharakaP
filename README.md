@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-130 is the approximate maximum height in meters of trees.
+60 is the years of marriage until the diamond wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
