@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
+130 is the approximate maximum height in meters of trees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
