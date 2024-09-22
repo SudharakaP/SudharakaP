@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-89 is the atomic number of actinium.
+400000000000 is the number of stars in the Milky Way galaxy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
