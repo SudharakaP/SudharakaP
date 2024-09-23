@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-175 is years Harriet (1830–2006) the Galápagos tortoise lived.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
