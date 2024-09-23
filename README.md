@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-216 is the ISO's standard for paper sizes.
+214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
