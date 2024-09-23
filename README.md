@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-364 is the total number of gifts received in the song "The Twelve Days of Christmas".
+195 is the number of episodes of The Ed Allen Show, which began in 1948.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
