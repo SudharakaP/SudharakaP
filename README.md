@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-88 is the number of constellations in the sky as defined by the International Astronomical Union.
+192 is the population of Bide Arm in Newfoundland and Labrador, Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
