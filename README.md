@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3400000000 is the number of total number of speakers of Indo-European languages.
+43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
