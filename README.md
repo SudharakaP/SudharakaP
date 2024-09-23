@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-230 is the country code for Mauritius.
+88 is the number of constellations in the sky as defined by the International Astronomical Union.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
