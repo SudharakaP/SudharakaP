@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the top speed in miles per hours of the the Porsche Cayenne Turbo S automobile.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
