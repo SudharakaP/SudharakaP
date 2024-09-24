@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-82 is the number of games in an NBA or NHL regular season.
+163 is the atomic number of an element temporarily called Unhextrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
