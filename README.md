@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-29 is the number of days February has in leap years.
+10 is the number of Provinces in Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
