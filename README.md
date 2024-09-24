@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is the length of the Judgment at Nuremberg measured in 186 minutes.
+930000 is the number of words in the King James Version of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
