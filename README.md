@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the minimum age at which one can work in many U.S states.
+7 is the number of SI base units.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
