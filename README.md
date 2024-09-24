@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7 is the maximum number of times a letter-sized paper can be folded in half.
+109 is the atomic number of meitnerium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
