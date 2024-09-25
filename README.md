@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
+1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
