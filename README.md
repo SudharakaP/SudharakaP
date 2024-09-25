@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
+205 is the world speed record (mph) of a car on ice.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
