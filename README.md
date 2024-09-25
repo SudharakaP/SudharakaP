@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the electricity emergency telephone number in Egypt.
+61 is the code for international direct dial phone calls to Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
