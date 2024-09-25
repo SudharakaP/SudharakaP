@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-930000 is the number of words in the King James Version of the Bible.
+66 is the number of hot dogs eaten by World record holder Joey Chestnut in 15 minutes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
