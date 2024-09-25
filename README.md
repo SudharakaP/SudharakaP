@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+101 is the first course in a subject taught at a college or university in Australia, Canada, South Africa, or the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
