@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
+16777216 is the number of different colors that can be generated using the hex code system in HTML.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
