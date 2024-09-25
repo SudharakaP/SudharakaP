@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
+21 is the number of points required to win a game in badminton and table tennis (before 2001).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
