@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
+160 is the lowest radio frequency band allocation in meters available to amateur radio operators in most countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
