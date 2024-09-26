@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
+213 is the name of a hip hop, active 1990-2004.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
