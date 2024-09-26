@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000000000000000000 is the estimated insect population.
+169 is miles that the Thames River flows through Ontario, Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
