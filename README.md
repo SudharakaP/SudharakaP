@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
+110 is the number of stories of both towers of the former World Trade Center in New York.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
