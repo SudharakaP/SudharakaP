@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the rank of Andorra in world population.
+6 is the number of fundamental flight instruments lumped together on a cockpit display.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
