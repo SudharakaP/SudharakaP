@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-169 is miles that the Thames River flows through Ontario, Canada.
+130 is the approximate maximum height in meters of trees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
