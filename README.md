@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-129 is the rank of Liberia in world population.
+227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
