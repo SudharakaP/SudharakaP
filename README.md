@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-123 is the atomic number of the yet-to-be-discovered element unbitrium.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
