@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-214 is the SMTP status code for help message.
+90 is the latitude of the North Pole and the South Pole.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
