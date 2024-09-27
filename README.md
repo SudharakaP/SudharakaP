@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-57 is the number of cm that the smallest man measured, Gul Mohammed (1957-1997) of India.
+174 is the length in miles of the The Columbia University Library System collection, with over 9.3 million volumes, if stretched end-to-end.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
