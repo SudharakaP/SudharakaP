@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-174 is the length in miles of the The Columbia University Library System collection, with over 9.3 million volumes, if stretched end-to-end.
+148 is the number of episodes of the TV series The Fresh Prince of Bel-Air on NBC from 1990 to 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
