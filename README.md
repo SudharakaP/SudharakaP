@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
+175 is years Harriet (1830–2006) the Galápagos tortoise lived.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
