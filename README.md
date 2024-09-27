@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56 is the number of layers of the Universe according to Aristotle (Earth plus 55 crystalline spheres above it).
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
