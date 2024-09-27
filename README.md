@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-82 is the atomic number of lead.
+69 is the atomic number of thulium, a lanthanide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
