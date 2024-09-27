@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
+3 is the number of consecutive successful attempts in a hat trick in sports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
