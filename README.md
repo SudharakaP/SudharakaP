@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40 is the number of attempts needed before the creation of the "water displacing" substance in the spray WD-40.
+1e+21 is the number of grains of sand on all the world's beaches put together.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
