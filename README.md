@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
+179 is the number of episodes of I Love Lucy which ran on CBS.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
