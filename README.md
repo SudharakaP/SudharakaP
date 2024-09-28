@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
+142 is the number of home-based business ideas included in the 142 Now packet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
