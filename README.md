@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1982 is the average price for a major league baseball game ticket in 2004 in cents.
+202 is the area code assigned to Washington D.C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
