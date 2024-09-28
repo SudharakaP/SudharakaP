@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-143 is the number of episodes of the TV series The Adventures of Robin Hood on CBS from 1955 to 1959.
+25 is the size of the full roster on a Major League Baseball team for most of the season, except for regular-season games on or after September 1, when teams may expand their roster to no more than 40 players.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
