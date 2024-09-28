@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1400000 is the number of species that have been named by the World Resources Institute.
+22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
