@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20 is the number of baby teeth in the deciduous dentition.
+29 is the highest possible score in a hand of Cribbage or Khanhoo.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
