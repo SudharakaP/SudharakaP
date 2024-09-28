@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-217 is the room in Stephen King's novel "The Shining", that plays a central part in the story as it is haunted.
+7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
