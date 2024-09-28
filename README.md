@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-146 is the Guinness World Record for the most languages a poem was recited in.
+150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
