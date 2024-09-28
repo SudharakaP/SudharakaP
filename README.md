@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-96 is the rating of Skyrim on metacritic.com.
+61000 is the average number of people airborne over the US at any given hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
