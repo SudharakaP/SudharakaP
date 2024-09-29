@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4e+185 is the number of planck volumes in the observable universe.
+214 is the number of Chinese radicals for the writing of Chinese characters according to the 1716 Kangxi Dictionary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
