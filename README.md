@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-128 is the bytes of memory of the Atari 2600 console.
+131 is the number serving a monkiker for Indie music.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
