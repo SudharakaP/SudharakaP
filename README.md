@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-131 is the number serving a monkiker for Indie music.
+84 is the atomic number of polonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
