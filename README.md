@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the police emergency telephone number in Egypt.
+441 is the number of squares on a Super Scrabble board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
