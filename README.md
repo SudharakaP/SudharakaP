@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-231 is the number of cubic inches in a U.S. liquid gallon.
+64 is the number of Braille characters in the old 6-dot system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
