@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
+Infinity is the estimation of the game-tree complexity in the game of Go.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
