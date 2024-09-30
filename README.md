@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is the cost in cents to make a $1 bill in the United States.
+78 is the number of lines that make up Metatron's Cube.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
