@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-88 is the approximate number of days it takes Mercury to complete its orbit.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
