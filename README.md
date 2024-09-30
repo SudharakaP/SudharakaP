@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
+50 is the approximate number of times a mother hen turns her egg in a day so the yolk does not stick to the shell.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
