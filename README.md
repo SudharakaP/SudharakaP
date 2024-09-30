@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-78 is the number of lines that make up Metatron's Cube.
+25000000 is the number of different inhabited planets in the the Galactic Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
