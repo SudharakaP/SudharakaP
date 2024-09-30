@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is the TCP port used for POP3 email protocol.
+120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
