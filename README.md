@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-37 is the number of slots in European Roulette (numbered 0 through 36, the 00 is not used in European roulette as it is in American roulette).
+150 is the number of runs in cricket that's a milestone for a batsman.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
