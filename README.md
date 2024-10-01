@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-63 is the number of chromosomes found in the offspring of a donkey and a horse.
+58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
