@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is the length of the Judgment at Nuremberg measured in 186 minutes.
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
