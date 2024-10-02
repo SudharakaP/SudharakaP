@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the size, in bits, of certain integer data types, used in computer representations of numbers.
+179 is the number of episodes of I Love Lucy which ran on CBS.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
