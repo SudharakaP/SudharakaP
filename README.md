@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-117 is the height in metres of the tallest tree recorded, located in Humboldt Redwoods State Park, California.
+42 is the angle in degrees for which a rainbow appears or the critical angle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
