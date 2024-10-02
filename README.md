@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
