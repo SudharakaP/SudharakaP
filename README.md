@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000000 is the approximate number of coconuts produced worldwide each year.
+6000000 is the number of parts in the Boeing 747-400.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
