@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-213 is the name of a hip hop, active 1990-2004.
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
