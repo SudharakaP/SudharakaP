@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the single-season home run record in baseball set by Barry Bonds in 2001.
+1096000000 is the population of India in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
