@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
+194 is the number of episodes of I Love Lucy that ran on CBS from 1951 to 1960.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
