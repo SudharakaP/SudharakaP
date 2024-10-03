@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-54 is the score in golf colloquially referred to as a perfect round.
+255 is the largest representable integer in an unsigned byte.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
