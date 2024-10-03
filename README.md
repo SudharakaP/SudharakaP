@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+23 is the number of enigma that plays a prominent role in the plot of The Illuminatus! Trilogy by Robert Shea and Robert Anton Wilson.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
