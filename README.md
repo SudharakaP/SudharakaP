@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000 is the weight in tons of the average iceberg.
+65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
