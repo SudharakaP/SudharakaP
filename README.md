@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the average number of minutes in a day that kids in the U.S. between the ages of 2 - 8 spend coloring.
+196 is the length of the Adda River in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
