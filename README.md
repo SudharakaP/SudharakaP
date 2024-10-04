@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-197 is the number of episodes of the Cosby Show that ran on NBC from 1984-1992.
+137 is the average brain mass of a baboon in grams.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
