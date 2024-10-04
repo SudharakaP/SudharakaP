@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-44 is the number of candles in a box of Hanukkah candles.
+10 is the number of official inkblots in the Rorschach inkblot test.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
