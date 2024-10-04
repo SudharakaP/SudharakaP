@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-181 is the atomic number of an element temporarily called Unoctunium.
+100000 is the number of verses (shlokas) in the Mahabharata.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
