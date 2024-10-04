@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-360000 is the number of words definitions in the New Oxford Dictionary of English.
+1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
