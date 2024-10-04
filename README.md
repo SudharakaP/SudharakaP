@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3400000000 is the number of total number of speakers of Indo-European languages.
+210 is the world speed record (km/h) for a mountain bike on a ski slope.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
