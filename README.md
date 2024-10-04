@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-47 is the number of phonemes in English phonology in Received Pronunciation.
+100 is the number of blessings a religious Jewish person is expected to utter daily.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
