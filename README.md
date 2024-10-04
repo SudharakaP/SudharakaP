@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the speed limit, in kilometers per hour, of Australian roads with unspecified limits.
+7 is the number of SI base units.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
