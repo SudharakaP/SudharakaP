@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the number of Men of the Great Assembly who canonized the Books of the Tanakh and formulated the Jewish prayers.
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
