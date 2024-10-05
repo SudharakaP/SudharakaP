@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4 is the number of human blood groups (A, B, O, AB).
+43687 is the number of toilet related accidents in the United States in 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
