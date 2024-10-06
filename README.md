@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-511 is the number of collaborators mathematician Paul Erdős had.
+24 is the number of letters in both the modern and classical Greek alphabet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
