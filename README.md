@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the standard length (year) of a term in office for a United States senator.
+217 is the area code for central Illinois.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
