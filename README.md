@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-227 is the highest score ever in the Eurovision Song Contest, achieved by Katrina and the Waves of the UK in 1997, before the Semi-final system was introduced in 2004.
+60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
