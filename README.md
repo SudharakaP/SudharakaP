@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is distinct solutions of the Soma cube puzzle.
+998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
