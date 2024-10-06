@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-930000 is the number of words in the King James Version of the Bible.
+53 is the maximum number of facial muscles a smile can require.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
