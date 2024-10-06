@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-128 is the bytes of memory of the Atari 2600 console.
+6 is the standard length (year) of a term in office for a United States senator.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
