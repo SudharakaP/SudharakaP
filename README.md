@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
+200 is degrees in a human"s field of vision (approximately).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
