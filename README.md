@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the number of strings on a standard guitar.
+202 is the area code assigned to Washington D.C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
