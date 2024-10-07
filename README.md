@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-82 is the number of games in an NBA or NHL regular season.
+199 is the number of hits MLB pitcher Alex Jones gave up in his career from 1889-1903.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
