@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-125 is the atomic number of the yet-to-be-discovered element Unbipentium.
+10 is the highest score possible in Olympics gymnastics competitions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
