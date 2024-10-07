@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-225 is the longest distance in miles a deepwater lobster has been recorded to travel.
+6 is the number of symbolic foods placed on the Passover Seder Plate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
