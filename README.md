@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100 is the number of years in a century.
+199 is the number of leg hairs ripped by Andrew Reyna in one swift pull.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
