@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is a number that in an astrological aspect is considered to be negative in influence.
+242 is the number of a notable UN Security Council resolution pertaining to the Arab/Israeli conflict.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
