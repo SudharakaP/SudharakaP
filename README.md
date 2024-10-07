@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-104 is the atomic number of rutherfordium.
+10 is the highest score possible in Olympics gymnastics competitions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
