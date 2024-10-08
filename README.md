@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-112 is the atomic number of the element copernicium (formerly called ununbium).
+211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
