@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the cartridge version of 35mm photographic film, used widely in still photogaphy.
+230 is the common voltage in the European Union.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
