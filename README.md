@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
+1979 is a song by American alternative rock band The Smashing Pumpkins.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
