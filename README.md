@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1311000000 is the population of the People's Republic of China in 2007.
+40000000 is the number of times lightning hits the ground 40 million times a year in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
