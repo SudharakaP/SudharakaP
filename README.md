@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the angle between two planets in degrees so that they are in an astrological aspect called a sesquiquadrate.
+218 is votes required in the US House of Representatives to achieve a majority as of 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
