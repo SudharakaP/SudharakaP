@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is minuscule 195 is a Greek minuscule manuscript of the New Testament, on parchment.
+104 is the atomic number of rutherfordium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
