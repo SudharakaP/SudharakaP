@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-144 is a gross (a dozen dozen).
+217 is the area code for central Illinois.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
