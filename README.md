@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
+162 is 162 is the total number of baseball games each team plays during a regular season in Major League Baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
