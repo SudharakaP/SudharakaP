@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-68 is the ideal temperature (F) for developing black-and-white film.
+1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
