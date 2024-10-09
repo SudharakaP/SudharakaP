@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
+188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
