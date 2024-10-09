@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-525 is the number of scan lines in the NTSC television standard.
+168 is the number of home runs that José Hernández hit in his MLB career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
