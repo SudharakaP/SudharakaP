@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500 is the number of detectable earthquakes in the world each year.
+188 is the rank of Tonga in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
