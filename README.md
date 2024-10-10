@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-138 is the atomic number of Untrioctium, a temporary chemical element.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
