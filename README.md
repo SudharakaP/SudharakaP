@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
