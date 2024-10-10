@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
+133 is the number of career touchdowns from 1983 - 1996 of Canadian Football League quarterback Danny Barrett.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
