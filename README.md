@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-13 is the number of loaves in a "baker's dozen".
+230 is the common voltage in the European Union.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
