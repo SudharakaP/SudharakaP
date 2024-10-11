@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the first magic number in physics.
+194 is the number of historic building in the Braden Castle Park Historic District in Bradenton, Florida.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
