@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-128 is the atomic number of unbioctium, an element yet to be discovered.
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
