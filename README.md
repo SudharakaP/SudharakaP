@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
+166 is the number of files that Actor Robert Ellis appeared in films between 1913 and 1934.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
