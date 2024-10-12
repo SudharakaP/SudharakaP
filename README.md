@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-165 is the miles of Tahoe Rim Trail, a long-distance hiking trail around Lake Tahoe.
+40 is the number of eggs that female alligators lay, which hatch in 60 - 70 days.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
