@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the life duration of the ovule in hours.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
