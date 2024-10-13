@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
+202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
