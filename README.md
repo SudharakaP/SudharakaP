@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is the age a person must attain in order to be considered a supercentenarian.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
