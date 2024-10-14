@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-242 is the area code of The Bahamas located in the North West Atlantic Ocean.
+214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
