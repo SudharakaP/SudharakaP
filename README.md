@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is number of codons in the RNA codon table under genetic code.
+240 is the cholesterol level above which is considered high risk.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
