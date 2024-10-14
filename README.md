@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the number of denominations of Canadian currency produced in large quantities.
+112 is the atomic number of the element copernicium (formerly called ununbium).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
