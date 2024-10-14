@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-29 is the number of days it takes Saturn to orbit the Sun.
+11 is the number of denominations of Canadian currency produced in large quantities.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
