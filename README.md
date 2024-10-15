@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is the number of classical arts listed in many Indian scriptures.
+203 is the HTTP status code indicating partial information.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
