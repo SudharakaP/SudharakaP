@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
+56000000000 is the number of web pages indexed by Google as of 2010.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
