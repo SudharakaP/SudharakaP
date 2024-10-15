@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-201 is the title of an episode of South Park.
+58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
