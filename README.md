@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-231 is the number of cubic inches in a U.S. liquid gallon.
+134 is the rank of Mauritania in terms of world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
