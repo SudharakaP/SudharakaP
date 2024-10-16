@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
+72 is the number of episodes in the original airing of Futurama.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
