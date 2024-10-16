@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-153 is the code for "mental processes & intelligence" in the Dewey Decimal Classification.
+600 is the advertised number of miles that NASCAR runs in the Coca-Cola 600, the longest race on any of the NASCAR circuits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
