@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the number of episodes in the original airing of Futurama.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
