@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-16 is the minimum age for getting an adult job in most states and provinces across the globe.
+334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
