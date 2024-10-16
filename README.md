@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is the number of pence in a pound in the British currency until 1971.
+4.52e+46 is the upper bound for the number of legal chess positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
