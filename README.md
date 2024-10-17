@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
+720 is the number of degrees in two circles (= 2 × 360).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
