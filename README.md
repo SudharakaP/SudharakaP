@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-366 is the number of days in a leap year.
+22 is the number of chapters of the Revelation of John in the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
