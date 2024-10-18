@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1728 is braces were first invented by Pierre Fauchard.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
