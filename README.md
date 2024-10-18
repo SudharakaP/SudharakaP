@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-131 is the number serving a monkiker for Indie music.
+101 is the temperature in Fahrenheit of milk when it leaves the body of a cow.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
