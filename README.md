@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
+22 is the number of players on the field in a football (soccer) match.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
