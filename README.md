@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-215 is the Dewey Decimal Classification for Science and religion.
+168 is the number of triples that Shoeless Joe Jackson hit in his MLB career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
