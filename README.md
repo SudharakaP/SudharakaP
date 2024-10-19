@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-59 is the number corresponding to the last second in a given minute.
+126 is the number of years that Gilgamesh reigned according to the Sumerian king list.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
