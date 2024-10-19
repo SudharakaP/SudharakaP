@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-183 is the rank of Laos in countries by population density.
+175 is the rank of Belize in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
