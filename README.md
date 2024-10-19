@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1000 is the number of words a picture is worth.
+42 is the number of laws of cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
