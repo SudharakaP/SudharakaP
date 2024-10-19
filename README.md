@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-99 is a common price ending in psychological pricing.
+85 is the atomic number of astatine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
