@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-118 is the medical and Alpine rescue emergency telephone number in Italy.
+9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
