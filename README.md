@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the number worn by the Clemson Tigers' record breaking running back C.J.
+242 is the area code of The Bahamas located in the North West Atlantic Ocean.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
