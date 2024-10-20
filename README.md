@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-161 is the the number of theatrical shorts of Tom and Jerry cartoons between 1940 and 1967.
+141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
