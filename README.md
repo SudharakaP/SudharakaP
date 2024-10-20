@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-175 is the rank of Belize in world population.
+400000 is the number of morphine addicts the Civil War produced.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
