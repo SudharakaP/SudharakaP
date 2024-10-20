@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-13 is the speed of rush hour traffic on average in kilometres per hour in London.
+5e+30 is the number of bacterial cells on Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
