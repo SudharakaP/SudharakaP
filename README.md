@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+192 is the length in miles of the The Coast to Coast Walk in England.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
