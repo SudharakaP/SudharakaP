@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-83 is the highest UHF channel on older televisions made before the late 1970s.
+185 is the distance a single playing card was thrown in feet by Kevin St. Onge to set a Guinness World Record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
