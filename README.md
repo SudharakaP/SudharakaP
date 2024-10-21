@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the rank of Sweet Child o' Mine (1987) by Guns N' Roses on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
+21 is the number of demands which were sent to the Chinese government by the Japanese government of Okuma Shigenobu in 1915.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
