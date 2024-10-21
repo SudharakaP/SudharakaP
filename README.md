@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
+167 is the number of tennis titles that Martina Navratilova has, which is an all-time record for men or women.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
