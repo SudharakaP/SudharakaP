@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+21 is the number of grains of sand on all the world's beaches put together.
+222 is the score in the 1916 Cumberland vs. Georgia Tech football game, with Georgia Tech winning 222-0, which was the record for most points scored by one team in an American football game.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
