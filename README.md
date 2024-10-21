@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-191 is a common flight number for flights involved in crashes.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
