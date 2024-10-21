@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the length in miles of the The Coast to Coast Walk in England.
+169 is the height in feet that Buddha Dordenma, a Shakyamuni Buddha statue under construction in the mountains of Bhutan, once completed, would be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
