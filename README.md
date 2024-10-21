@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
+212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
