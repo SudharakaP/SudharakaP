@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56000000000 is the number of web pages indexed by Google as of 2010.
+12 is the number of basic hues in the color wheel (3 primary colors (red, yellow, blue), 3 secondary colors (orange, green & purple) and 6 tertiary colors).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
