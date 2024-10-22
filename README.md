@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is the cholesterol level above which is considered high risk.
+108 is the number of moves in several different Taijiquan long forms.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
