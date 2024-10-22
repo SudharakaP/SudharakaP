@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-76 is the atomic number of osmium.
+Infinity is the number of universes in multiverse theory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
