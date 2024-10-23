@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1 is the number of moons orbiting Earth.
+189 is the atomic number of an element temporarily called Unoctennium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
