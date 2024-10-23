@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the number of completed, numbered piano sonatas by Ludwig van Beethoven.
+7e+22 is the number of stars within range of telescopes (as of 2003).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
