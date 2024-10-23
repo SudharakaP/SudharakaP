@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172 is the rank of Djibouti in world population density.
+124 is a stable isotope of tellurium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
