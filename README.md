@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-183 is the rank of the U.S. Virgin Islands in world population.
+31 is the number of flavors of Baskin-Robbins ice cream.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
