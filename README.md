@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the approximate periodicity of a sunspot cycle in years.
+94 is the atomic number of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
