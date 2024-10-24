@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-16 is the minimum age that one can drop out of school in most states of the US (however, restrictions apply and vary depending on state).
+24 is the number of bits a computer needs to represent falseColor images (for a maximum of 16,777,216 colours).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
