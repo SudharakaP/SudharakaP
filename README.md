@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-27 is the number of grains in some Buddhist rosary (108 divided by 4).
+81 is the number of squares on a shogi playing board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
