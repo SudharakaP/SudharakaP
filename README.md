@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-169 is the first number of an automatic IPv4 address assigned by TCP/IP when no external networking device is contactable.
+95 is the NBA record for Most Assists in a 7-game playoff series (by Magic Johnson of the Los Angeles Lakers in 1984).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
