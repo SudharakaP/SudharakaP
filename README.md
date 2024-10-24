@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150 is years in a sesquicentennial.
+101 is the number identifying number of several infantry units in various militaries across the world, such as the American and Israeli paratrooper brigades.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
