@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-189 is the rank of Jersey in world population.
+214 is the first area code of metropolitan Dallas, Texas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
