@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
+166 is the number of athletes (104 men and 62 women) that represented Scotland in the 2006 Commonwealth Games in Melbourne, Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
