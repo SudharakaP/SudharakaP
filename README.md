@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14500 is the number of unique English words occur in the King James Version of the Bible.
+9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
