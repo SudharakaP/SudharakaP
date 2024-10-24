@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-104 is the atomic number of rutherfordium.
+76 is the atomic number of osmium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
