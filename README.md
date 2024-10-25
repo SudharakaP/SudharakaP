@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-65 is the minimum grade required to pass an exam, or class, in many areas.
+143 is the number of episodes of the TV series The Adventures of Robin Hood on CBS from 1955 to 1959.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
