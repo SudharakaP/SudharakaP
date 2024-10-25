@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+240 is distinct solutions of the Soma cube puzzle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
