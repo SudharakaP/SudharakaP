@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-136 is the number of episodes the TV series Fame ran on NBC and syndication from 1982 to 1987.
+555 is the number of keyboard sonatas written by Domenico Scarlatti, according to the catalog by Ralph Kirkpatrick.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
