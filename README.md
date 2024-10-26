@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-144 is the Intel 8086 instruction for no operation (NOP).
+60 is a common speed limit (mph) for freeways in many US states.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
