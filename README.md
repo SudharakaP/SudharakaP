@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the population of Guedanga, in the Ouo Department of ComoÃ© Province, Burkina Faso.
+91 is the atomic number of protactinium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
