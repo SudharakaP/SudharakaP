@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-130 is the approximate maximum height in meters of trees.
+7 is the maximum number of times a letter-sized paper can be folded in half.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
