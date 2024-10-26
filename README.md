@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-255 is the largest representable integer in an unsigned byte.
+144 is the Intel 8086 instruction for no operation (NOP).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
