@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
+53 is the maximum number of facial muscles a smile can require.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
