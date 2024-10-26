@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the police emergency telephone number in Egypt.
+173 is the atomic number of an element temporarily called Unsepttrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
