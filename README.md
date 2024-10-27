@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-493 is the number of bronze knuts equivalent to one gold galleon, in the monetary system of the world of Harry Potter.
+192 is the number of episodes with Moose, a dog, playing Eddie Crane on Frasier.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
