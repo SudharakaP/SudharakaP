@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the drop in meters of the world's tallest freefall ride, The Giant Drop located in Australia.
+14 is the number of days in a fortnight.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
