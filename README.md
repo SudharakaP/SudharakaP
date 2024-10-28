@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-80 is the length (years) of the Eighty Years' War (1568–1648).
+383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
