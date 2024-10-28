@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-23 is the number of enigma that plays a prominent role in the plot of The Illuminatus! Trilogy by Robert Shea and Robert Anton Wilson.
+165 is the number of episodes that the TV show Daniel Boone ran on NBC from 1964 to 1970.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
