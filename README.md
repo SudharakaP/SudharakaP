@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-131 is the number serving a monkiker for Indie music.
+1728 is braces were first invented by Pierre Fauchard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
