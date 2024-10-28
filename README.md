@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-450 is a perfect score in Canadian five-pin bowling.
+55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
