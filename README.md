@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
+116 is the record for number of wins in a single season of Major League Baseball achieved by the Chicago Cubs in 1906 and the Seattle Mariners in 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
