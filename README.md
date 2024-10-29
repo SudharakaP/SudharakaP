@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-336 is the number of dimples on an American golf ball.
+40 is the number of points that a Premier League team needs to avoid relegation in soccer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
