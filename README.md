@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-106000000000 is the number of homo sapiens that have lived since speciation.
+14 is the earliest age that the emancipation of minors can occur in the U.S.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
