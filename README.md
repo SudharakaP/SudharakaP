@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100000000000 is the number of neurons in the human brain.
+92 is the number of stories in the Xujiahui Tower proposed to be built in Shanghai, China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
