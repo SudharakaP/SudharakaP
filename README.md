@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-21 is the number of trump cards of the tarot deck if one does not consider The Fool to be a proper trump card.
+27 is the number of grains in some Buddhist rosary (108 divided by 4).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
