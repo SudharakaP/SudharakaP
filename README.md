@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the rank of "Maybe" (1957) by The Chantels on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
