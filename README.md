@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25 is the minimum age of candidates for election to the United States House of Representatives.
+43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
