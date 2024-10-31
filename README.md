@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the length in minutes of the Right Stuff.
+59 is the number corresponding to the last second in a given minute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
