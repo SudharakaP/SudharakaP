@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-117 is the substitute for the number 17, which is considered unlucky in Italy.
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
