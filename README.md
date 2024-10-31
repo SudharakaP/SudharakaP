@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-170 is largest integer for which Google"s built-in calculator function can compute the factorial.
+114 is the element with the highest number of protons yet discovered, Ununquadium with the highest number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
