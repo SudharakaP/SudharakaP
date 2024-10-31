@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-78 is the number of lines that make up Metatron's Cube.
+135 is the angle between two planets in degrees so that they are in an astrological aspect called a sesquiquadrate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
