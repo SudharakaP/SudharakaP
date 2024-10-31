@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the number of states in the United States of America.
+174 is the rank of Zimbabwe in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
