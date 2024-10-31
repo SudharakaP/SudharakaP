@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-88 is the pounds of oxygen that the adult human body requires daily.
+251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
