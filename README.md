@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3825000 is the number of entries on Wikipedia in the English language.
+44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
