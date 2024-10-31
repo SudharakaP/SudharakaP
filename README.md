@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the number worn by the Clemson Tigers' record breaking running back C.J.
+117 is the substitute for the number 17, which is considered unlucky in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
