@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the population of Giry, France.
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
