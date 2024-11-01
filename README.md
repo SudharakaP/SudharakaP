@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-86 is the device number for a lockout relay function in electrical circuit protection schemes.
+11 is the number of incarnations of The Doctor in BBC sci-fi series Doctor Who.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
