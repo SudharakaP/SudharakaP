@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-208 is the heaviest stable isotope of any element (lead).
+45 is the sapphire wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
