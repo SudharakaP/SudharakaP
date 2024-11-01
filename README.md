@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the number for voicemail for mobile phones on the Vodafone network.
+70 is the distance (meter) from archer to targets in Olympic Archery.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
