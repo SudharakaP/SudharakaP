@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-167 is the number of episodes of InuYasha, a Japanese manga series which ran from 1996 to 2008.
+384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
