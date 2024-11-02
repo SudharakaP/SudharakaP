@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
+160 is the number of characters permitted in a standard short message service in Australia and Europe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
