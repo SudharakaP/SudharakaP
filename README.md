@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
+149000000 is the number of kilometres from the Earth the sun is.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
