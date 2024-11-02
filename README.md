@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
