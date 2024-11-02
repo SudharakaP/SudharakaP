@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-127 is the highest signed 8 bit integer.
+166 is the feet above sea level at Turriff in Aberdeenshire, Scotland.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
