@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-45 is the sapphire wedding anniversary in years of marriage.
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
