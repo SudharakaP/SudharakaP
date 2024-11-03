@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-104 is the number of Corinthian columns in the Temple of Olympian Zeus, the largest temple ever built in Greece.
+136 is the section of the Mental Health Act 1983 (UK law) details removing a mentally ill person from a public place to a place of safety.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
