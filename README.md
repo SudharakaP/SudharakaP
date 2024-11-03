@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-134 is the number of episodes of the TV series Xena Warrior Princess.
+93 is the atomic number of neptunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
