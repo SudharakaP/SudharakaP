@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40 is the number of weeks for an average term of pregnancy, counting from the woman’s last menstrual period.
+550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
