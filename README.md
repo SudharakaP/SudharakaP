@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the jersey number worn by the starting stand-off half/five-eighth in most rugby league competitions.
+4200 is the number of standard size of a legion in the Roman Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
