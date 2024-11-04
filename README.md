@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-75 is the age limit for Canadian senators.
+194 is the NHL record number of saves, set by Bruce Sutter in 1982.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
