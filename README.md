@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the number of uprights that formed the Sarsen Circle at Stonehenge, also the supposed number of holes forming the arrays of Y and Z Holes at Stonehenge.
+613 is a significant number in Judaism, as its metaphysics, the Kabbalah, views every full entity as divisible into 613 parts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
