@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-27 is the number of countries in the European Union (as of August 2011).
+267000 is the number of words in James Joyce's Ulysses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
