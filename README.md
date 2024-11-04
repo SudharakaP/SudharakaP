@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-108 is the number of stitches in an official Major League Baseball baseball.
+137 is the California Penal Code for "Offer bribe to influence testimony".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
