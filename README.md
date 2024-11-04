@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-229 is the lowest individual batting score not achieved by any player in test match cricket.
+169 is the height in feet that Buddha Dordenma, a Shakyamuni Buddha statue under construction in the mountains of Bhutan, once completed, would be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
