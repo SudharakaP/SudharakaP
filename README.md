@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the number of runs by Dick Culler in his Major League Baseball career from 1936-1949.
+202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
