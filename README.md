@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-68 is the ideal temperature (F) for developing black-and-white film.
+107 is a common police code denoting a suspicious person.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
