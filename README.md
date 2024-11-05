@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is the minimum odd number of voting components for simple easy redundancy checks by direct comparison.
+10000000000000000000 is the estimated insect population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
