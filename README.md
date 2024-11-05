@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-144 is the number of square inches in a square foot.
+85 is the IQ and nickname of Aaron in Alien 3.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
