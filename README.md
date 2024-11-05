@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-23 is the number of crosses on Calvary in the Monty Python film Life Of Brian.
+44 is the number of candles in a box of Hanukkah candles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
