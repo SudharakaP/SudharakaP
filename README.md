@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
+23 is the number of crosses on Calvary in the Monty Python film Life Of Brian.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
