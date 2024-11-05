@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-142600 is tonnes of gold mined in the world by the end of 2000.
+151 is the number of episodes that TV series Malcolm in the Middle ran on the Fox Network from 2000 to 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
