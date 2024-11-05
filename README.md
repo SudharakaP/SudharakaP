@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the speed in miles per hour that cheetahs, the fastest land animal, can reach.
+187 is the number of the California Penal Code section describing murder.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
