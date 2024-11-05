@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-179 is the number of even numbered days of the year.
+81 is the number of squares on a shogi playing board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
