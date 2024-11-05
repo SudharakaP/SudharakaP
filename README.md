@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
+126 is the atomic number of unbihexium, an element that has not yet been discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
