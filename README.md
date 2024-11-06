@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1 is the number of dimensions of a line.
+125 is years in a quasquicentennial.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
