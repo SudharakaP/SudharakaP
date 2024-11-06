@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is a number considred unlucky in enduro, given to a race entrant and is colloquially known as a "blind pew".
+911 is the number of days after September 11th that the Madrid Attack took place.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
