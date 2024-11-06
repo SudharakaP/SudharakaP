@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
+167 is the number of tennis titles that Martina Navratilova has, which is an all-time record for men or women.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
