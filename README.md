@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
+8e+120 is the ratio of the mass-energy in the observable universe to the energy of a photon with a wavelength the size of the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
