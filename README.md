@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-89 is the number of units of each colour in the board game Blokus.
+7e+22 is the number of stars within range of telescopes (as of 2003).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
