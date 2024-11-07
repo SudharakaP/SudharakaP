@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-720 is five gross (= 500 duodecimal, 5 × 144).
+1e+83 is the number of fundamental particles in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
