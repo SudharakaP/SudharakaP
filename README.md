@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-203 is the HTTP status code indicating partial information.
+240 is the number of pence in a pound in the British currency until 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
