@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4000 is the weight in pounds that the Great White Shark can grow to.
+720 is five gross (= 500 duodecimal, 5 × 144).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
