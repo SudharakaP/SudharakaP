@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+41 is the number of members in the U.S. Senate needed to defeat a cloture vote and sustain a filibuster indefinitely.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
