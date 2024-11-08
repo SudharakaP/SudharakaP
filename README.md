@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-42 is the number of museums in Amsterdam (Netherlands has the highest concentration of museums in the world).
+245 is the number of Jewish singers who returned from captivity in Babylon in circa 538 BCE BC following the rise of Cyrus the Great and the Persian Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
