@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is a file medium format developed by Kodak.
+35 is the minimum age of candidates for election to the United States Presidency.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
