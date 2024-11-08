@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17 is the maximum number of strokes of a Chinese radical.
+80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
