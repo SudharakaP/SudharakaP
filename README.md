@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is distinct solutions of the Soma cube puzzle.
+196 is the length in miles of the Adda River in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
