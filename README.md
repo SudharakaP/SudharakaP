@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25 is the number of points needed to win a set in volleyball under rally scoring rules.
+267 is the number of groups of order 64.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
