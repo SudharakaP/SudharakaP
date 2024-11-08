@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-267 is the number of groups of order 64.
+4.52e+46 is the upper bound for the number of legal chess positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
