@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-181 is the rank of SÃ£o TomÃ© and PrÃ­ncipe in world population.
+140 is liters of water needed to produce 1 cup of coffee.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
