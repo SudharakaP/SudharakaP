@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+166 is the number of cartoons that Bugs Bunny starred in Warner Bros. from 1940 to 1964.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
