@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-83 is the highest UHF channel on older televisions made before the late 1970s.
+90000 is the average number of hairs that redheads have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
