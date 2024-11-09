@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the number worn by LeBron James in the NBA.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
