@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
+136 is the number of episodes the TV series Fame ran on NBC and syndication from 1982 to 1987.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
