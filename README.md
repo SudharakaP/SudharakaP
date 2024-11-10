@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
