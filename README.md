@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-124 is a stable isotope of tellurium.
+54 is the score in golf colloquially referred to as a perfect round.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
