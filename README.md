@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the total number of years in a Sexagenary cycle.
+280000000000000 is the number of possible unique physical addresses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
