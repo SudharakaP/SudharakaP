@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-96 is the rating of Skyrim on metacritic.com.
+184 is a number believed to be a magic number in nuclear physics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
