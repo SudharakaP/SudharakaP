@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-184 is a number believed to be a magic number in nuclear physics.
+60 is the total number of years in a Sexagenary cycle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
