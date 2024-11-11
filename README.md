@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-93 is that approximate distance in millions of miles the Sun is away from the Earth.
+185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
