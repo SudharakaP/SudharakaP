@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the number of Chinese constellations, "Xiu" or "mansions" (a literal translation), equivalent to the 12 western zodiac constellations.
+213 is the code for character "Õ" in codepages such as ISO-8859-1 and UTF-8.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
