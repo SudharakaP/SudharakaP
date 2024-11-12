@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the largest number that has just one syllable.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
