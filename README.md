@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
+104 is the number of Corinthian columns in the Temple of Olympian Zeus, the largest temple ever built in Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
