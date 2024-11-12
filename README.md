@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15 is the approximate speed in miles per hour a penguin swims at.
+124 is the rank of the Palestinian territories in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
