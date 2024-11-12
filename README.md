@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-76 is the atomic number of osmium.
+17 is the maximum number of strokes of a Chinese radical.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
