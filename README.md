@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-181 is the rider number given to Lance Armstrong in 1999 when he won his first of seven Tour de France consecutive victories.
+35 is the basic film gauge in mm most commonly used for both analog photography and motion pictures.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
