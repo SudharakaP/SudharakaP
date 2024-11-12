@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-168 is the number of episodes that Barney Miller ran on ABC from 1975 to 1982.
+564000 is the number of words in War and Peace by Leo Tolstoy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
