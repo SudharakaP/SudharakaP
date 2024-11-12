@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25 is the (critical) number of Florida electoral votes for the 2000 U.S. presidential election.
+250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
