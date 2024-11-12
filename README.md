@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
+168 is the number of episodes that Barney Miller ran on ABC from 1975 to 1982.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
