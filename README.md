@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-39 is the traditional number of times citizens of Ancient Rome hit their slaves when beating them, referred to as "Forty save one".
+525998433 is the number of distinct websites as of November 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
