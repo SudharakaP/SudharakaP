@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-220 is the common voltage in many countries.
+25 is the (critical) number of Florida electoral votes for the 2000 U.S. presidential election.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
