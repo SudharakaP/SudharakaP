@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+166 is the number of episodes that the Flintstones ran on ABC from 1960 to 1966.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
