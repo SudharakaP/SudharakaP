@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-0 is the coldest possible temperature old the Kelvin scale.
+92 is the percentage of water in watermelons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
