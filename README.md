@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-70 is the number of years of marriage until the platinum wedding anniversary.
+167 is the number of tennis titles Martina Navratilova has, an all-time record for men or women.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
