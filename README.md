@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-156 is the width in miles of a crater formed by an asteroid that may have hit Earth 1.8 billion years ago, according to researchers from the University of Toronto and Geological Survey of Canada.
+9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
