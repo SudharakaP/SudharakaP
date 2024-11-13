@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-201 is the HTTP status code indicating a new resource was successfully created in response to the request.
+386 is the number of Pokémon in the 3rd Generation National Pokédex.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
