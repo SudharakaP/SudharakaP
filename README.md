@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-206 is the number of bones in the typical adult human body.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
