@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-214 is the SMTP status code for help message.
+4200 is the number of standard size of a legion in the Roman Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
