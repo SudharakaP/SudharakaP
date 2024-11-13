@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the total number of books in the Holy Bible in the Catholic version.
+587 is the outgoing port for email message submission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
