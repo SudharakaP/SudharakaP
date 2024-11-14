@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-70 is the distance (meter) from archer to targets in Olympic Archery.
+196 is the population of Giry, France.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
