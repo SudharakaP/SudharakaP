@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-162 is total number of baseball games each team plays during a regular season in Major League Baseball.
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
