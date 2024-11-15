@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-83 is the atomic number of bismuth.
+198 is the rank of Marshall Islands in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
