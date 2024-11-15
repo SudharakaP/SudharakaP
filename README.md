@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-208 is the heaviest stable isotope of any element (lead).
+187 is the atomic number of an element temporarily called Unoctseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
