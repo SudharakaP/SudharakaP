@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
+5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
