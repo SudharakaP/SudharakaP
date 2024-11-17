@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-189 is the number of irregular verbs in the English language (from "abide" to "write").
+384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
