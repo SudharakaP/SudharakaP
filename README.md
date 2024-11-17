@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25 is the size of the full roster on a Major League Baseball team for most of the season, except for regular-season games on or after September 1, when teams may expand their roster to no more than 40 players.
+100000000000000 is the number of cells in the the human body, of which only 10^{13} are human. The remaining 90% non-human cells are bacteria.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
