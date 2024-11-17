@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000000000000000000 is the estimated insect population.
+255 is the largest representable integer in an unsigned byte.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
