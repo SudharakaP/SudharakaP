@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-198 is the population of Perlethorpe, Nottinghamshire England.
+158 is the number of verses of the national anthem of Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
