@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-213 is the name of a hip hop, active 1990-2004.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
