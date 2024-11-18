@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-162 is 162 is the total number of baseball games each team plays during a regular season in Major League Baseball.
+132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
