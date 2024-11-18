@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30000 is the number of distinct Chinese characters.
+500 is the number of detectable earthquakes in the world each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
