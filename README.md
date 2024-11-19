@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
+3000000000 is the number of base pairs in the human genome.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
