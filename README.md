@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-181 is the rider number given to Lance Armstrong in 1999 when he won his first of seven Tour de France consecutive victories.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
