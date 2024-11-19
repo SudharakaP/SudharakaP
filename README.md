@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-139 is the margin in St Kilda's win over the Brisbane Lions in the last round of the 2005 season in the Australian Football League.
+14500 is the number of unique English words occur in the King James Version of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
