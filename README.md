@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25 is the (critical) number of Florida electoral votes for the 2000 U.S. presidential election.
+285 is the total number of Rules of Acquisition in Star Trek.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
