@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-197 is the rank of the Solomon Islands in population density.
+464 is the number of legal positions of the kings in chess, not counting mirrored positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
