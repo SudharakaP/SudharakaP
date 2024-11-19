@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-124 is the rank of the Palestinian territories in world population.
+123 is the emergency telephone number in Colombia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
