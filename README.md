@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-117 is the atomic number of a recently discovered element temporarily called ununseptium.
+6800 is the approximate number of languages in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
