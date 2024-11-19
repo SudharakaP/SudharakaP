@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22 is the typical length in minutes of a half hour sitcom not including commercials.
+10000000000 is the number of bacteria in the human oral cavity.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
