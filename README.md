@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the freezing point of water at sea level in degrees Fahrenheit.
+7e+27 is the number of atoms in the average human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
