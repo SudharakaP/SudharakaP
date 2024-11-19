@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-137 is the California Penal Code for "Offer bribe to influence testimony".
+122 is the traffic emergency telephone number in China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
