@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1728 is braces were first invented by Pierre Fauchard.
+24 is the number of frames per second at which motion picture film is usually projected.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
