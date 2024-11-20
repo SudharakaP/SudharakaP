@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172000 is tons of chocolate produced in Belgium in a year.
+14 is the number of times that a typical dairy cow lies down and stands up a day on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
