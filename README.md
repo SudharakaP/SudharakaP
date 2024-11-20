@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-151 is the total number of Pokémon in the original set, counting Mewtwo and Mew.
+3000000000 is the number of base pairs in the human genome.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
