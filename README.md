@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-203 is the HTTP status code indicating partial information.
+123 is the Notation for national and international telephone numbers Recommendation ITU-T Recommendation E.123 defines a standard way to write telephone numbers, e-mail addresses, and web addresses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
