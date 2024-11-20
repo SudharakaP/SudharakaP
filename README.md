@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the maximum number of marbles (game pieces) in Chinese checkers.
+166 is the number of points the Dow Jones Industrials fell on June 24, 2005.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
