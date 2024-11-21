@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-432 is three-dozen sets of a dozen, making it three gross.
+64 is the total number of black and white squares on the game board in chess or draughts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
