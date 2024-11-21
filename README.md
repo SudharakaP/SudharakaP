@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is the total number of black and white squares on the game board in chess or draughts.
+99 is the number of names of Allah, the names or attributes of God in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
