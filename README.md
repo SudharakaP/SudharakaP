@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
+1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
