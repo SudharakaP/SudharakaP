@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-168 is the feet that three-time Olympic gold medalist John Flanagan achieved in the hammer throw in 1904 (168 feet, 1 inch).
+50 is the height in kilometres that a volcano can shoot ash into the sky.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
