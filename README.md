@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-66 is the total number of chapters in the Bible book of Isaiah.
+180 is the gent's clout shooting distance in archery measured in yards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
