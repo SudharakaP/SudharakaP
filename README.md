@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
+240 is the number of pence in a pound in the British currency until 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
