@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the number of days in a fortnight.
+179 is the atomic number of an element temporarily called Unseptennium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
