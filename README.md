@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6000000000000000000 is the number of transistor produced worldwide in 2008.
+525998433 is the number of distinct websites as of November 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
