@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-133 is the number of career touchdowns from 1983 - 1996 of Canadian Football League quarterback Danny Barrett.
+1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
