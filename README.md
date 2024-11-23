@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8e+60 is the number of Planck time intervals since the Big Bang.
+273 is the zero of the Celsius temperature scale (to the nearest whole number) in Kelvin.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
