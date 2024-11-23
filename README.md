@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14500 is the number of unique English words occur in the King James Version of the Bible.
+1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
