@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-66 is the total number of books in the Protestant edition of the Bible (Old Testament and New Testament) combined.
+97 is the number of different characters that can be used with a standard English Keyboard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
