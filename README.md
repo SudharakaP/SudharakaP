@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-104 is the number of Corinthian columns in the Temple of Olympian Zeus, the largest temple ever built in Greece.
+23 is the number of minutes that all flashbacks take place before the assassination attempt on the president in the film Vantage Point.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
