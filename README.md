@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the medical emergency number in Ghana.
+10000000000000000000 is the estimated insect population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
