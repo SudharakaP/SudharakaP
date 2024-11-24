@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172000 is tons of chocolate produced in Belgium in a year.
+190 is the fire emergency number in the Brazil.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
