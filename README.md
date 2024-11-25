@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the maximum number of marbles (game pieces) in Chinese checkers.
+729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
