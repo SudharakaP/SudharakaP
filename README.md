@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-198 is the number of films that actor Harvey Clark appeared in between 1915 and 1938.
+383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
