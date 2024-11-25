@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10 is the highest score possible in Olympics gymnastics competitions.
+300 is the number of different beverages the Coca Cola company offers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
