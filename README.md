@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-130 is the approximate maximum height in meters of trees.
+1e+21 is the number of grains of sand on all the world's beaches put together.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
