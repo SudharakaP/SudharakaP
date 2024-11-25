@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7 is the number of SI base units.
+179 is the atomic number of an element temporarily called Unseptennium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
