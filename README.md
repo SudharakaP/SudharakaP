@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the total number of years in a Sexagenary cycle.
+108 is the number of stitches in an official Major League Baseball baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
