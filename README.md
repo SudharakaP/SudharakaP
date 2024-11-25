@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is the gent's clout shooting distance in archery measured in yards.
+36 is the perfect score on the ACT.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
