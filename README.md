@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000000000000000000 is the estimated insect population.
+22 is the typical (minimum) number of episodes in a season for a television program broadcast on a major American network.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
