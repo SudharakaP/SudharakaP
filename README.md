@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is number of performers in a trio.
+100000 is the number of verses (shlokas) in the Mahabharata.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
