@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-230 is the common voltage in the European Union.
+365 is the number of solar days in the mean tropical year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
