@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is is the number of floors of Taipei 101, the tallest skyscraper in the world from 2004 to 2010.
+159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
