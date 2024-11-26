@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-94 is the length of an NBA court in feet.
+62 is the number which Sigmund Freud has an irrational fear of.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
