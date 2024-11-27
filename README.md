@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
+729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
