@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-217 is the area code for central Illinois.
+187 is the atomic number of an element temporarily called Unoctseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
