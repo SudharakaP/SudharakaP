@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
+92 is the number of pounds of sugar the average American child consumes per year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
