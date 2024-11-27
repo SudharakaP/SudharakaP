@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50000000 is the approximate number of people who fish per year in the United States.
+66 is the total number of books in the Protestant edition of the Bible (Old Testament and New Testament) combined.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
