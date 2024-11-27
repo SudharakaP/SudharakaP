@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-177 is the second highest possible score in darts that can be obtained by throwing three darts in a single visit to the oche.
+87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
