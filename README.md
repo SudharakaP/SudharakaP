@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-44 is the percentage of kids who watch television before they go to sleep in the US.
+248 is the number of organs in the human body as traditionally depicted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
