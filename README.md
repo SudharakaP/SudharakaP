@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
+383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
