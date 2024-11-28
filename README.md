@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4200 is the number of standard size of a legion in the Roman Republic.
+500 is the number of detectable earthquakes in the world each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
