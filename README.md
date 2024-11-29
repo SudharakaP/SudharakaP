@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
+404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
