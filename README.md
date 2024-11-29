@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-9 is the number of innings in a regulation, non-tied game of baseball.
+52 is the number of cards in a standard deck of playing cards, not counting Jokers or advertisement cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
