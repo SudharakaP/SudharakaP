@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the number of people who have walked on Earth's moon.
+30 is the number of years that tarantulas can live up to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
