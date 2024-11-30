@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-217 is the area code for central Illinois.
+184 is a weight class in collegiate wrestling, 184 lb (83 kg).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
