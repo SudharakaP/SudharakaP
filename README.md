@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-202 is the area code assigned to Washington D.C.
+30 is the number of hours of the longest kiss on record, by Dror Orpaz and Carmit Tsubara in 1999 at a kissing contest.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
