@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-92 is the number of stories in the Xujiahui Tower proposed to be built in Shanghai, China.
+71 is the number of different characters that can be used with a standard English Keyboard, excluding uppercase letters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
