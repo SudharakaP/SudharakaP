@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the official end score for Cribbage.
+112 is the atomic number of the element copernicium (formerly called ununbium).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
