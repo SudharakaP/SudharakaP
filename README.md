@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4000 is the weight in pounds that the Great White Shark can grow to.
+153 is the frequency in kHz of of the longwave transmitters Donebach, Ingøy, Braşov, and Kenadsa.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
