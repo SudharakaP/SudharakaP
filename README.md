@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-151 is the number of episodes that TV series Malcolm in the Middle ran on the Fox Network from 2000 to 2006.
+755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
