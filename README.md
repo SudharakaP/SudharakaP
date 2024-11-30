@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
+343 is the number of New York City Firefighters who died on September 11, 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
