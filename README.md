@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-119 is the default port for unencrypted NNTP connections.
+365 is the number of solar days in the mean tropical year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
