@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1311000000 is the population of the People's Republic of China in 2007.
+8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
