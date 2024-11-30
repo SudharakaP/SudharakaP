@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
+243 is the number of Earth Days for the planet Venus to complete one Venetian day, one revolution.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
