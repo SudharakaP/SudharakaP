@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
+39 is the number of Scud missiles which Iraq fired at Israel during the Gulf War in 1991.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
