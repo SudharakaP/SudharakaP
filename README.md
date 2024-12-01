@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5000 is the number of base pairs in the DNA of the simplest viruses.
+40 is the number of attempts needed before the creation of the "water displacing" substance in the spray WD-40.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
