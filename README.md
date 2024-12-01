@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-123 is the medical emergency telephone number in Egypt.
+118 is the number of ridges a U.S. dime has around its edge.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
