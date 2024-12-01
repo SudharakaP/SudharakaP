@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-123 is the electricity emergency telephone number in Indonesia.
+6000000 is the number of parts in the Boeing 747-400.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
