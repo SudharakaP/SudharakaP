@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
+135 is the cartridge version of 35mm photographic film, used widely in still photogaphy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
