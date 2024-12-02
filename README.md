@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the number of episodes in the original airing of Futurama.
+195 is the distance off the coast of Malta that the ocean liner RMS Franconia was sunk by German torpedoes in 1916.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
