@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000 is the weight in tons of the average iceberg.
+6 is the number of basic holes or keys on most woodwind instruments.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
