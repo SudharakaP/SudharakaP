@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
+189 is the rank of Jersey in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
