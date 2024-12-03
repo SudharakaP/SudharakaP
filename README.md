@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the angle between two planets in degrees so that they are in an astrological aspect called a sesquiquadrate.
+1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
