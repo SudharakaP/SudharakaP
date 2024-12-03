@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-156 is the number of episodes the TV series The West Wing ran on NBC from 1999 to 2006, including an extra episode.
+8e+60 is the number of Planck time intervals since the Big Bang.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
