@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-119 is the default port for unencrypted NNTP connections.
+175 is the weight in grams of a flying disc used in Ultimate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
