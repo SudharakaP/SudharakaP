@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
+120 is the drop in meters of the world's tallest freefall ride, The Giant Drop located in Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
