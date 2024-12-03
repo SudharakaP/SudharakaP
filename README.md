@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-24 is the number of accepted runners in the Melbourne Cup.
+142 is the number of home-based business ideas included in the 142 Now packet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
