@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-184 is a number believed to be a magic number in nuclear physics.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
