@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
+181 is the wing area of a Boeing 757 airplane in meters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
