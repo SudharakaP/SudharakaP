@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-175 is the rank of Belize in world population.
+186 is a police term for a murder or homicide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
