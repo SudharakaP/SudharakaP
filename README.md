@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
+693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
