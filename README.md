@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the number of basic hues in the color wheel (3 primary colors (red, yellow, blue), 3 secondary colors (orange, green & purple) and 6 tertiary colors).
+197 is the number of episodes of the Cosby Show that ran on NBC from 1984-1992.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
