@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-169 is the number of nonequivalent starting hands in the Texas hold "em.
+240 is the common voltage in England and Australia before conversion to 230V standard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
