@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
+15 is the number of days in each of the 24 cycles of the Chinese calendar.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
