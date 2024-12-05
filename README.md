@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1311000000 is the population of the People's Republic of China in 2007.
+111 is the number occasionally referred to as "eleventy-one", as read in The Fellowship of the Ring by J.R.R.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
