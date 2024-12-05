@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-116 is the number of pages in the Lost pages, the original manuscript of what Joseph Smith, Jr. said was the translation of the Book of Lehi, of the Golden plates revealed to him in 1827.
+14500 is the number of unique English words occur in the King James Version of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
