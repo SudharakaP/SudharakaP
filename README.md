@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-89 is the number of units of each colour in the board game Blokus.
+92 is the number of letters in the longest place name: Taumatawhakatangihangakoauauotamateaurehaeaturipukakapikimaungahoronukupokaiwhenuakitanatahu.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
