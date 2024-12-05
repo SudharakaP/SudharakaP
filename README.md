@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the drop in meters of the world's tallest freefall ride, The Giant Drop located in Australia.
+25 is the number of fruits that a grapefruit cluster can have up to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
