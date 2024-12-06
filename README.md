@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-161 is the number of episodes the TV series The Avengers ran from 1961 to 1969.
+38 is the number of minutes in the shortest war in history in which Zanzibar surrendered to England in 1896.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
