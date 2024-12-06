@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is the intelligence Agency telephone number in Iran.
+666 is the number of the devil.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
