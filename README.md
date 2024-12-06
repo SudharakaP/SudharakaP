@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-102 is the number of floors in Empire State Building in New York City.
+202 is the area code assigned to Washington D.C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
