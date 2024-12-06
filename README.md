@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
+83 is the highest UHF channel on older televisions made before the late 1970s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
