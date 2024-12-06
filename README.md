@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-42 is the number of spots (or pips, circular patches or pits) on a pair of standard six-sided dice.
+203 is the HTTP status code indicating partial information.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
