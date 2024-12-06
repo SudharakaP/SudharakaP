@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6909 is the number of estimate for the linguistic diversity of living human languages or dialects.
+168 is the number of home runs that José Hernández hit in his MLB career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
