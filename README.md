@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10 is the highest score possible in Olympics gymnastics competitions.
+172 is the number that appears on the back of the US $5 dollar bill (in the bushes at the base of the Lincoln Memorial).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
