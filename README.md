@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-194 is the rank of Isle of Man in world population.
+104 is the number of Corinthian columns in the Temple of Olympian Zeus, the largest temple ever built in Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
