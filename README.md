@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-361 is the number of positions on a standard 19 x 19 Go board.
+1600000 is the number of people employed by the Indian railway system in India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
