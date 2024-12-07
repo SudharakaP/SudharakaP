@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-183 is the atomic number of an element temporarily called Unocttrium.
+195 is the speed in miles per hour at which Canadian race car driver Francis Affleck was driving when his car rolled over and died on February 7, 1985.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
