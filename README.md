@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-161 is the the number of theatrical shorts of Tom and Jerry cartoons between 1940 and 1967.
+60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
