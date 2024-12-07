@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-156 is the width in miles of a crater formed by an asteroid that may have hit Earth 1.8 billion years ago, according to researchers from the University of Toronto and Geological Survey of Canada.
+113 is the port number of the IDENT Internet protocol that helps identify the user of a particular TCP connection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
