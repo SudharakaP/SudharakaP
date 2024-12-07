@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
