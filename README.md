@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-88 is the approximate number of days it takes Mercury to complete its orbit.
+154 is the period in days that the sun follows on gamma-ray flares.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
