@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-386 is the number of Pokémon in the 3rd Generation National Pokédex.
+27 is the total number of letters in the Hebrew alphabet (22 regular letters and 5 final consonants).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
