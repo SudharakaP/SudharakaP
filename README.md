@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-179 is the rank of the Anthology 1961-1977 (1992) by Curtis Mayfield and The Impressions on Rolling Stone magazine's list of the 500 greatest albums of all time.
+118 is the number of decibels of the loudest burp, held by record-holder Paul Hunn, which is as loud as a chainsaw.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
