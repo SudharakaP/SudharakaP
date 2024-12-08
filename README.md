@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-199 is the number of steps to the top of the Cape May Lighthouse in Cape May, New Jersey.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
