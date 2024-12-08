@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1750000 is the number of entries in the freedb database of CD track listings as of June 2005.
+128 is the bytes of memory of the Atari 2600 console.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
