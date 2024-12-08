@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-90 is the number of minutes in a football (soccer) match.
+190 is the medical emergency number in Ghana.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
