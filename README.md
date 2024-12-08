@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17 is the minimum driving age for a car or van in the United Kingdom.
+142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
