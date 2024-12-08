@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-273 is the death toll of the air crash of American Airlines Flight 191.
+45 is the sapphire wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
