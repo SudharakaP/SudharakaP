@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-214 is the number of Chinese radicals for the writing of Chinese characters according to the 1716 Kangxi Dictionary.
+173 is the number of players that competed in badminton at the 2008 Summer Olympics in Beijing, China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
