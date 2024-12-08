@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the percentage of water of which the human body is composed.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
