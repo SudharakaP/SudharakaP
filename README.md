@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
