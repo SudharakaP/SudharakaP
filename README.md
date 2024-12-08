@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-128 is the bytes of memory of the Atari 2600 console.
+6000000000000000000 is the number of transistor produced worldwide in 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
