@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
+210 is the world speed record (km/h) for a mountain bike on a ski slope.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
