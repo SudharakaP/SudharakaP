@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-207 is the area code for the US state of Maine.
+199 is the number of steps to the top of the Cape May Lighthouse in Cape May, New Jersey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
