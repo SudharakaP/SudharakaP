@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
+138 is essendon's losing margin against Adelaide in round 10 of the 2006 AFL season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
