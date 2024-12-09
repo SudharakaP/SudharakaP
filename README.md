@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110000 is the average number of hairs that people with black hair have.
+73 is the percentage of girls in Bangladesh that are married by age 18.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
