@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150 is the number of estimated distinct phonemes in the Taa language.
+92 is the percentage of water in watermelons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
