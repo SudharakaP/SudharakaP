@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
+35 is the percentage of all bingo players are under the age of 35.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
