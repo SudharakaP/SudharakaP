@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
+88 is the pounds of oxygen that the adult human body requires daily.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
