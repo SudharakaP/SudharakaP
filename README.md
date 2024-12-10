@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-129 is the rank of Liberia in world population.
+4 is the number of human blood groups (A, B, O, AB).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
