@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
+3 is the number of novels or films in a trilogy and the number of interconnected works of art in a triptych.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
