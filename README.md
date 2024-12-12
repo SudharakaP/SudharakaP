@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+40 is the Eddington–Dirac number.
+60 is the highest obtainable level on World of Warcraft (not including expansions).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
