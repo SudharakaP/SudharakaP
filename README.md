@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-21 is the number of points required to win a game in badminton and table tennis (before 2001).
+75 is the age in years that the Saguaro Cactus, found in southwestern US, must be to grow branches.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
