@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
+40 is the number of attempts needed before the creation of the "water displacing" substance in the spray WD-40.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
