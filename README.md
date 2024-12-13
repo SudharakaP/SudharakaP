@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
