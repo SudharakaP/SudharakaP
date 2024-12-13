@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-239 is the atomic mass number of the most common isotope of plutonium.
+11 is the number of sides on the Canadian one-dollar coin (a hendecagon, an eleven-sided polygon).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
