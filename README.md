@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-285 is the total number of Rules of Acquisition in Star Trek.
+59 is the number corresponding to the last second in a given minute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
