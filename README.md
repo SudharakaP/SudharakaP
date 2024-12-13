@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the number of chapters in the Quran.
+162 is 162 is the total number of baseball games each team plays during a regular season in Major League Baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
