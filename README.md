@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-248 is the number of organs in the human body as traditionally depicted.
+7 is the figurative number of seas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
