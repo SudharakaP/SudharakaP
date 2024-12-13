@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-9 is the number of circles of Hell in Dante's Divine Comedy.
+525 is the number of scan lines in the NTSC television standard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
