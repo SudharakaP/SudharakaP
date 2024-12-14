@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56 is the number of men who signed the United States Declaration of Independence in 1776.
+Infinity is the number of universes in multiverse theory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
