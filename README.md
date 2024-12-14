@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
+42 is the number of spots (or pips, circular patches or pits) on a pair of standard six-sided dice.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
