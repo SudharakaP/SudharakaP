@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the minimum age at which one can work in many U.S states.
+8 is the number of principles of Yong in Chinese calligraphy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
