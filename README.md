@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-13 is the number of colonies that formed the United States.
+100 is the number of yards in an American football field (not including the end zones).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
