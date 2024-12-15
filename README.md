@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20 is the number of questions in the popular party game Twenty Questions.
+201 is the HTTP status code indicating a new resource was successfully created in response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
