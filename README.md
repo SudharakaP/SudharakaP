@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-115 is the atomic number of an element temporarily called ununpentium.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
