@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-243 is the number of isotopes or variations of elements calculated by Dr. Plichta.
+343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
