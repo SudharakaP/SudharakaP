@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
+113 is a number that is a rare lucky number, and has been written about by anthropologist Emily Anne McDonald.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
