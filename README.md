@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
+500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
