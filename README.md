@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
+167 is the branch spread in feet of Santa Barbara's Moreton Bay Fig Tree in Santa Barbara, California, which is believed to be the largest Ficus macrophylla in the United States).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
