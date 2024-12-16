@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-165 is the number of episodes that the TV show Daniel Boone ran on NBC from 1964 to 1970.
+25 is the minimum age of candidates for election to the United States House of Representatives.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
