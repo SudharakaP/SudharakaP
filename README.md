@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the record number of victories in an NBA season (1995-96 Chicago Bulls).
+600 is the maximum credit score considered poor, thus limiting available credit in the USA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
