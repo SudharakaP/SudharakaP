@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-42 is the answer to the Ultimate Question of Life, the Universe, and Everything.
+122 is the atomic number of the chemical element unbibium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
