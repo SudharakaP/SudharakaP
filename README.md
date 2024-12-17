@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is a common name for mains electricity in North America, despite the nominal voltage actually being 120V (range 110-120).
+120 is the number of days of the average life span of a single red blood cell.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
