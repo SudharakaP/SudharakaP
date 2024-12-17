@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-169 is the height in feet of The Oak Island Lighthouse on Oak Island, North Carolina.
+151 is the total number of Pokémon in the original set, counting Mewtwo and Mew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
