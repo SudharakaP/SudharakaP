@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-18 is the number of colors the labels for Crayola crayons come in.
+106 is the atomic number of seaborgium (Unilhexium Unh).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
