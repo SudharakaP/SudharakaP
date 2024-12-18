@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4 is the number of characters in a canonical four-character idiom in Chinese.
+80 is the standard TCP/IP port number used for HTTP connections.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
