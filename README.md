@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-116 is the number of years that the Hundred Years' War between France and England, from 1337 to 1453, actually lasted.
+181 is the wing area of a Boeing 757 airplane in meters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
