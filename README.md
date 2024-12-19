@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the number of days it took to form the 2007 Belgian government.
+110 is the number of stories of both towers of the former World Trade Center in New York.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
