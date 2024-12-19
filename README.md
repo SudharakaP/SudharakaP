@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the element with the highest number of protons yet discovered, Ununquadium with the highest number.
+188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
