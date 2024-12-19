@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
+179 is the number of demands laid out by chess master Bobby Fischer laid for the World Chess Federation prior to a 1975 match against Anatoly Karpov.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
