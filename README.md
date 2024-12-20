@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-255 is the largest representable integer in an unsigned byte.
+168 is the death toll of the 1995 Oklahoma City bombing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
