@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-92 is the percentage of water in watermelons.
+850 is the maximum possible Fair Isaac credit score.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
