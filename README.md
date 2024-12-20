@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8 is the number of legs that arachnids have.
+17 is the maximum number of strokes of a Chinese radical.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
