@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-27 is the total number of letters in the Spanish alphabet (5 vowels and 22 consonants).
+67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
