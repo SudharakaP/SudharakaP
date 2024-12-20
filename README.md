@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
+177 is the second highest possible score in darts that can be obtained by throwing three darts in a single visit to the oche.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
