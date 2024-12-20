@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35 is the percentage of all bingo players are under the age of 35.
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
