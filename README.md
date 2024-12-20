@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the atomic number of an element temporarily called Unenntrium.
+99 is the highest jersey number allowed in most major league sports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
