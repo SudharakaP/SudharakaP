@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-168 is the number of touchdowns that NFL quarterback Drew Brees had with the San Diego Chargers (2001–2005) and New Orleans Saints (2006 through the 2008 season).
+1000000 is the number of people buried in Père Lachaise Cemetery, the most visited cemetary in the world, opened in 1804.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
