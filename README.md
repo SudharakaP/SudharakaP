@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
+13 is the number of colonies that formed the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
