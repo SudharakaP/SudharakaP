@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-900000000 is the approximate number of trees cut down in a year to make the raw materials for US pulp mills and paper.
+47 is the total numbers of balloons that a player can collect in Rareware's Nintendo 64 game Diddy Kong Racing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
