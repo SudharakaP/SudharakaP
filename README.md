@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-69 is the atomic number of thulium, a lanthanide.
+199 is the number of points by Mario Lemieux in the 1988-1989 NHL season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
