@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the single-season home run record in baseball set by Barry Bonds in 2001.
+147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
