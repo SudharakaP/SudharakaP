@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-201 is the title of an episode of South Park.
+10 is the number of spacetime dimensions in some superstring theories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
