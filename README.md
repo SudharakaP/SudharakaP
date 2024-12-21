@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-138 is essendon's losing margin against Adelaide in round 10 of the 2006 AFL season.
+205 is the world speed record (mph) of a car on ice.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
