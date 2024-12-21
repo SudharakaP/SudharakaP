@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
+72 is the standard resolution of an Apple Macintosh screen in dots per inch.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
