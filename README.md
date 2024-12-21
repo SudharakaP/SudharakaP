@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-112 is the number of pounds in a British long hundredweight.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
