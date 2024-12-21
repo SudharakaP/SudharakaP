@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10 is the number of spacetime dimensions in some superstring theories.
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
