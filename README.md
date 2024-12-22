@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-181 is the wing area of a Boeing 757 airplane in meters.
+157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
