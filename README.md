@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
+212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
