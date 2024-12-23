@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-37 is the cost in cents of the Whopper Sandwich when Burger King first introduced it in 1957.
+22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
