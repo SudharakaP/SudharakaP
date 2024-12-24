@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1096000000 is the population of India in 2007.
+101 is the temperature in Fahrenheit of milk when it leaves the body of a cow.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
