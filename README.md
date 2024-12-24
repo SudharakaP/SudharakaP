@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+150 is the estimation of the game-tree complexity of xiangqi.
+124 is a stable isotope of tellurium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
