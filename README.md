@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-720 is the number of degrees in two circles (= 2 × 360).
+1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
