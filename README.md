@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-213 is the code for character "Õ" in codepages such as ISO-8859-1 and UTF-8.
+112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
