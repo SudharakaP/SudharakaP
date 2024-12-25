@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the traditional number of years in a jubilee period.
+110000 is the average number of hairs that people with black hair have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
