@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10 is the Number of dots in a tetractys.
+103 is the atomic number of lawrencium, an actinide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
