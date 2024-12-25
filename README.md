@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-127 is the highest signed 8 bit integer.
+95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
