@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
+613 is a significant number in Judaism, as its metaphysics, the Kabbalah, views every full entity as divisible into 613 parts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
