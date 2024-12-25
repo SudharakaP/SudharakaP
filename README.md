@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the record number of goals scored by France at the 1998 World Cup.
+1631 is two London bible printers accidentally left "not" out of the 7th commandment, which then read "Thou shalt commit adultery.".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
