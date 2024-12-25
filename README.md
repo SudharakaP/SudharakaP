@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the distance a single playing card was thrown in feet by Kevin St. Onge to set a Guinness World Record.
+538 is the total number of votes in the Electoral College of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
