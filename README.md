@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
+168 is the number of triples that Shoeless Joe Jackson hit in his MLB career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
