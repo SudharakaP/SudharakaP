@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is the minimum odd number of voting components for simple easy redundancy checks by direct comparison.
+562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
