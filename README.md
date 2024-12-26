@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is a number that in an astrological aspect is considered to be negative in influence.
+55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
