@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6000000000000000000 is the number of transistor produced worldwide in 2008.
+6 is the number of strings on a standard guitar.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
