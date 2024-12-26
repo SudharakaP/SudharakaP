@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
