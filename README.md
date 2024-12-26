@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-77 is the atomic number of iridium.
+26 is the number of miles in a marathon rounded down (26 miles and 385 yards).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
