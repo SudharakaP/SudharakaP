@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+36 is the number of vehicles that run in each race of NASCAR's Camping World Truck Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
