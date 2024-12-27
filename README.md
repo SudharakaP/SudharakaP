@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-36 is the perfect score on the ACT.
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
