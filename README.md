@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-140 is liters of water needed to produce 1 cup of coffee.
+242 is the area code of The Bahamas located in the North West Atlantic Ocean.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
