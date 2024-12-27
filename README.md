@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the fire emergency telephone number in Austria.
+173 is the Exit status indicated by Mac App Store software when receipt validation fails.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
