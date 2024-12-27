@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-23 is the number of crosses on Calvary in the Monty Python film Life Of Brian.
+73 is the single-season home run record in baseball set by Barry Bonds in 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
