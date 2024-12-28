@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-144 is a gross (a dozen dozen).
+24 is the number of hours in a day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
