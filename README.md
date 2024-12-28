@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-66 is the number of years of the longest hiccups on record by an American pig farmer from 1922 to 1987.
+26 is the number of red cards as well as the number of blue cards in a normal deck of cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
