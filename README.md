@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
+171 is the top speed in miles per hours of the the Porsche Cayenne Turbo S automobile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
