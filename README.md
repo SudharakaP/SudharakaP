@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-89 is the atomic number of actinium.
+126 is the atomic number of unbihexium, an element that has not yet been discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
