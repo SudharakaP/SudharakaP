@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150 is the number of degrees in the quincunx astrological aspect explored by Johannes Kepler.
+138 is the rank of Mongolia in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
