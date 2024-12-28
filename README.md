@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
