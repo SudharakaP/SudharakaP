@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-242 is the number of a notable UN Security Council resolution pertaining to the Arab/Israeli conflict.
+390 is the speed in feet per second that nerve impulses for muscle position travel at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
