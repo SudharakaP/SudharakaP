@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5 is the most common number of gears for automobiles with manual transmission.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
