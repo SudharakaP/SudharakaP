@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
