@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-41 is the number of members in the U.S. Senate needed to defeat a cloture vote and sustain a filibuster indefinitely.
+31 is the number of days in the months January, March, May, July, August, October and December.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
