@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5000 is the number of base pairs in the DNA of the simplest viruses.
+196 is the population density in square kilometers of Italy, the fifth-highest population density in Europe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
