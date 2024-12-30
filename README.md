@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-261 is number of possible unfolded tesseract patterns.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
