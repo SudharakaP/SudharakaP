@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the number of episodes with Moose, a dog, playing Eddie Crane on Frasier.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
