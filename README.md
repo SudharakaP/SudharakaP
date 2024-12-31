@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-106000000000 is the number of homo sapiens that have lived since speciation.
+3400000000 is the number of total number of speakers of Indo-European languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
