@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-116 is the record for number of wins in a single season of Major League Baseball achieved by the Chicago Cubs in 1906 and the Seattle Mariners in 2001.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
