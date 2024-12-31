@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-205 is the world speed record (mph) of a car on ice.
+1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
