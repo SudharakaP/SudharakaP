@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-29 is the highest possible score in a hand of Cribbage or Khanhoo.
+106000000000 is the number of homo sapiens that have lived since speciation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
