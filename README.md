@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the atomic number of an element temporarily called Unennbium.
+587 is the outgoing port for email message submission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
