@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000000 is the approximate number of coconuts produced worldwide each year.
+60 is a common speed limit (mph) for freeways in many US states.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
