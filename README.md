@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
