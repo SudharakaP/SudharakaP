@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-90 is the number of minutes in a football (soccer) match.
+146 is the Guinness World Record for the most languages a poem was recited in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
