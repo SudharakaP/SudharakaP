@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
+217 is the room in Stephen King's novel "The Shining", that plays a central part in the story as it is haunted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
