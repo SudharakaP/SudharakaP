@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14500 is the number of unique English words occur in the King James Version of the Bible.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
