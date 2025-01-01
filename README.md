@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
+1e+63 is the estimate by Archimedes in The Sand Reckoner of the total number of grains of sand that could fit into the entire cosmos.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
