@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
