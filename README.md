@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the number of players in an American football team on the field at one time during play.
+43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
