@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5000 is the number of base pairs in the DNA of the simplest viruses.
+10 is the highest score possible in Olympics gymnastics competitions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
