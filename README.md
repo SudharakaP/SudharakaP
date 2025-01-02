@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-199 is travis Pastrana's number for dirtbiking and rally car racing.
+185 is the rank Grenada in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
