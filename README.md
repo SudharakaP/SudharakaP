@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-47 is the total numbers of balloons that a player can collect in Rareware's Nintendo 64 game Diddy Kong Racing.
+29 is the number of Knuts in one Sickle in the fictional currency in the Harry Potter novels.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
