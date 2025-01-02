@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-146 is the Guinness World Record for the most languages a poem was recited in.
+5 is the most common number of gears for automobiles with manual transmission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
