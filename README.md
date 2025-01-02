@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-18 is the number of levels in hell in the Chinese mythos.
+50 is the number of states in the United States of America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
