@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-749 is the pounds of paper products used by an American individual annually on average.
+157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
