@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-169 is the number of nonequivalent starting hands in the Texas hold "em.
+25 is the number of points needed to win a set in volleyball under rally scoring rules.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
