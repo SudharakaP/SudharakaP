@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the atomic number of the chemical element unbibium.
+106000000000 is the number of homo sapiens that have lived since speciation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
