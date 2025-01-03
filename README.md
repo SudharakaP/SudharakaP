@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-134 is the rank of Mauritania in terms of world population.
+122 is the atomic number of the chemical element unbibium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
