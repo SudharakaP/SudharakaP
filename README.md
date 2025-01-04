@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-162 is 162 is the total number of baseball games each team plays during a regular season in Major League Baseball.
+5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
