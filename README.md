@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-230 is the country code for Mauritius.
+470 is the minimum length in yards from the tee to the hole on a Par 5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
