@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the number of completed, numbered piano sonatas by Ludwig van Beethoven.
+112 is the number of pounds in a British long hundredweight.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
