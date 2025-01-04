@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-242 is the number of a notable UN Security Council resolution pertaining to the Arab/Israeli conflict.
+227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
