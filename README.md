@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-84 is the atomic number of polonium.
+32 is the number of completed, numbered piano sonatas by Ludwig van Beethoven.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
