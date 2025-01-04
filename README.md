@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-81 is the number of squares on a shogi playing board.
+55 is the percentage of movies released that are Rated R.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
