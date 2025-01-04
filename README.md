@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25 is the minimum age of candidates for election to the United States House of Representatives.
+20000000 is the weight in tons of the average iceberg.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
