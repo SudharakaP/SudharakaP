@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-217 is the room in Stephen King's novel "The Shining", that plays a central part in the story as it is haunted.
+70 is the distance (meter) from archer to targets in Olympic Archery.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
