@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the minimum age at which one can work in many U.S states.
+550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
