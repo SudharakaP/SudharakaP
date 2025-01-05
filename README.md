@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is the number of the Vault that is the starting area of Fallout 3.
+6000000000000000000 is the number of transistor produced worldwide in 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
