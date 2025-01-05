@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the speed in miles per hour that cheetahs, the fastest land animal, can reach.
+360 is the number of degrees in a circle for the purpose of angular measurement.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
