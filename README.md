@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is the number of films American film actor John Wayne starred in.
+52 is the approximate number of weeks in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
