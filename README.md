@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-99 is the highest jersey number allowed in most major league sports.
+77 is the atomic number of iridium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
