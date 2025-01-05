@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-136 is the section of the Mental Health Act 1983 (UK law) details removing a mentally ill person from a public place to a place of safety.
+33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
