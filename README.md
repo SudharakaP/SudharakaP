@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-146 is the Guinness World Record for the most languages a poem was recited in.
+24 is the number of frames per second at which motion picture film is usually projected.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
