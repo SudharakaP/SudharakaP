@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1300 is the number of babies born prematurely in the USA every day.
+12 is the number of ounces in a troy pound (used for precious metals).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
