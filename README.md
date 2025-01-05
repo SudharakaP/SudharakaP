@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-52 is the number of cards in a standard deck of playing cards, not counting Jokers or advertisement cards.
+180 is the number of films American film actor John Wayne starred in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
