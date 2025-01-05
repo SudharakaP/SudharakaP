@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4 is the number of characters in a canonical four-character idiom in Chinese.
+40 is the number of thieves in Ali Baba and the Forty Thieves and in Ali Shar and Zumurrud, from Thousand and One Nights.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
