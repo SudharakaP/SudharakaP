@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-166 is the feet above sea level at Turriff in Aberdeenshire, Scotland.
+14 is the number of pounds in a stone in traditional British units of weight.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
