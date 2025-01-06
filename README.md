@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
+16777216 is the number of different colors that can be generated using the hex code system in HTML.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
