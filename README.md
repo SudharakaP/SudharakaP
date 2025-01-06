@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-155 is the number of episodes the TV series Sea Hunt ran in syndication from 1958 to 1961.
+493 is the number of bronze knuts equivalent to one gold galleon, in the monetary system of the world of Harry Potter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
