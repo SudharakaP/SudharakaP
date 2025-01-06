@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is the number of witches in William Shakespeare's Macbeth.
+51 is the atomic number of antimony.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
