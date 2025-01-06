@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-242 is the area code of The Bahamas located in the North West Atlantic Ocean.
+168 is the nubmer of performances that A Day in Hollywood / A Night in the Ukraine ran for.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
