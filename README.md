@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-168 is the nubmer of performances that A Day in Hollywood / A Night in the Ukraine ran for.
+73 is the percentage of girls in Bangladesh that are married by age 18.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
