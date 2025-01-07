@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-53 is the total number of national football associations of UEFA.
+243 is the number of Earth Days for the planet Venus to complete one Venetian day, one revolution.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
