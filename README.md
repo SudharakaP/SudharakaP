@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the number of Delegates who attended the United States Constitutional Convention in 1787.
+196 is the number of athletes that Canada had in 15 sports at the 2006 Winter Olympics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
