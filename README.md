@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-45 is the sapphire wedding anniversary in years of marriage.
+36 is the perfect score on the ACT.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
