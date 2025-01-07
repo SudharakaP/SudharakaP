@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-198 is the population of Wormshill, Kent, England.
+49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
