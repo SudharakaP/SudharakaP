@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the number of athletes that Canada had in 15 sports at the 2006 Winter Olympics.
+255 is the largest values that can be assigned to elements in the 24-bit RGB color model, since each color channel is allotted eight bits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
