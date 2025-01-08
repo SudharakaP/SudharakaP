@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-27 is the total number of letters in the Spanish alphabet (5 vowels and 22 consonants).
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
