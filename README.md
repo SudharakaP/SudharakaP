@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1 is the loneliest number.
+82 is the atomic number of lead.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
