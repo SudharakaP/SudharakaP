@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-82 is the atomic number of lead.
+1311000000 is the population of the People's Republic of China in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
