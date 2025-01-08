@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-82 is the number of games in an NBA or NHL regular season.
+536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
