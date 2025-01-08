@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-198 is the population of Perlethorpe, Nottinghamshire England.
+82 is the number of games in an NBA or NHL regular season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
