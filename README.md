@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-111 is the atomic number of the element roentgenium (Rg).
+122 is the age of Jeanne Calment when she died.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
