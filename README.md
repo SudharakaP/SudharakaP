@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is the Exit status indicated by Mac App Store software when receipt validation fails.
+151 is the total number of Pokémon in the original set, counting Mewtwo and Mew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
