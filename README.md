@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is the maximum number of strokes in any Chinese character.
+336 is the number of dimples on an American golf ball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
