@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-911 is the number of days after September 11th that the Madrid Attack took place.
+59 is the number corresponding to the last minute in a given hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
