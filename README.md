@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-26 is the number of episodes in a television program each year (usually).
+1 is the loneliest number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
