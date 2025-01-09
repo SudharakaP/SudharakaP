@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-600 is the advertised number of miles that NASCAR runs in the Coca-Cola 600, the longest race on any of the NASCAR circuits.
+693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
