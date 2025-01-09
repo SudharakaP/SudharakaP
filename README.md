@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-184 is the distance in light years to Eta Aquarii,a star in the constellation Aquarius.
+440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
