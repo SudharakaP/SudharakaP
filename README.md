@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
