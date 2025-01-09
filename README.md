@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-111 is the atomic number of the element roentgenium (Rg).
+53 is the number of bytes in an Asynchronous Transfer Mode packet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
