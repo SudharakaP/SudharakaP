@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
+20 is the number of ounces in Venti size coffees at Starbucks coffee shops.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
