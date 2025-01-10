@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-525998433 is the number of distinct websites as of November 2011.
+100 is the approximate number of eyes a scallop has around the edge of its shell.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
