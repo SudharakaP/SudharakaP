@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-74 is the number of stars obtained by SpongeBob SquarePants in his driving school.
+217 is the area code for central Illinois.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
