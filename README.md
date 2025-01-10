@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100 is the approximate number of eyes a scallop has around the edge of its shell.
+7 is the number of days in a week.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
