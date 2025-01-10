@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-216 is the number of stitches on a baseball.
+26 is the number of Cantons of Switzerland.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
