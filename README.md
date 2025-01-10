@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-276 is the highest number of rounds in boxing history, in a bare-knuckle fight in 1825 that saw Jack Jones beat Patsy Tunney after 4hr 30min.
+192 is the number of days it took to form the 2007 Belgian government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
