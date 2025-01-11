@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is a common name for mains electricity in North America, despite the nominal voltage actually being 120V (range 110-120).
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
