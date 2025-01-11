@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-146 is the Guinness World Record for the most languages a poem was recited in.
+273 is the death toll of the air crash of American Airlines Flight 191.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
