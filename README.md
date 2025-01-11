@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is the age a person must attain in order to be considered a supercentenarian.
+850 is the maximum possible Fair Isaac credit score.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
