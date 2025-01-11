@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the number of days in a fortnight.
+110 is a card game related to Forty-five (card game).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
