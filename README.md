@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the population density in square kilometers of Italy, the fifth-highest population density in Europe.
+213 is the radical meaning "turtle", one of only two of the 214 Kangxi radicals that are composed of 16 strokes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
