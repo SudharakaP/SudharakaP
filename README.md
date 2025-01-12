@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-212 is the boiling point of water at sea level in Fahrenheit degrees.
+998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
