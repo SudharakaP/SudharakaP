@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the number of episodes with Moose, a dog, playing Eddie Crane on Frasier.
+81 is the number of stanzas or chapters in the Tao te Ching (in the most common arrangements).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
