@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-117 is the serial number of protagonist John from the Halo Series.
+172000 is tons of chocolate produced in Belgium in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
