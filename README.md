@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-137 is the average brain mass of a baboon in grams.
+714 is the number of home runs Babe Ruth scored in his career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
