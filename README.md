@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-239 is the atomic mass number of the most common isotope of plutonium.
+195 is the number of episodes of The Ed Allen Show, which began in 1948.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
