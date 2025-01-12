@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
+133 is the number of career touchdowns from 1983 - 1996 of Canadian Football League quarterback Danny Barrett.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
