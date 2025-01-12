@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-91 is the code for international direct dial phone calls to India.
+126 is the number of years that Gilgamesh reigned according to the Sumerian king list.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
