@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
+5500000000000000 is the number of estimated ants on Earth alive at any one time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
