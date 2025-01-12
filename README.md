@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the atomic number of the undiscovered chemical element Unbiunium.
+198 is the number of films that actor Neal Burns appeared in between 1915 and 1946.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
