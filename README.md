@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
+44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
