@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-115 is the atomic number of an element temporarily called ununpentium.
+29 is the number of days it takes Saturn to orbit the Sun.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
