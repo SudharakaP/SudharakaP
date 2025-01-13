@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-111 is the lowest positive integer requiring six syllables to name in American English, or seven syllables (including "and") in Canadian and British English.
+186 is days between the spring and fall equinoxes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
