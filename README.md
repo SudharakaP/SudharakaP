@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
+139 is the number of law enforcement officers killed in the line of duty in 1998.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
