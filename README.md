@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35 is the minimum age of candidates for election to the United States Presidency.
+59 is the number corresponding to the last second in a given minute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
