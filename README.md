@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is the number of Death in the In the Final Destination series.
+35 is the minimum age of candidates for election to the United States Presidency.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
