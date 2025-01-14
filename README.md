@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
+35 is the minimum age of candidates for election to the United States Presidency.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
