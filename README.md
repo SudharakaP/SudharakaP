@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-194 is the number of episodes of Will & Grace that ran on NBC from 1998 to 2006.
+227 is the highest score ever in the Eurovision Song Contest, achieved by Katrina and the Waves of the UK in 1997, before the Semi-final system was introduced in 2004.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
