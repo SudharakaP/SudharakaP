@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-214 is the first area code of metropolitan Dallas, Texas.
+110 is a percentage in the expression "To give 110%", meaning to give a little more effort than one's maximum effort.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
