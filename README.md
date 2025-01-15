@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4.52e+46 is the upper bound for the number of legal chess positions.
+217 is the room in Stephen King's novel "The Shining", that plays a central part in the story as it is haunted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
