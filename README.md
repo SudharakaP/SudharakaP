@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
+158 is days it took for the Surprize ship that set sail from England on January 19, 1790, to make port in Port Jackson, Sydney, Australia on June 26, 158 days later.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
