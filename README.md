@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-71 is the number of different characters that can be used with a standard English Keyboard, excluding uppercase letters.
+56 is the number of men who signed the United States Declaration of Independence in 1776.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
