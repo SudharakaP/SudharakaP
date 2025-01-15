@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
+73 is the single-season home run record in baseball set by Barry Bonds in 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
