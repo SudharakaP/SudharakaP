@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
+235 is the atomic mass number of an important isotope of the element uranium, the fissile isotope which is used as the fuel for nuclear reactors and in some nuclear weapons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
