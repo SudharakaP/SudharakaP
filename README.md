@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-198 is the atomic number of an element temporarily called Unennoctium.
+208 is the heaviest stable isotope of any element (lead).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
