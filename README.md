@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4.52e+46 is the upper bound for the number of legal chess positions.
+168 is the number of hours in a week, or 7 x 24 hours.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
