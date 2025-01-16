@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-19 is the final year a person is a teenager.
+5 is the number of basic tastes (sweet, salty, sour, bitter, and umami).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
