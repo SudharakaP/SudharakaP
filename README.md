@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-131 is the medical emergency telephone number in Chile.
+4200 is the number of standard size of a legion in the Roman Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
