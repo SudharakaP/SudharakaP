@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-712 is the largest known number such that it and its 8th power have no common digits.
+100000 is the number of thunderstorms that occur in the USA every year, of which 10% are classified as severe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
