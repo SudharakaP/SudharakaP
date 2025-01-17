@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is the number of Braille characters in the old 6-dot system.
+470 is the minimum length in yards from the tee to the hole on a Par 5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
