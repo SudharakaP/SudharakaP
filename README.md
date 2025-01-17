@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1337 is the number that spells "leet" in leetspeak.
+243 is the Calling code for Zaire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
