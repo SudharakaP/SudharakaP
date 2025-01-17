@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-198 is the population of Wormshill, Kent, England.
+27 is the number of bones in the human foot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
