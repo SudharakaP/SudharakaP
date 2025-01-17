@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the freezing point of water at sea level in degrees Fahrenheit.
+693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
