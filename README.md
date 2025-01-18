@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8 is the number of principles of Yong in Chinese calligraphy.
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
