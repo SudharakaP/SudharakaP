@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-36 is the number of vehicles that run in each race of NASCAR's Camping World Truck Series.
+181 is the number of passengers aboard TAM Airlines Flight 3054 which crashed upon landing in SÃ£o Paulo on July 17, 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
