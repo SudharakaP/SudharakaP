@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the total number of years in a Sexagenary cycle.
+188 is the rank of Tonga in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
