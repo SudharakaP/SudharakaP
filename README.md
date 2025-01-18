@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-66 is the total number of books in the Protestant edition of the Bible (Old Testament and New Testament) combined.
+3400000000 is the number of total number of speakers of Indo-European languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
