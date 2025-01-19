@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-242 is the area code of The Bahamas located in the North West Atlantic Ocean.
+0 is the atomic number of the theoretical element tetraneutron.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
