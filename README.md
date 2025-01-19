@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-463 is the number of days in the synodic period of Ceres.
+83 is the highest UHF channel on older televisions made before the late 1970s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
