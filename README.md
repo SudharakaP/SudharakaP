@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000000000000000000 is the estimated insect population.
+538 is the total number of votes in the Electoral College of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
