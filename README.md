@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
+30 is the height in feet that stalks of sugar cane can reach up to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
