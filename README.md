@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000 is the number of other neurons each neuron is connected to in the human brain.
+92 is the number of letters in the longest place name: Taumatawhakatangihangakoauauotamateaurehaeaturipukakapikimaungahoronukupokaiwhenuakitanatahu.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
