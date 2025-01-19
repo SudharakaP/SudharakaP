@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
+14 is the number of pieces the body of Osiris was torn into by his fratricidal brother Set.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
