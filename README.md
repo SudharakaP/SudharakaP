@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-103 is the atomic number of lawrencium, an actinide.
+451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
