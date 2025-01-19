@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
+175 is the weight in grams of a flying disc used in Ultimate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
