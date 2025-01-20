@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-256 is the number of NFL regular season football games.
+7 is the number of colors of the rainbow.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
