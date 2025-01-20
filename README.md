@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-493 is the number of Pokémon species, from the first set through the fourth generation as of August 2009.
+200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
