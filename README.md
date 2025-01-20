@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-137 is the average brain mass of a baboon in grams.
+177 is the rank of the United States in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
