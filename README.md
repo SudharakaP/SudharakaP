@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
+352 is the number of international appearances by Kristine Lilly for the USA women's national soccer team, an all-time record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
