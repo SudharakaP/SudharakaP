@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-212 is the boiling point of water at sea level in Fahrenheit degrees.
+493 is the number of Pokémon species, from the first set through the fourth generation as of August 2009.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
