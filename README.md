@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-62 is the number which Sigmund Freud has an irrational fear of.
+174 is the populatiokn of Aupaluk, Quebec (as of 2006).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
