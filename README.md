@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
+180 is a trick used in extreme sports where a rider rotates half a turn while airborne and lands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
