@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
+175 is the number of touchdowns by Former NFL running back Emmitt Smith, ranking him second to Jerry Rice's 207.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
