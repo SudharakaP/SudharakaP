@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
+199 is the record of strikeouts in the 2007 MLB season, held by Ryan Howard of the Philadelphia Phillies.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
