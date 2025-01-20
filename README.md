@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the standard resolution of an Apple Macintosh screen in dots per inch.
+96 is the rating of Skyrim on metacritic.com.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
