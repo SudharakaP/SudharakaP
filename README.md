@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-200 is the minimum number of varieties of watermelons grown in the U.S.
+117 is the substitute for the number 17, which is considered unlucky in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
