@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is the atomic number of an element temporarily called ununtrium.
+167 is the atomic number of an element temporarily called Unhexseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
