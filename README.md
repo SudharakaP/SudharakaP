@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000000 is the approximate number of coconuts produced worldwide each year.
+14 is the number of points in a proposed republican constitution of the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
