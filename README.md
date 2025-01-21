@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
+0 is the atomic number of the theoretical element tetraneutron.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
