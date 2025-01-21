@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-176 is the number of verses in the longest chapter in the Bible, Psalm 119.
+5e+30 is the number of bacterial cells on Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
