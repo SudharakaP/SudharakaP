@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
+384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
