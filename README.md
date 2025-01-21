@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-184 is a weight class in collegiate wrestling, 184 lb (83 kg).
+112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
