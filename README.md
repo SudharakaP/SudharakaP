@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the minimum age at which one can work in many U.S states.
+2055001 is the number of people employed by Wal-mart in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
