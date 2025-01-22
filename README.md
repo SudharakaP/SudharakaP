@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+156 is the number of hourly gongs a clock strikes in one day (78 AM gongs and 78 PM gongs).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
