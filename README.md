@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-117 is the height in metres of the tallest tree recorded, located in Humboldt Redwoods State Park, California.
+470 is the minimum length in yards from the tee to the hole on a Par 5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
