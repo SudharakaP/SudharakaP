@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-71 is the number of different characters that can be used with a standard English Keyboard, excluding uppercase letters.
+38 is the number of games that each team in the current English Premiership, the top division in English Association Football, plays in a season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
