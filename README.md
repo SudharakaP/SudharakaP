@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the total number of major and minor keys in Western tonal music, including enharmonic equivalents.
+216 is the number of stitches on a baseball, according to the Ken Burns series "Baseball".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
