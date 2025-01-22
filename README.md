@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-178 is the atomic number of an element temporarily called Unseptoctium.
+30 is the number of variations in Bach's Goldberg Variations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
