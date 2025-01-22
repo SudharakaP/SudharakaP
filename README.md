@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-38 is the number of games that each team in the current English Premiership, the top division in English Association Football, plays in a season.
+185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
