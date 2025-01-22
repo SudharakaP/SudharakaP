@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-216 is the number of stitches on a baseball, according to the Ken Burns series "Baseball".
+5000 is the number of base pairs in the DNA of the simplest viruses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
