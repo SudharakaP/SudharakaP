@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-850 is the maximum possible Fair Isaac credit score.
+173 is the rank of Maldives in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
