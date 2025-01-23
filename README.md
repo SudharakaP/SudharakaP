@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-255 is the largest values that can be assigned to elements in the 24-bit RGB color model, since each color channel is allotted eight bits.
+111 is the lowest positive integer requiring six syllables to name in American English, or seven syllables (including "and") in Canadian and British English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
