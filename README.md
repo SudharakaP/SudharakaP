@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-212 is the boiling point of water at sea level in Fahrenheit degrees.
+6 is the number of points received for a touchdown in American and Canadian football.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
