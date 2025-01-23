@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15 is the number of minutes carbon monoxide can kill a person in.
+1300 is the number of babies born prematurely in the USA every day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
