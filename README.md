@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-160 is the number of characters permitted in a standard short message service in Australia and Europe.
+22 is the number of players on the field in a football (soccer) match.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
