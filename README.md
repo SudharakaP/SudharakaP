@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+138 is keith Deller's score in the 1983 BDO World Darts Championship trophy against Eric Bristow, amongst the most memorable in darting history.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
