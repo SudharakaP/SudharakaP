@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-43687 is the number of toilet related accidents in the United States in 1996.
+23 is the number of minutes that all flashbacks take place before the assassination attempt on the president in the film Vantage Point.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
