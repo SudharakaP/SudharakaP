@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
+712 is the largest known number such that it and its 8th power have no common digits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
