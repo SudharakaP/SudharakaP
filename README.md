@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
