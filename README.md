@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-188 is the rank of Tonga in world population.
+42 is the answer to the Ultimate Question of Life, the Universe, and Everything.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
