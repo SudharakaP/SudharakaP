@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-267 is the number of groups of order 64.
+199 is the number of goals scored by Randy Burridge in his NHL career between 1985-1998.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
