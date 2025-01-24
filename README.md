@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-267 is the number of groups of order 64.
+49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
