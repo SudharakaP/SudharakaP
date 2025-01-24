@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-151 is the total number of Pokémon in the original set, counting Mewtwo and Mew.
+149000000 is the number of kilometres from the Earth the sun is.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
