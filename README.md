@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-165 is the number of episodes that the TV show Daniel Boone ran on NBC from 1964 to 1970.
+250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
