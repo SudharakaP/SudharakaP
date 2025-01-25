@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35000 is the number of genes in a human being.
+69 is the atomic number of thulium, a lanthanide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
