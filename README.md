@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15 is the length in miles of a train of boxcars that can be filled from recycled paper in the USA every day.
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
