@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-119 is a number to report children / youth at risk in France.
+176 is the rank of Madagascar 176 world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
