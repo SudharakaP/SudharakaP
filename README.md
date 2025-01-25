@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
+15 is the length in miles of a train of boxcars that can be filled from recycled paper in the USA every day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
