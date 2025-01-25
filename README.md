@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the telephone number "to report a car breakdown on the highway in Austria.
+161 is the number of episodes the TV series The Avengers ran from 1961 to 1969.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
