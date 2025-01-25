@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
+613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
