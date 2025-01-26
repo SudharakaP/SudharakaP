@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3500000000000 is the estimated population of fish in the ocean.
+184 is a number believed to be a magic number in nuclear physics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
