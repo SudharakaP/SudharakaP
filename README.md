@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-149000000 is the number of kilometres from the Earth the sun is.
+6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
