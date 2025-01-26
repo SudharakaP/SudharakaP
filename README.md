@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+150 is the estimation of the game-tree complexity of xiangqi.
+100 is the approximate number of eyes a scallop has around the edge of its shell.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
