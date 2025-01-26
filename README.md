@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-152 is the number of diapers solder in a Pampers Swaddlers pack.
+251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
