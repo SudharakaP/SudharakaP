@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-198 is the number of episodes that Woody Harrelson appeared as Woody Boyd in Cheers (of 273 episodes) between 1985-1993.
+4200 is the number of standard size of a legion in the Roman Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
