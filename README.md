@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-156 is the number of strikes a clock will strike in the course of a day.
+165 is miles of shoreline of Lake Berryessa in Napa County, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
