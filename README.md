@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61 is the code for international direct dial phone calls to Australia.
+174 is the populatiokn of Aupaluk, Quebec (as of 2006).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
