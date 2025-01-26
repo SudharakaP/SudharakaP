@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is the number of demons in the Dictionnaire Infernal.
+100 is the number of blessings a religious Jewish person is expected to utter daily.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
