@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
+251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
