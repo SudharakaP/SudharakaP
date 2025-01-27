@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
+12 is the number of pence in a shilling in the former British currency system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
