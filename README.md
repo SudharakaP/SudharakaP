@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-144 is a gross (a dozen dozen).
+51 is the atomic number of antimony.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
