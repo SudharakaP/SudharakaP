@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7 is the figurative number of seas.
+194 is the number of episodes of Will & Grace that ran on NBC from 1998 to 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
