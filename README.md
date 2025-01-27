@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-51 is the atomic number of antimony.
+55 is the standard size of drum in US gallons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
