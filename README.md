@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the pairs of ribs normally in the human body.
+100000000000 is the number of neurons in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
