@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100000000000 is the number of neurons in the human brain.
+3825000 is the number of entries on Wikipedia in the English language.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
