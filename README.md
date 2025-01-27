@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-200 is degrees in a human"s field of vision (approximately).
+25000000 is the number of different inhabited planets in the the Galactic Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
