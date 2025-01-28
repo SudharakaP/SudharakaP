@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-18 is the number of bronze monks the Shaolin temple had in Chinese folklore.
+3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
