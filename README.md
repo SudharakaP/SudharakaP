@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3000 is the number of years for which Carpenter ants have been used to close wounds in parts of India, Asia and South America.
+227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
