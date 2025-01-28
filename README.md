@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
+3000 is the number of years for which Carpenter ants have been used to close wounds in parts of India, Asia and South America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
