@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-95 is the atomic number of americium.
+712 is the largest known number such that it and its 8th power have no common digits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
