@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the record number of goals scored by France at the 1998 World Cup.
+614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
