@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-649 is the number of Pokémon as of Pokémon Black and White versions.
+62 is the atomic number of samarium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
