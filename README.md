@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-496 is what the dimension of the gauge group must be for a superstring theory to make sense.
+137 is the California Penal Code for "Offer bribe to influence testimony".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
