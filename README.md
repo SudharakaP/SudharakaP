@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the focal length in millimeters of the normal lens in 35 mm photography.
+82 is the atomic number of lead.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
