@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-19 is the number of years in 235 lunations.
+76 is the atomic number of osmium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
