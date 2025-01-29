@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4e+185 is the number of planck volumes in the observable universe.
+5200 is the number of standard size of a legion in the Roman Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
