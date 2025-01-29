@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-213 is one of the first three area codes created in California.
+83 is the highest UHF channel on older televisions made before the late 1970s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
