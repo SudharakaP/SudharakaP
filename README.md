@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172000 is tons of chocolate produced in Belgium in a year.
+365 is the number of solar days in the mean tropical year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
