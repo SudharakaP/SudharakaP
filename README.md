@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-169 is the first number of an automatic IPv4 address assigned by TCP/IP when no external networking device is contactable.
+149 is the number of legal proceedings against 149 communists in Estonia in 1924.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
