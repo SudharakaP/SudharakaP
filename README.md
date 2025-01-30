@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-19 is the final year a person is a teenager.
+50000000 is the approximate number of people who fish per year in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
