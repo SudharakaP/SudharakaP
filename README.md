@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
+5500000 is the number of jews killed in the Holocaust.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
