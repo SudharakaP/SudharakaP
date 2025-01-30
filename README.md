@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-75 is the age in years that the Saguaro Cactus, found in southwestern US, must be to grow branches.
+242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
