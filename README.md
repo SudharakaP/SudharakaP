@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4294967296 is the number of bytes in 4 gibibytes.
+79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
