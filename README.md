@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-119 is a number to report children / youth at risk in France.
+230 is the common voltage in the European Union.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
