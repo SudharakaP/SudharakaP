@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-131 is the number serving a monkiker for Indie music.
+195 is the number of episodes of Chickenman series which began in 1966.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
