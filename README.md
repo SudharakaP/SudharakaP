@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-463 is the number of days in the synodic period of Ceres.
+30 is the minimum age for United States senators.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
