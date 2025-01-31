@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100000000000 is the number of neurons in the human brain.
+75 is the age limit for Canadian senators.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
