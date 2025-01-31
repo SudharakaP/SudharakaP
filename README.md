@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the minimum age for United States senators.
+202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
