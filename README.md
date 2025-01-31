@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-400000 is the number of morphine addicts the Civil War produced.
+175 is the weight in grams of a flying disc used in Ultimate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
