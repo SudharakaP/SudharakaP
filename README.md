@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-197 is the number of episodes of the Cosby Show that ran on NBC from 1984-1992.
+140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
