@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-188 is the rank of Tonga in world population.
+76 is the atomic number of osmium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
