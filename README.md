@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is the gent's clout shooting distance in archery measured in yards.
+1300 is the number of babies born prematurely in the USA every day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
