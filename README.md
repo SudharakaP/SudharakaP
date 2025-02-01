@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
+136 is the number of episodes the TV series Fame ran on NBC and syndication from 1982 to 1987.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
