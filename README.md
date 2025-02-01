@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-538 is the total number of votes in the Electoral College of the United States.
+35 is the percentage of all bingo players are under the age of 35.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
