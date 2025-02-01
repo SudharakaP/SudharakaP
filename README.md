@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is a file medium format developed by Kodak.
+5200 is the number of standard size of a legion in the Roman Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
