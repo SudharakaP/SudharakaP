@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-117 is the serial number of protagonist John from the Halo Series.
+19 is the number of years in 235 lunations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
