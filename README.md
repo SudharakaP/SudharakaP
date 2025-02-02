@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-107 is the atomic number of bohrium.
+177 is the rank of Netherlands Antilles in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
