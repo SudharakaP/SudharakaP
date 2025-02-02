@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3500000000000 is the estimated population of fish in the ocean.
+8e+60 is the number of Planck time intervals since the Big Bang.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
