@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the TV series Third Watch ran on NBC from 1999 to 2005 with 132 episodes.
+365 is the number of solar days in the mean tropical year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
