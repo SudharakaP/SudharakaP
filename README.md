@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
+1631 is two London bible printers accidentally left "not" out of the 7th commandment, which then read "Thou shalt commit adultery.".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
