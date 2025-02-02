@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-189 is the number of irregular verbs in the English language (from "abide" to "write").
+142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
