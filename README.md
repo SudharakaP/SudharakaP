@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
