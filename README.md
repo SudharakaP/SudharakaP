@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-117 is the atomic number of a recently discovered element temporarily called ununseptium.
+78 is the number of lines that make up Metatron's Cube.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
