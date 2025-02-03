@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-280000000000000 is the number of possible unique physical addresses.
+42 is the number of kilometers in a marathon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
