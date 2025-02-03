@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8674 is the number of unique words in the Hebrew Bible.
+72 is the percentage of water of which the human body is composed.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
