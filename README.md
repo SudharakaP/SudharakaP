@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the electricity emergency telephone number in Egypt.
+175 is years Harriet (1830–2006) the Galápagos tortoise lived.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
