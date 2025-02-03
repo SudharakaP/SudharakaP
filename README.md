@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the number of grams in an ounce (approximately), and used as such in the illegal drug trade.
+28 is the number of a car formerly run in the NASCAR Sprint Cup Series by Yates Racing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
