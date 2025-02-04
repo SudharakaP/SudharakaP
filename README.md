@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7e+22 is the number of stars within range of telescopes (as of 2003).
+83 is the highest UHF channel on older televisions made before the late 1970s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
