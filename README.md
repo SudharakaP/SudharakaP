@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the detainee number of the Mohammad Al Rahman Al Shumrani at Guantanamo Bay.
+131 is the medical emergency telephone number in Chile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
