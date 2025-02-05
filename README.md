@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
+170 is largest integer for which Google"s built-in calculator function can compute the factorial.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
