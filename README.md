@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the number of chapter in the Quran, the holy book of Islam contains 114.
+384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
