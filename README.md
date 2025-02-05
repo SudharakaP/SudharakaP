@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25 is the number of years of marriage marked in a silver wedding anniversary.
+125000 is the number of average strands of hair in the human head.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
