@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-128 is the atomic number of unbioctium, an element yet to be discovered.
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
