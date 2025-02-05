@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-181 is the number of athletes from Belarus competed in 28 events at the 2008 Olympics in Beijing.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
