@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4.52e+46 is the upper bound for the number of legal chess positions.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
