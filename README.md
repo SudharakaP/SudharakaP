@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
+1000000 is the number of people buried in Père Lachaise Cemetery, the most visited cemetary in the world, opened in 1804.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
