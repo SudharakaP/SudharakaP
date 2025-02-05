@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
+3825000 is the number of entries on Wikipedia in the English language.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
