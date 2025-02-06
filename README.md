@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4200 is the number of standard size of a legion in the Roman Republic.
+117 is the substitute for the number 17, which is considered unlucky in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
