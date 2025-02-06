@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7e+22 is the number of stars within range of telescopes (as of 2003).
+44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
