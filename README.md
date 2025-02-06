@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-69 is the number Bill and Ted were thinking of when talking to their future selves.
+97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
