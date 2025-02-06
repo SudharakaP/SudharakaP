@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
+75 is the age limit for Canadian senators.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
