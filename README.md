@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35 is the percentage of all bingo players are under the age of 35.
+189 is the number of irregular verbs in the English language (from "abide" to "write").
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
