@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5e+30 is the number of bacterial cells on Earth.
+35 is the percentage of all bingo players are under the age of 35.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
