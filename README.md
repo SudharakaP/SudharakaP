@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8 is the number of planets in the Solar System.
+50 is the speed limit, in kilometers per hour, of Australian roads with unspecified limits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
