@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is a number used to define the number of keys on a computer keyboard.
+100 is the number of pounds in an American short hundredweight.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
