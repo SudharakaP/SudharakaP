@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-74 is the atomic number of tungsten.
+4 is the number of bits in a nibble, equivalent to half a byte.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
