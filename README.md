@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100 is the number of pounds in an American short hundredweight.
+166 is the number of cartoons that Bugs Bunny starred in Warner Bros. from 1940 to 1964.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
