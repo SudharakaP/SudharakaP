@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-712 is the largest known number such that it and its 8th power have no common digits.
+7e+22 is the number of stars within range of telescopes (as of 2003).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
