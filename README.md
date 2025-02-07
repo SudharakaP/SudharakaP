@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22 is the typical (minimum) number of episodes in a season for a television program broadcast on a major American network.
+199 is the number of episodes of Coach in which actress Shelley Fabares appeared in 199 (of 200 total) episodes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
