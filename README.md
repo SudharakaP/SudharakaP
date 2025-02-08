@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-167 is the miles long of the Hetch Hetchy Aqueduct in Yosemite National Park.
+177 is the rank of the United States in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
