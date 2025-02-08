@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-167 is the atomic number of an element temporarily called Unhexseptium.
+170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
