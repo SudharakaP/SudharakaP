@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the number of completed, numbered piano sonatas by Ludwig van Beethoven.
+200 is the minimum number of varieties of watermelons grown in the U.S.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
