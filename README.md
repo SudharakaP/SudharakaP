@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-217 is the area code for central Illinois.
+193 is species of monkeys and apes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
