@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-142600 is tonnes of gold mined in the world by the end of 2000.
+240 is the common voltage in England and Australia before conversion to 230V standard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
