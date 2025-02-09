@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-183 is the id number of Issam Hamid Al Bin Ali Al Jayfi, a detainee at Guantanamo Bay.
+66 is the total number of books in the Protestant edition of the Bible (Old Testament and New Testament) combined.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
