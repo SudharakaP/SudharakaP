@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is the Exit status indicated by Mac App Store software when receipt validation fails.
+1e+83 is the number of fundamental particles in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
