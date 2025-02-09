@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
+203 is the HTTP status code indicating partial information.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
