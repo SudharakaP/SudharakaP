@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000 is the weight in tons of the average iceberg.
+113 is the port number of the IDENT Internet protocol that helps identify the user of a particular TCP connection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
