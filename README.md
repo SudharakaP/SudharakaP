@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-800000000 is the number of active users on Facebook as of December 2011.
+11 is the number of players in an American football team on the field at one time during play.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
