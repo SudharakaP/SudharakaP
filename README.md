@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-174 is the atomic number of an element temporarily called Unseptquadium.
+83 is the atomic number of bismuth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
