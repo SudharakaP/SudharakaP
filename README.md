@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8674 is the number of unique words in the Hebrew Bible.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
