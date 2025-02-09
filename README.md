@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-176 is the rank of Madagascar 176 world population density.
+22 is the number of yards in a chain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
