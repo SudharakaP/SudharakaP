@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
+10000000000 is the number of bacteria in the human oral cavity.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
