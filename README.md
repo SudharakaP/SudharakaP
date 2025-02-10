@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4294967296 is the number of bytes in 4 gibibytes.
+143 is the number of milligrams of caffeine in AMP Energy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
