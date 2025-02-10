@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is the number of pence in a pound in the British currency until 1971.
+6000000 is the number of parts in the Boeing 747-400.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
