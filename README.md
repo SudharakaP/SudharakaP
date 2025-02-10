@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
+350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
