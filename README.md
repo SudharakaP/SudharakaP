@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-511 is the number of collaborators mathematician Paul Erdős had.
+555 is the number of keyboard sonatas written by Domenico Scarlatti, according to the catalog by Ralph Kirkpatrick.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
