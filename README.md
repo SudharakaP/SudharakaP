@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-16777216 is the number of different colors that can be generated using the hex code system in HTML.
+200 is degrees in a human"s field of vision (approximately).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
