@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is a common name for mains electricity in North America, despite the nominal voltage actually being 120V (range 110-120).
+6909 is the number of estimate for the linguistic diversity of living human languages or dialects.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
