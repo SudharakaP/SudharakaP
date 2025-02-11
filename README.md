@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
+110 is a common name for mains electricity in North America, despite the nominal voltage actually being 120V (range 110-120).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
