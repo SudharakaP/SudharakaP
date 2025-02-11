@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
+133 is the number of career touchdowns from 1983 - 1996 of Canadian Football League quarterback Danny Barrett.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
