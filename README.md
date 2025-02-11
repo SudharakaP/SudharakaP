@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-118 is the medical and Alpine rescue emergency telephone number in Italy.
+120 is liters of water needed to produce 1 glass of wine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
