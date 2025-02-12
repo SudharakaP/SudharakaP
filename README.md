@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is a card game related to Forty-five (card game).
+220 is the SMTP code meaning "service ready".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
