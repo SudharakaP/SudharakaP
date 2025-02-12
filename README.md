@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-160 is the lowest radio frequency band allocation in meters available to amateur radio operators in most countries.
+194 is the number of episodes of Will & Grace that ran on NBC from 1998 to 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
