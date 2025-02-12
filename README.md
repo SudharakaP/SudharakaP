@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-600 is the maximum credit score considered poor, thus limiting available credit in the USA.
+79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
