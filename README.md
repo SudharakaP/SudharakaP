@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5500000000000000 is the number of estimated ants on Earth alive at any one time.
+14500 is the number of unique English words occur in the King James Version of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
