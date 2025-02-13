@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-27 is the total number of letters in the Spanish alphabet (5 vowels and 22 consonants).
+121 is the number for voicemail for mobile phones on the Vodafone network.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
