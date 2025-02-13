@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
+149 is the number of legal proceedings against 149 communists in Estonia in 1924.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
