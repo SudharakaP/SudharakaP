@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the number of people who have walked on Earth's moon.
+61 is the code for international direct dial phone calls to Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
