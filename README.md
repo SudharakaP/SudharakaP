@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
+6000000 is the number of parts in the Boeing 747-400.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
