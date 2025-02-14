@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the height of Mount Victoria, Wellington, a prominent hill near Wellington, New Zealand.
+54 is the number of milligrams of caffeine Mountain Dew has.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
