@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-178 is the atomic number of an element temporarily called Unseptoctium.
+19 is the final year a person is a teenager.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
