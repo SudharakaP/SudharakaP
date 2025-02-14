@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
+67 is the number of counties in Florida.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
