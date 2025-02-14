@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25 is the minimum age of candidates for election to the United States House of Representatives.
+100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
