@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the freezing point of water at sea level in degrees Fahrenheit.
+130 is the approximate maximum height in meters of trees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
