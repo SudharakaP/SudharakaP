@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-174 is the rank of Zimbabwe in world population density.
+129 is the rank of Liberia in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
