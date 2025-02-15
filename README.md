@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-251 is the last and most powerful prime mover (engine) designed and built by the American Locomotive Company (ALCO).
+480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
