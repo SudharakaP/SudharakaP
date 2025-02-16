@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
+188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
