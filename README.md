@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-67890 is the number of largest decimal places of π that have been recited from memory.
+151 is the height of the Statue of Liberty from the base to the torch in feet (46 m).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
