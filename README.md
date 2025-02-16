@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-225 is the longest distance in miles a deepwater lobster has been recorded to travel.
+9 is the number of innings in a regulation, non-tied game of baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
