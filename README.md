@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5200 is the number of standard size of a legion in the Roman Empire.
+82 is the number of games in an NBA or NHL regular season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
