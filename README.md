@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
+10000 is the gallons of saliva an average human produces in a lifetime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
