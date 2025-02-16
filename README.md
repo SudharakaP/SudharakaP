@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1982 is the average price for a major league baseball game ticket in 2004 in cents.
+41 is the number of members in the U.S. Senate needed to defeat a cloture vote and sustain a filibuster indefinitely.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
