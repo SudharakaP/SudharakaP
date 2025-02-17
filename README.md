@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-137 is the atomic number of an element not yet observed called Untriseptium.
+360000 is the number of words definitions in the New Oxford Dictionary of English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
