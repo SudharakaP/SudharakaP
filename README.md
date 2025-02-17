@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-63 is the atomic number of europium.
+11 is the miles per hours that the fastest moving land snake, the Black Mamba, can move.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
