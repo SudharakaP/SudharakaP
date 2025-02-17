@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-220 is the common voltage in many countries.
+185 is the rank Grenada in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
