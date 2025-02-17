@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-156 is the number of years that Hong Kong was under British colony rule.
+157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
