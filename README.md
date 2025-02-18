@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-216 is the number of stitches on a baseball, according to the Ken Burns series "Baseball".
+300 is the number of pounds per square inch of pressure to break the shell of Macadamia nuts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
