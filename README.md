@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+130 is the approximate maximum height in meters of trees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
