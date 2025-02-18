@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-239 is the number of chapters in the Book of Mormon.
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
