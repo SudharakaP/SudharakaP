@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56 is the number of Aubrey Holes in the first stage of Stonehenge.
+169 is the number of nonequivalent starting hands in the Texas hold "em.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
