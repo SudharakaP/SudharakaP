@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-198 is the rank of Hey Joe (1966) by Jimi Hendrix on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
+729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
