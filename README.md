@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-43687 is the number of toilet related accidents in the United States in 1996.
+82 is the number of games in an NBA or NHL regular season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
