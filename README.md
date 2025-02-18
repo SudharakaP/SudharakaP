@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-212 is the boiling point of water at sea level in Fahrenheit degrees.
+2055001 is the number of people employed by Wal-mart in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
