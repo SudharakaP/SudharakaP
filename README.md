@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-112 is the atomic number of the element copernicium (formerly called ununbium).
+463 is the number of days in the synodic period of Ceres.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
