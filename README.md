@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-130 is the approximate maximum height in meters of trees.
+153 is the ordinal number of the coat of arms of Komi Republic in the State Heraldic Register of the Russian Federation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
