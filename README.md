@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the height of the World's tallest thermometer in feet located in Baker, California.
+3 is the number of consecutive successful attempts in a hat trick in sports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
