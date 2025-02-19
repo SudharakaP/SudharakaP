@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the number of columns of a Line printer printing in landscape mode on 14-inch paper.
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
