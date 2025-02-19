@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-161 is the the number of theatrical shorts of Tom and Jerry cartoons between 1940 and 1967.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
