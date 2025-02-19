@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the official end score for Cribbage.
+85 is the atomic number of astatine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
