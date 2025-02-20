@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50000000 is the approximate number of people who fish per year in the United States.
+1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
