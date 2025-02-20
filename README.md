@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40 is the number of attempts needed before the creation of the "water displacing" substance in the spray WD-40.
+198 is the number of films that actor Neal Burns appeared in between 1915 and 1946.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
