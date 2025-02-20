@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-245 is the number of Jewish singers who returned from captivity in Babylon in circa 538 BCE BC following the rise of Cyrus the Great and the Persian Empire.
+8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
