@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
+27 is the number of grains in some Buddhist rosary (108 divided by 4).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
