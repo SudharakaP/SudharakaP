@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-83 is the highest UHF channel on older televisions made before the late 1970s.
+167 is the miles long of the Hetch Hetchy Aqueduct in Yosemite National Park.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
