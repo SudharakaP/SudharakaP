@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
+45000000 is the number of turkeys Americans eat at Thanksgiving annually.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
