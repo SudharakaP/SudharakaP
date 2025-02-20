@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-90000 is the average number of hairs that redheads have.
+139 is the careers home runs given up by MLB pitcher Brian Meadows from 1998 to 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
