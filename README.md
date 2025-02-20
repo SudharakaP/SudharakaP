@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the size, in bits, of certain integer data types, used in computer representations of numbers.
+73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
