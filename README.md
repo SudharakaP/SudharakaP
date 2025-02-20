@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the hottest temperature ever measured in the United States in Fahrenheit  at Death Valley, California on July 10, 1913.
+47 is the number of phonemes in English phonology in Received Pronunciation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
