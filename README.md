@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-450 is a perfect score in Canadian five-pin bowling.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
