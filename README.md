@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-Infinity is the number of universes in multiverse theory.
+162 is total number of baseball games each team plays during a regular season in Major League Baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
