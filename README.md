@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
+116 is the number of pages in the Lost pages, the original manuscript of what Joseph Smith, Jr. said was the translation of the Book of Lehi, of the Golden plates revealed to him in 1827.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
