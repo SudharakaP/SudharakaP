@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-90000 is the average number of hairs that redheads have.
+25 is the number of years of marriage marked in a silver wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
