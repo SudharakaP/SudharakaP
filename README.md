@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-16 is the number of personality types in the Myers-Briggs classification system.
+3400000000 is the number of total number of speakers of Indo-European languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
