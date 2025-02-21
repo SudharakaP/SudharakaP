@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-160 is the number of characters permitted in a standard short message service in Australia and Europe.
+248 is the number of organs in the human body as traditionally depicted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
