@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-46 is the number of samurai, out of 47, who carried out the attack in the historical Ako vendetta.
+29 is the number of days February has in leap years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
