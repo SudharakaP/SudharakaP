@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the minimum age for United States senators.
+10 is the number of hydrogen atoms in butane, a hydrocarbon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
