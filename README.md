@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
+1982 is the average price for a major league baseball game ticket in 2004 in cents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
