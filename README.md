@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-749 is the pounds of paper products used by an American individual annually on average.
+125 is the atomic number of the yet-to-be-discovered element Unbipentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
