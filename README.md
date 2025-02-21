@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-148 is the number of episodes of the TV series The Fresh Prince of Bel-Air on NBC from 1990 to 1996.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
