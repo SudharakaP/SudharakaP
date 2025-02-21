@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-209 is the basketball record for most three pointers in a row.
+172 is the rank of Djibouti in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
