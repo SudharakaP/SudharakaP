@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is the maximum possible score in one turn at darts (three triple 20s).
+73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
