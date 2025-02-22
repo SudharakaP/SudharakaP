@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-360 is the number of degrees in a circle for the purpose of angular measurement.
+108 is the number of Mbit/s of a non-standard extension of IEEE 802.11g wireless network using channel bonding.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
