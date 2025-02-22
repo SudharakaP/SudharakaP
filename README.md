@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61 is the code for international direct dial phone calls to Australia.
+110 is the age a person must attain in order to be considered a supercentenarian.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
