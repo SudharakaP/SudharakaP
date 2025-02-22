@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56 is the age of Mao Zedong when the People's Republic of China was established on Oct. 1, 1949.
+300 is the approximate number of Spartans who fought to death at the Battle of Thermopylae.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
