@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is the total number of black and white squares on the game board in chess or draughts.
+39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
