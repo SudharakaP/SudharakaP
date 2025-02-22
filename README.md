@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
+235 is the atomic mass number of an important isotope of the element uranium, the fissile isotope which is used as the fuel for nuclear reactors and in some nuclear weapons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
