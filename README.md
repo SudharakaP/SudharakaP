@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
+1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
