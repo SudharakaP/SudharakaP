@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
+950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
