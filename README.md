@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100000000000000 is the number of cells in the the human body, of which only 10^{13} are human. The remaining 90% non-human cells are bacteria.
+68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
