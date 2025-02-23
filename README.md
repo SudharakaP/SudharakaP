@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+1300 is the number of babies born prematurely in the USA every day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
