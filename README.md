@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-177 is the all-time titles record held by Tennis Hall of Famer Martina Navratilova.
+46 is the number of samurai, out of 47, who carried out the attack in the historical Ako vendetta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
