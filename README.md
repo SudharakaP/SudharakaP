@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-37 is the cost in cents of the Whopper Sandwich when Burger King first introduced it in 1957.
+213 is the code for character "Õ" in codepages such as ISO-8859-1 and UTF-8.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
