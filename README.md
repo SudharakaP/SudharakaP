@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-213 is the code for character "Õ" in codepages such as ISO-8859-1 and UTF-8.
+188 is the rank of Tonga in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
