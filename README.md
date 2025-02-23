@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+83 is the number of fundamental particles in the observable universe.
+80 is the length (years) of the Eighty Years' War (1568–1648).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
