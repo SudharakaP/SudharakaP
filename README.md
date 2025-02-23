@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172 is the record in miles per hour of John White's shot in squash.
+146 is the Guinness World Record for the most languages a poem was recited in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
