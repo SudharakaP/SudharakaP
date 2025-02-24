@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100000000000 is the number of neurons in the human brain.
+99 is a common price ending in psychological pricing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
