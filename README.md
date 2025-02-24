@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the number of names of God, according to Kabbalah.
+217 is the area code for central Illinois.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
