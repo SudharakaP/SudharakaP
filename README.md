@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the rank Grenada in world population.
+9 is the number of innings in a regulation, non-tied game of baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
