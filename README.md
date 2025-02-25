@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-243 is the number of isotopes or variations of elements calculated by Dr. Plichta.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
