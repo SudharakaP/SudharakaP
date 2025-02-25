@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-218 is votes required in the US House of Representatives to achieve a majority as of 2008.
+82 is the number of games in an NBA or NHL regular season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
