@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-27 is the number of outs in a regulation baseball game for each team at all adult levels.
+100 is the number of runs required for a cricket batsman to score a century, a significant milestone.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
