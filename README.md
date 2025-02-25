@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10 is the Number of dots in a tetractys.
+186 is the atomic number of an element temporarily called Unocthexium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
