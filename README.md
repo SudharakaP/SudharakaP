@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-98 is the highest jersey number allowed in the National Hockey League (as 99 was retired by the entire league to honor Wayne Gretzky).
+197 is the number of years that Fu Xi lived for altogether.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
