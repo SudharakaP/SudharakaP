@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is the number of stories (by common reckoning) of the Sears Tower in Chicago.
+186 is a police term for a murder or homicide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
