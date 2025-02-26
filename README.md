@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-205 is the world speed record (mph) of a car on ice.
+142600 is tonnes of gold mined in the world by the end of 2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
