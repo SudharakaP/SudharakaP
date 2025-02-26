@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8674 is the number of unique words in the Hebrew Bible.
+55 is the number of Delegates who attended the United States Constitutional Convention in 1787.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
