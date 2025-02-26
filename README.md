@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-93 is the atomic number of neptunium.
+66 is the total number of chapters in the Bible book of Isaiah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
