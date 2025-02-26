@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172 is the temperature in Farenheit at which alcohol boils.
+116 is the prefix for several EU-wide telephone helplines designated as harmonised service of social value.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
