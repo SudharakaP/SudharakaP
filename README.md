@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the number of Delegates who attended the United States Constitutional Convention in 1787.
+343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
