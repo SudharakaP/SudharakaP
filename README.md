@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
