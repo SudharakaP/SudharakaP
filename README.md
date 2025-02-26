@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-78 is the total number of gifts in the song The Twelve Days of Christmas.
+273 is the death toll of the air crash of American Airlines Flight 191.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
