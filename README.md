@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is number of codons in the RNA codon table under genetic code.
+6000000 is the number of parts in the Boeing 747-400.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
