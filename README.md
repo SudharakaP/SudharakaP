@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-160 is the lowest radio frequency band allocation in meters available to amateur radio operators in most countries.
+9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
