@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-206 is bones in the typical adult human body.
+160 is the lowest radio frequency band allocation in meters available to amateur radio operators in most countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
