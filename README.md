@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the medical telephone number in China.
+53 is the maximum number of players on a National Football League roster.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
