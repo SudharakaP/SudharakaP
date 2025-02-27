@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25 is the number of fruits that a grapefruit cluster can have up to.
+7 is the number of main islands of mythological Atlantis.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
