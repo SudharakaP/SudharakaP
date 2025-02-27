@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the max number of shine sprites in Super Mario Sunshine.
+300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
