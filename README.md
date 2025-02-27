@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
+120 is the max number of shine sprites in Super Mario Sunshine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
