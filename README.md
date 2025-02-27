@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-184 is a number believed to be a magic number in nuclear physics.
+1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
