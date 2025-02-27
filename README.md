@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-27 is the number of grains in some Buddhist rosary (108 divided by 4).
+2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
