@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40 is the percentage of U.S. paper currency in circulation that was counterfeit by the end of the Civil War.
+155 is the number of performances Ivanhoe, the romantic opera that opened in January 31, 1891, ran for.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
