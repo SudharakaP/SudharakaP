@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-160 is the number of characters permitted in a standard short message service in Australia and Europe.
+120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
