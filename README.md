@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
+57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
