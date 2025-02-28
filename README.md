@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4200 is the number of standard size of a legion in the Roman Republic.
+32 is the number of brains a leech has.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
