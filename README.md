@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1337 is the number that spells "leet" in leetspeak.
+38 is the number of years it took the Israelites to travel from Kadesh Barnea to the Zered valley in Deuteronomy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
