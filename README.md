@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the age at which Moses died.
+13 is the number of loaves in a "baker's dozen".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
