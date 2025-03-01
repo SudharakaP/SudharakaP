@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-211 is the SMTP status code system status.
+40000000 is the number of Americans that have "chronic halitosis," which is bad breath that never goes away.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
