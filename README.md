@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is the standard number of days in the school year in most areas of the USA.
+106 is the atomic number of seaborgium (Unilhexium Unh).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
