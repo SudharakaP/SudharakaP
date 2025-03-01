@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-106 is the atomic number of seaborgium (Unilhexium Unh).
+150 is years in a sesquicentennial.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
