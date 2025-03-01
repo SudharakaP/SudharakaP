@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-169 is the number of nonequivalent starting hands in the Texas hold "em.
+2055001 is the number of people employed by Wal-mart in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
