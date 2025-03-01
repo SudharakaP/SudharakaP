@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is the common voltage in England and Australia before conversion to 230V standard.
+142 is the number of home-based business ideas included in the 142 Now packet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
