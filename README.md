@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is a police term for a murder or homicide.
+6 is the number of orders of the Mishnah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
