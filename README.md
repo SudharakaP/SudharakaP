@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-217 is the area code for central Illinois.
+29 is the number of days February has in leap years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
