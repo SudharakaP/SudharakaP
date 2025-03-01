@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-128 is the atomic number of unbioctium, an element yet to be discovered.
+52 is the number of white keys (notes in the C major scale).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
