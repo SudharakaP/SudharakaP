@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-21 is the number of trump cards of the tarot deck if one does not consider The Fool to be a proper trump card.
+97 is the number of leap days that the Gregorian calendar contains in its cycle of 400 years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
