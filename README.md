@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7e+27 is the number of atoms in the average human body.
+99 is the highest jersey number allowed in most major league sports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
