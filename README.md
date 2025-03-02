@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-66 is the number of hot dogs eaten by World record holder Joey Chestnut in 15 minutes.
+199 is the number of hits MLB pitcher Alex Jones gave up in his career from 1889-1903.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
