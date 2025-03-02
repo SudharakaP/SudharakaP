@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the atomic number of an element called Ununseptunium.
+66 is the number of hot dogs eaten by World record holder Joey Chestnut in 15 minutes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
