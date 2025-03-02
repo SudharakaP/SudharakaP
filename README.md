@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3.457e+181 is the number of ways to arrange the tiles in English Scrabble on a standard 15-by-15 Scrabble board.
+208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
