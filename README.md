@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the number of miles per hour an automobile accelerates from rest as one of the standard measurements of performance.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
