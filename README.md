@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-131 is the medical emergency telephone number in Chile.
+267 is the number of groups of order 64.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
