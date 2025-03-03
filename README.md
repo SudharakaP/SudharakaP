@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-44 is the percentage of kids who watch television before they go to sleep in the US.
+195 is the rank of BNY Mellon Center in terms of the tallest skyscraper in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
