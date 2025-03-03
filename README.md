@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-142 is the number of 6-vertex planar graphs.
+175 is the rank of Belize in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
