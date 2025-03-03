@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-176 is the number of verses in the longest chapter, the Psalm 119 of the Bible.
+60 is the number of miles per hour an automobile accelerates from rest as one of the standard measurements of performance.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
