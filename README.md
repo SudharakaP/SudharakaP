@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-67890 is the number of largest decimal places of π that have been recited from memory.
+1000000 is the number of colors that can be distinguished by the trichromatic color vision of the human eye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
