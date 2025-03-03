@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the traditional number of years in a jubilee period.
+250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
