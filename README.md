@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-54 is the number of milligrams of caffeine Mountain Dew has.
+137 is a radioactive isotope of Caesium formed by nuclear fission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
