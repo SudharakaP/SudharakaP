@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-900000000 is the approximate number of trees cut down in a year to make the raw materials for US pulp mills and paper.
+95 is the NBA record for Most Assists in a 7-game playoff series (by Magic Johnson of the Los Angeles Lakers in 1984).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
