@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-142600 is tonnes of gold mined in the world by the end of 2000.
+65 is the minimum grade required to pass an exam, or class, in many areas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
