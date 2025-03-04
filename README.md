@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-119 is a number to report children / youth at risk in France.
+133 is the common processor speed in MHz for common 32-bit processor CPUs circa 1995 such as the Intel Pentium and AMD AMD K5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
