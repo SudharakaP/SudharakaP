@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-27 is the total number of letters in the Spanish alphabet (5 vowels and 22 consonants).
+35 is the percentage of all bingo players are under the age of 35.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
