@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-94 is the atomic number of plutonium.
+10 is the number of years in a decade.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
