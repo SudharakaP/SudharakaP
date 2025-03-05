@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the number of players in a field hockey team.
+177 is the atomic number of an element temporarily called Unseptseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
