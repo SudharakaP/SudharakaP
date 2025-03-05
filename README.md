@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-175 is the number of films that actress Rose Tapley appeared in.
+17 is the number of flames emanating from the grenade cap-badge of the Grenadier Guards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
