@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the number for voicemail for mobile phones on the Vodafone network.
+120 is the drop in meters of the world's tallest freefall ride, The Giant Drop located in Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
