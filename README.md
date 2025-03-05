@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the top speed in miles per hours of the the Porsche Cayenne Turbo S automobile.
+78 is the number of chromosomes in canine DNA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
