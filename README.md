@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-720 is the number of degrees in two circles (= 2 × 360).
+189 is the number of irregular verbs in the English language (from "abide" to "write").
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
