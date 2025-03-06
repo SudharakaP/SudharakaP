@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-361 is the number of positions on a standard 19 x 19 Go board.
+10000000000 is the number of bacteria in the human oral cavity.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
