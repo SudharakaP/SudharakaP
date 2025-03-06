@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-116 is the prefix for several EU-wide telephone helplines designated as harmonised service of social value.
+38 is the number of years it took the Israelites to travel from Kadesh Barnea to the Zered valley in Deuteronomy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
