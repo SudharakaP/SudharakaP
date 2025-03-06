@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-189 is the number of irregular verbs in the English language (from "abide" to "write").
+150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
