@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-71 is the atomic number of lutetium.
+343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
