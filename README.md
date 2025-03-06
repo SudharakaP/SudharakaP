@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-207 is the area code for the US state of Maine.
+14 is the number of lines in a sonnet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
