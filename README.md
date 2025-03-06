@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-162 is total number of baseball games each team plays during a regular season in Major League Baseball.
+67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
