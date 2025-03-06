@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
