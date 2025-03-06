@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is the atomic number of an element temporarily called Unsepttrium.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
