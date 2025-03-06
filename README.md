@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-177 is the second highest possible score in darts that can be obtained by throwing three darts in a single visit to the oche.
+142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
