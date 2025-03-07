@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-23 is the number of times Julius Caesar was stabbed.
+666 is the number of the devil.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
