@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is number of golden disks in the myth of the Tower of Hanoi.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
