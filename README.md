@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-16 is the number of personality types in the Myers-Briggs classification system.
+13 is the number of unique ranks in a suit in a pack of cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
