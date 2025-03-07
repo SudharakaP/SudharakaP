@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-208 is the area code for the US state of Idaho.
+171 is the atomic number of an element called Ununseptunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
