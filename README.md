@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the number of runs by Dick Culler in his Major League Baseball career from 1936-1949.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
