@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the highest number on one end of a standard domino.
+63 is the number of chromosomes found in the offspring of a donkey and a horse.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
