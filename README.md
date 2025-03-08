@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
+188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
