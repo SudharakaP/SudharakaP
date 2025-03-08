@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
+172000 is tons of chocolate produced in Belgium in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
