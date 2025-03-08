@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-749 is the pounds of paper products used by an American individual annually on average.
+65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
