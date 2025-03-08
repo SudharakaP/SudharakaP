@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25 is the (critical) number of Florida electoral votes for the 2000 U.S. presidential election.
+29 is the highest possible score in a hand of Cribbage or Khanhoo.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
