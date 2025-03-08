@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25000000 is the number of different inhabited planets in the the Galactic Empire.
+2 is the price in cents per acre the USA bought Alaska from Russia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
