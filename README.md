@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the number of athletes that Canada had in 15 sports at the 2006 Winter Olympics.
+850 is the maximum possible Fair Isaac credit score.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
