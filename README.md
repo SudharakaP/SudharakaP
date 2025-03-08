@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-42 is the number of laws of cricket.
+42 is the number of kilometers in a marathon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
