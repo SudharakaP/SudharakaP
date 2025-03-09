@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20 is the number of questions in the popular party game Twenty Questions.
+72 is the total number of books in the Holy Bible in the Catholic version.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
