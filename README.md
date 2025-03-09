@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the percentage of girls in Bangladesh that are married by age 18.
+174 is the populatiokn of Aupaluk, Quebec (as of 2006).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
