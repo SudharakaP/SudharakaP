@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-31 is the number of flavors of Baskin-Robbins ice cream.
+117 is the serial number of protagonist John from the Halo Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
