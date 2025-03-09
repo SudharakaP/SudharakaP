@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-97 is the number of leap days that the Gregorian calendar contains in its cycle of 400 years.
+30 is the number of tracks on The Beatles' eponymous album, usually known as The White Album.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
