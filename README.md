@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-31 is the number of flavors of Baskin-Robbins ice cream.
+158 is the number of verses of the national anthem of Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
