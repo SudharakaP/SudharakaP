@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+390 is the speed in feet per second that nerve impulses for muscle position travel at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
