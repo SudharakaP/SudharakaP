@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
+5000 is the number of base pairs in the DNA of the simplest viruses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
