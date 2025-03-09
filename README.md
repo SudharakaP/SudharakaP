@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-900000000 is the approximate number of trees cut down in a year to make the raw materials for US pulp mills and paper.
+146 is the Guinness World Record for the most languages a poem was recited in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
