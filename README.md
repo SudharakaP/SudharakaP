@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
+1400000 is the number of species that have been named by the World Resources Institute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
