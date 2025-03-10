@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-178 is the rank of Samoa in world population.
+28 is the number of days in the average human menstrual cycle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
