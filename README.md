@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-200 is the minimum number of varieties of watermelons grown in the U.S.
+5500000000000000 is the number of estimated ants on Earth alive at any one time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
