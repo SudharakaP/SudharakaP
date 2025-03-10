@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40000000 is the number of Americans that have "chronic halitosis," which is bad breath that never goes away.
+39 is the traditional number of times citizens of Ancient Rome hit their slaves when beating them, referred to as "Forty save one".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
