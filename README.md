@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-Infinity is the estimation of the game-tree complexity in the game of Go.
+214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
