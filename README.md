@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6909 is the number of estimate for the linguistic diversity of living human languages or dialects.
+108 is there number of love sonnets in Astrophil and Stella, the first English sonnet sequence by Sir Philip Sidney.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
