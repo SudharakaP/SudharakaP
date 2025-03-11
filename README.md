@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-151 is the height of the Statue of Liberty from the base to the torch in feet (46 m).
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
