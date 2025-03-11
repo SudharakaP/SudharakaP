@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-112 is the atomic number of the element copernicium (formerly called ununbium).
+39 is the traditional number of times citizens of Ancient Rome hit their slaves when beating them, referred to as "Forty save one".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
