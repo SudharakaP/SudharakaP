@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6000000000000000000 is the number of transistor produced worldwide in 2008.
+206 is the number of bones in the typical adult human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
