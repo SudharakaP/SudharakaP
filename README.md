@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
+116 is the prefix for several EU-wide telephone helplines designated as harmonised service of social value.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
