@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
+165 is the miles that twenty-mule teams, which were mules and horses attached to wagons, traveled from mines to the nearest railroad spur, 165 miles (275 km) away in Mojave, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
