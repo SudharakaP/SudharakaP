@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
+222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
