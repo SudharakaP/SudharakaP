@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6800 is the approximate number of languages in the world.
+108 is the name of a community of and for open source developers, created by Red Hat.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
