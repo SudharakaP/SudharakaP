@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-199 is the number of leg hairs ripped by Andrew Reyna in one swift pull.
+128 is a sacred number honored by Beans for many generations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
