@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-124 is the rank of the Palestinian territories in world population.
+183 is the rank of the U.S. Virgin Islands in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
