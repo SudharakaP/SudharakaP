@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
+192 is the distance in feet the Hampstead London Underground station is below ground level.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
