@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is the first course in a subject taught at a college or university in Australia, Canada, South Africa, or the United States.
+400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
