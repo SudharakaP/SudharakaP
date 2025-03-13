@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-161 is the number of kilometers in about 100 miles.
+51 is the atomic number of antimony.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
