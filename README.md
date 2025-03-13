@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
