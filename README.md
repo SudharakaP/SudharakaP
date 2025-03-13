@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20 is the number of baby teeth in the deciduous dentition.
+1000000 is the number of colors that can be distinguished by the trichromatic color vision of the human eye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
