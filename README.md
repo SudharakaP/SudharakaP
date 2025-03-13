@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the TV series Third Watch ran on NBC from 1999 to 2005 with 132 episodes.
+101 is the first course in a subject taught at a college or university in Australia, Canada, South Africa, or the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
