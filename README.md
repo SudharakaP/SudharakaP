@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-201 is the HTTP status code indicating a new resource was successfully created in response to the request.
+225 is the longest distance in miles a deepwater lobster has been recorded to travel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
