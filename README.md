@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-80 is the length (years) of the Eighty Years' War (1568–1648).
+911 is the number of days after September 11th that the Madrid Attack took place.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
