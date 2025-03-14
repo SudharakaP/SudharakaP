@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-199 is the population of Woodstock, Newfoundland and Labrador, Newfoundland and Labrador Canada according to the 2006 Census.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
