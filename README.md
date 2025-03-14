@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-490 is the number of Pokémon available as of the release of Pokémon Diamond and Pearl (excluding event Pokémon).
+158 is days it took for the Surprize ship that set sail from England on January 19, 1790, to make port in Port Jackson, Sydney, Australia on June 26, 158 days later.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
