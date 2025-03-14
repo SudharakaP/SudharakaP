@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is the total number of black and white squares on the game board in chess or draughts.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
