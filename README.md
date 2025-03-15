@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
+20000000 is the weight in tons of the average iceberg.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
