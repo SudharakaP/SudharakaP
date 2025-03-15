@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the number of member states of the United Nations.
+500 is the number of detectable earthquakes in the world each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
