@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-53 is the maximum number of players on a National Football League roster.
+273 is the death toll of the air crash of American Airlines Flight 191.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
