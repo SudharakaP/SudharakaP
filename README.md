@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-600 is the advertised number of miles that NASCAR runs in the Coca-Cola 600, the longest race on any of the NASCAR circuits.
+196 is the length in miles of the Adda River in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
