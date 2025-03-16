@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-194 is the number of historic building in the Braden Castle Park Historic District in Bradenton, Florida.
+1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
