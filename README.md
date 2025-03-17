@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-360000 is the number of words definitions in the New Oxford Dictionary of English.
+128 is the bytes of memory of the Atari 2600 console.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
