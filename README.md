@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-128 is the bytes of memory of the Atari 2600 console.
+35 is the minimum age of candidates for election to the United States Presidency.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
