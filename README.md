@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the number of people who have walked on Earth's moon.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
