@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the number of runs by Dick Culler in his Major League Baseball career from 1936-1949.
+176 is the number of verses in the longest chapter, the Psalm 119 of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
