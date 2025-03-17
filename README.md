@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
+195 is the number of runs by Dick Culler in his Major League Baseball career from 1936-1949.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
