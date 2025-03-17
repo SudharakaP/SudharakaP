@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the atomic number of the chemical element unbibium.
+626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
