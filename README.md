@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-45000000000 is the approximate number of fat cells in an average adult.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
