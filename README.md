@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the approximate number of times a mother hen turns her egg in a day so the yolk does not stick to the shell.
+201 is the HTTP status code indicating a new resource was successfully created in response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
