@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-850 is the maximum possible Fair Isaac credit score.
+199 is the number of goals scored by Randy Burridge in his NHL career between 1985-1998.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
