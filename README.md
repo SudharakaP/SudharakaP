@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-144 is a gross (a dozen dozen).
+138 is the rank of Mongolia in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
