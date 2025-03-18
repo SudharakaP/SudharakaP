@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the percentage of methane on Earth produced from the flatulence of domesticated cows.
+208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
