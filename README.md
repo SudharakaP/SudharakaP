@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is the common voltage in England and Australia before conversion to 230V standard.
+166 is the number of minutes the average US worker toils each working day just to pay income tax.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
