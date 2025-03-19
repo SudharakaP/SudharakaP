@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-167 is the branch spread in feet of Santa Barbara's Moreton Bay Fig Tree in Santa Barbara, California, which is believed to be the largest Ficus macrophylla in the United States).
+8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
