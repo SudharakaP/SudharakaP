@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the gold or "golden" wedding anniversary in years of marriage.
+169 is the number of nonequivalent starting hands in the Texas hold "em.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
