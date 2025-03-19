@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-59 is the number on a button commonly worn by feminist activists in the 1970s (based on the claim that a woman earned 59 cents to an equally qualified man's dollar).
+167 is the branch spread in feet of Santa Barbara's Moreton Bay Fig Tree in Santa Barbara, California, which is believed to be the largest Ficus macrophylla in the United States).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
