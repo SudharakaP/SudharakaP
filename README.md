@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is the common voltage in England and Australia before conversion to 230V standard.
+146 is the Guinness World Record for the most languages a poem was recited in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
