@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the average number of minutes in a day that kids in the U.S. between the ages of 2 - 8 spend coloring.
+100000000000000 is the number of cells in the the human body, of which only 10^{13} are human. The remaining 90% non-human cells are bacteria.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
