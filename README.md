@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-124 is a stable isotope of tellurium.
+300 is the number of bones humans are born with in their body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
