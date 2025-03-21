@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-78 is the total number of gifts in the song The Twelve Days of Christmas.
+47 is the number of El-Aurians Scotty manages to beam up before their ship is destroyed by the energy ribbon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
