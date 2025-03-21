@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-156 is the number of hourly gongs a clock strikes in one day (78 AM gongs and 78 PM gongs).
+25 is the number of years of marriage marked in a silver wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
