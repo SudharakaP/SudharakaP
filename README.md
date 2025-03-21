@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-Infinity is the number of universes in multiverse theory.
+179 is the rank of Guam in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
