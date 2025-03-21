@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
+104 is the number of guns on Admiral Horatio Nelson's flagship HMS Victory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
