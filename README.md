@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-493 is the number of bronze knuts equivalent to one gold galleon, in the monetary system of the world of Harry Potter.
+27 is the total number of letters in the Spanish alphabet (5 vowels and 22 consonants).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
