@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
+33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
