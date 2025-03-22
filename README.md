@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6800 is the approximate number of languages in the world.
+78 is the number of chromosomes in canine DNA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
