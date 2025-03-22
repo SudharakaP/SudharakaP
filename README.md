@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-230 is the common voltage in the European Union.
+168 is the death toll of the 1995 Oklahoma City bombing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
