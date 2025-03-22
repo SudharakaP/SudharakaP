@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-154 is the period in days that the sun follows on gamma-ray flares.
+106 is the atomic number of seaborgium (Unilhexium Unh).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
