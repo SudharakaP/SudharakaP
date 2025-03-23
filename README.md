@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-117 is the height in metres of the tallest tree recorded, located in Humboldt Redwoods State Park, California.
+191 is the number of episodes for the different regions in the PokÃ©mon anime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
