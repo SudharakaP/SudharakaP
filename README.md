@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the rank Grenada in world population.
+90 is the latitude of the North Pole and the South Pole.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
