@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-118 is the beginning of directory enquiries numbers in the United Kingdom,France, Germany, Latvia, Sweden, Ireland, and Turkey.
+198 is the rank of Best of Little Walter (1964) by Little Walter on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
