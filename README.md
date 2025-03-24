@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25000000 is the number of different inhabited planets in the the Galactic Empire.
+58 is the number of usable cells on a Hexxagon game board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
