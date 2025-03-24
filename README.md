@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
+188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
