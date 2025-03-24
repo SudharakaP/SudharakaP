@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-98 is the temperature (F) of the normal body.
+213 is one of the first three area codes created in California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
