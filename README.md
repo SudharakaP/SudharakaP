@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-59 is the number of days, approximately in two lunar months.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
