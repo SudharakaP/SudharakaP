@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-179 is the rank of the the song Love Will Tear Us Apart (1980) by the Joy Division on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
+440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
