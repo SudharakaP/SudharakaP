@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the population density in square kilometers of Italy, the fifth-highest population density in Europe.
+115 is the atomic number of an element temporarily called ununpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
