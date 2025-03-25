@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the speed limit, in kilometers per hour, of Australian roads with unspecified limits.
+168 is the highest test score of Australian cricket captain Michael Clarke.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
