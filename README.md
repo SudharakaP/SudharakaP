@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-386 is the number of Pokémon in the 3rd Generation National Pokédex.
+85 is the IQ and nickname of Aaron in Alien 3.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
