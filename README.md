@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the population density in square kilometers of Italy, the fifth-highest population density in Europe.
+153 is the ordinal number of the coat of arms of Komi Republic in the State Heraldic Register of the Russian Federation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
