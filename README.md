@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
+536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
