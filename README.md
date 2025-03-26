@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-77 is the atomic number of iridium.
+-Infinity is negative infinity.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
