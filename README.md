@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
+214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
