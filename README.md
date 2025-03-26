@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
+127 is the atomic number of Unbiseptium, an element that has not yet been discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
