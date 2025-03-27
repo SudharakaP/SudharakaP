@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6000000 is the number of parts in the Boeing 747-400.
+136 is the number of episodes of the TV series That Girl ran on ABC from 1966 to 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
