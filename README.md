@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-205 is the world speed record (mph) of a car on ice.
+30 is the consumption in pounds of candy annually per person in Denmark, the country with the highest candy consumption.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
