@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-116 is the number of years that the Hundred Years' War between France and England, from 1337 to 1453, actually lasted.
+64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
