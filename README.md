@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
+95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
