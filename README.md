@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-92 is the number of letters in the longest place name: Taumatawhakatangihangakoauauotamateaurehaeaturipukakapikimaungahoronukupokaiwhenuakitanatahu.
+192 is the number of lasers in the National Ignition Facility (NIF) at Lawrence Livermore National Laboratory in Livermore, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
