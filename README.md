@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the percentage of movies released that are Rated R.
+720 is five gross (= 500 duodecimal, 5 × 144).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
