@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-70 is the number of years of marriage until the platinum wedding anniversary.
+92 is the number of stories in the Xujiahui Tower proposed to be built in Shanghai, China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
