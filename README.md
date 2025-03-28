@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-71 is the number of different characters that can be used with a standard English Keyboard, excluding uppercase letters.
+3000000000 is the number of base pairs in the human genome.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
