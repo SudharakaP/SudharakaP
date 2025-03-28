@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-16777216 is the number of different colors that can be generated using the hex code system in HTML.
+132 is the TV series Third Watch ran on NBC from 1999 to 2005 with 132 episodes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
