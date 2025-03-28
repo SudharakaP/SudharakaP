@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
