@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-146 is the Guinness World Record for the most languages a poem was recited in.
+144 is the number of months in 12 years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
