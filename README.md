@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-67 is the number of counties in Florida.
+153 is the frequency in kHz of of the longwave transmitters Donebach, Ingøy, Braşov, and Kenadsa.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
