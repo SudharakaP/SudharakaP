@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+273 is the number of seconds in American composer John Cage's piano composition 4'33" of silence, in three movements.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
