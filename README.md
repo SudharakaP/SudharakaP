@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the number of athletes that Canada had in 15 sports at the 2006 Winter Olympics.
+196 is the population density in square kilometers of Italy, the fifth-highest population density in Europe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
