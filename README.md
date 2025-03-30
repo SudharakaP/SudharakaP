@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-126 is the number of years that Gilgamesh reigned according to the Sumerian king list.
+127 is the highest signed 8 bit integer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
