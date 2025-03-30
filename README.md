@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1 is the number of moons orbiting Earth.
+107 is the number of Nobel Prize in Literature laureates.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
