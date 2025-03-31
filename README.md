@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-59 is the number corresponding to the last minute in a given hour.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
