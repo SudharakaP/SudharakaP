@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-82 is the atomic number of lead.
+14 is the minimum age at which one can work in many U.S states.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
