@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
+4.52e+46 is the upper bound for the number of legal chess positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
