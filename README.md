@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000000 is the approximate number of coconuts produced worldwide each year.
+195 is the number of episodes of Strange Paradise, a Canadian serial, aired on CBC Television from 1969-1970.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
