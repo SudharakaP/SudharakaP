@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-712 is the largest known number such that it and its 8th power have no common digits.
+1600000 is the number of people employed by the Indian railway system in India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
