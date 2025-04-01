@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-199 is steps to the top of the Cape May Lighthouse in Cape May, New Jersey.
+83 is the highest UHF channel on older televisions made before the late 1970s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
