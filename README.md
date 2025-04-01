@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-360 is the number of degrees in a circle for the purpose of angular measurement.
+500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
