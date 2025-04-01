@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
+139 is the number of law enforcement officers killed in the line of duty in 1998.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
