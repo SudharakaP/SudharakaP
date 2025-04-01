@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-273 is the death toll of the air crash of American Airlines Flight 191.
+61 is the code for international direct dial phone calls to Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
