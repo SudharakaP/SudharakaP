@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the percentage of employees in the USA who eat lunch and work at the same time.
+35 is the basic film gauge in mm most commonly used for both analog photography and motion pictures.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
