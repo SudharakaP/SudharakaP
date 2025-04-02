@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-525998433 is the number of distinct websites as of November 2011.
+73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
