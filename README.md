@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-148 is the number of episodes of the TV series The Fresh Prince of Bel-Air on NBC from 1990 to 1996.
+30 is the number of hours of the longest kiss on record, by Dror Orpaz and Carmit Tsubara in 1999 at a kissing contest.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
