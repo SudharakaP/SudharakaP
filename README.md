@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
+27 is the number of outs in a regulation baseball game for each team at all adult levels.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
