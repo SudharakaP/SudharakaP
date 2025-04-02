@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
+120 is the max number of shine sprites in Super Mario Sunshine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
