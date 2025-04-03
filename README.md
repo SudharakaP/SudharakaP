@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35 is the percentage of all bingo players are under the age of 35.
+1e+21 is the number of grains of sand on all the world's beaches put together.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
