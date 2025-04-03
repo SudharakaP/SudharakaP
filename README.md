@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
+15250 is the number of times the average driver will honk in a lifetime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
