@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the number of days the curing time of concrete is classically considered to be.
+160 is the number of characters permitted in a standard short message service in Australia and Europe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
