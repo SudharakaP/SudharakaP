@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-525 is the number of scan lines in the NTSC television standard.
+142 is the number of home-based business ideas included in the 142 Now packet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
