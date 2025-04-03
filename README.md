@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-47 is the total numbers of balloons that a player can collect in Rareware's Nintendo 64 game Diddy Kong Racing.
+470 is the minimum length in yards from the tee to the hole on a Par 5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
