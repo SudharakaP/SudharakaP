@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10 is the highest score possible in Olympics gymnastics competitions.
+20 is the number of baby teeth in the deciduous dentition.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
