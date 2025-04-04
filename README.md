@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-360 is the number of degrees in a circle for the purpose of angular measurement.
+156 is the number of episodes the TV series The West Wing ran on NBC from 1999 to 2006, including an extra episode.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
