@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-194 is the rank of Isle of Man in world population.
+39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
