@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-360000 is the number of words definitions in the New Oxford Dictionary of English.
+26 is the number of episodes in a television program each year (usually).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
