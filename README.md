@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-76 is the atomic number of osmium.
+121 is the atomic number of the undiscovered chemical element Unbiunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
