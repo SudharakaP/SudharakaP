@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40000000 is the number of times lightning hits the ground 40 million times a year in the United States.
+3 is the number of spatial dimensions we perceive our universe to have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
