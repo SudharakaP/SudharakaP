@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-175 is years Harriet (1830–2006) the Galápagos tortoise lived.
+383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
