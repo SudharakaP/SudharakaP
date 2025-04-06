@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the number of member states of the United Nations.
+120 is the max number of shine sprites in Super Mario Sunshine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
