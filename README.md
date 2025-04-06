@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+30 is the percentage of methane on Earth produced from the flatulence of domesticated cows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
