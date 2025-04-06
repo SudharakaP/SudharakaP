@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the max number of shine sprites in Super Mario Sunshine.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
