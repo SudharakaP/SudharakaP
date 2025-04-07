@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-152 is the number of diapers solder in a Pampers Swaddlers pack.
+213 is one of the first three area codes created in California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
