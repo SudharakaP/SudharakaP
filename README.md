@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2500 is the number of letters on a typical typed page of text.
+24 is the number of hours it takes for the human body to make 1 to 3 pints of saliva.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
