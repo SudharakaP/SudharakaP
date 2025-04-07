@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is the rank of Faroe Islands (Denmark) in world population density.
+73 is the percentage of girls in Bangladesh that are married by age 18.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
