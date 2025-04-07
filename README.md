@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is a police term for a murder or homicide.
+202 is the area code assigned to Washington D.C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
