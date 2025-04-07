@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1631 is two London bible printers accidentally left "not" out of the 7th commandment, which then read "Thou shalt commit adultery.".
+41 is the number of times Paul McCartney sings the phrase "Let It Be" in the Beatles' hit Let It Be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
