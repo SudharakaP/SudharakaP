@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
+155 is the number of episodes the TV series Sea Hunt ran in syndication from 1958 to 1961.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
