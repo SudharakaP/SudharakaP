@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the number of chapters in the Quran.
+4 is the number of completed, numbered symphonies by Johannes Brahms.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
