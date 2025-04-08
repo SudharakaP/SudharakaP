@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-243 is the number of isotopes or variations of elements calculated by Dr. Plichta.
+151 is the total number of Pokémon in the original set, counting Mewtwo and Mew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
