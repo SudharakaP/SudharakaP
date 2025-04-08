@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4.52e+46 is the upper bound for the number of legal chess positions.
+251 is the last and most powerful prime mover (engine) designed and built by the American Locomotive Company (ALCO).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
