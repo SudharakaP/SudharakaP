@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1096000000 is the population of India in 2007.
+69 is the number Bill and Ted were thinking of when talking to their future selves.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
