@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-106 is the atomic number of seaborgium (Unilhexium Unh).
+1982 is the average price for a major league baseball game ticket in 2004 in cents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
