@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-184 is the distance in light years to Eta Aquarii,a star in the constellation Aquarius.
+8e+120 is the ratio of the mass-energy in the observable universe to the energy of a photon with a wavelength the size of the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
