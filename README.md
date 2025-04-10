@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-16 is the minimum age for getting an adult job in most states and provinces across the globe.
+35 is the basic film gauge in mm most commonly used for both analog photography and motion pictures.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
