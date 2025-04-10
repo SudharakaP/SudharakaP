@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-44 is the percentage of kids who watch television before they go to sleep in the US.
+80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
