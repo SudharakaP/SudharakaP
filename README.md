@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22 is the typical length in minutes of a half hour sitcom not including commercials.
+10000000000000000000 is the estimated insect population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
