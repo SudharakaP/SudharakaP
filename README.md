@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-191 is the number of episodes for the different regions in the PokÃ©mon anime.
+30 is the number of years that tarantulas can live up to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
