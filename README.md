@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-75 is the age in years that the Saguaro Cactus, found in southwestern US, must be to grow branches.
+120 is the height in inches of a regulation basketball hoop.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
