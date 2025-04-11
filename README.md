@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-153 is the ordinal number of the coat of arms of Komi Republic in the State Heraldic Register of the Russian Federation.
+140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
