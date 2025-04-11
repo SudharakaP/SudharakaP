@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17 is the number of the raka'ahs that Muslims perform during Salah on a daily basis.
+143 is the number of episodes of the TV series The Adventures of Robin Hood on CBS from 1955 to 1959.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
