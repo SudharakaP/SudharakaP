@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
+366 is the number of days in a leap year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
