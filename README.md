@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-273 is the number of seconds in American composer John Cage's piano composition 4'33" of silence, in three movements.
+97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
