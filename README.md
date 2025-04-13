@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-84 is the code for international direct dial phone calls to Vietnam.
+911 is the number of days after September 11th that the Madrid Attack took place.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
