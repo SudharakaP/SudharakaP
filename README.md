@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the gold or "golden" wedding anniversary in years of marriage.
+196 is the rank of Vanuatu in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
