@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the approximate number of times a mother hen turns her egg in a day so the yolk does not stick to the shell.
+695 is the number of people dead in the single deadliest tornado in United States history (the F5 Tri-State Tornado in 1925).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
