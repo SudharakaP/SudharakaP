@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the Opus number of one of Beethoven's greatest works.
+28 is the average number of minutes in a day that kids in the U.S. between the ages of 2 - 8 spend coloring.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
