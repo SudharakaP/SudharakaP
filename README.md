@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3825000 is the number of entries on Wikipedia in the English language.
+102 is the atomic number of nobelium, an actinide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
