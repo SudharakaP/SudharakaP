@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-139 is the careers home runs given up by MLB pitcher Brian Meadows from 1998 to 2006.
+163 is the atomic number of an element temporarily called Unhextrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
