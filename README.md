@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the atomic number of the chemical element unbibium.
+188 is the rank of Tonga in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
