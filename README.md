@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-217 is the area code for central Illinois.
+100000000000 is the number of neurons in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
