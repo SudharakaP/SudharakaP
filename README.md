@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the height in kilometres that a volcano can shoot ash into the sky.
+13 is the speed of rush hour traffic on average in kilometres per hour in London.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
