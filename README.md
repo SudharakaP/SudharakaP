@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-78 is the number of lines that make up Metatron's Cube.
+613 is a significant number in Judaism, as its metaphysics, the Kabbalah, views every full entity as divisible into 613 parts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
