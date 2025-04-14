@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the single-season home run record in baseball set by Barry Bonds in 2001.
+1982 is the average price for a major league baseball game ticket in 2004 in cents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
