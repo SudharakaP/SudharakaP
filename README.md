@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the number of points on a Star of David.
+197 is the approximate atomic mass of Gold.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
