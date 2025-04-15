@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-172 is the rank of Iceland in world population.
+79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
