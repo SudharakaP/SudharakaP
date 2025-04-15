@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-160 is the lowest radio frequency band allocation in meters available to amateur radio operators in most countries.
+336 is the number of dimples on an American golf ball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
