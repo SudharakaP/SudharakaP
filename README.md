@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+16 is the number of teams that qualified for the finals of the FIFA World Cup from 1934 through 1978 (although for various reasons, only 15 competed in the 1938 and 1950 finals).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
