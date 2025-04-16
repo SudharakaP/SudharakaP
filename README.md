@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
+194 is the number of episodes of Will & Grace that ran on NBC from 1998 to 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
