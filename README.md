@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the age of Jeanne Calment when she died.
+26 is the number of Cantons of Switzerland.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
