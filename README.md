@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-161 is the number of episodes the TV series The Avengers ran from 1961 to 1969.
+251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
