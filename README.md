@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
+15 is the approximate speed in miles per hour a penguin swims at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
