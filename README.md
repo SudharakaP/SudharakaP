@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the number of days taken to create the world by Yahweh in the Old Testament Book of Genesis, and the number of the day on which humankind were created.
+197 is the number of episodes of the Cosby Show that ran on NBC from 1984-1992.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
