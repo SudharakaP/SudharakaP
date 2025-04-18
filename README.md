@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is the number of pence in a pound in the British currency until 1971.
+911 is the number of days after September 11th that the Madrid Attack took place.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
