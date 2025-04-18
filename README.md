@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-300 is the approximate number of Spartans who fought to death at the Battle of Thermopylae.
+5000 is the number of base pairs in the DNA of the simplest viruses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
