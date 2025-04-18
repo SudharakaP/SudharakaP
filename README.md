@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
+250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
