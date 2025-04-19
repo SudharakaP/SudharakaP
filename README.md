@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is the intelligence Agency telephone number in Iran.
+-Infinity is negative infinity.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
