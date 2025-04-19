@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1979 is a song by American alternative rock band The Smashing Pumpkins.
+45000000000 is the number of galaxies in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
