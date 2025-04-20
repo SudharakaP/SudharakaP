@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
