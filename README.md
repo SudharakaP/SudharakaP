@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the length in miles of the Adda River in Italy.
+60 is the years of marriage until the diamond wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
