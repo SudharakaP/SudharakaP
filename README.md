@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the highest number on one end of a standard domino.
+80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
