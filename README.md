@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-18 is the number of colors the labels for Crayola crayons come in.
+168 is the nubmer of performances that A Day in Hollywood / A Night in the Ukraine ran for.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
