@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-525998433 is the number of distinct websites as of November 2011.
+29 is the number of cups of milk needed to make one pound of butter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
