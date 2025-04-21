@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the number of member states of the United Nations.
+63 is the number of chromosomes found in the offspring of a donkey and a horse.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
