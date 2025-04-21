@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100 is the minimum distance in yards for a Par 3 on a golf course.
+105 is the atomic number of hahnium, also known as dubnium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
