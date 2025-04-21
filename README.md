@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
+108 is the number of suitors coveting Penelope, wife of Odysseus in Homer's Odyssey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
