@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the fire emergency telephone number in Austria.
+131 is the medical emergency telephone number in Chile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
