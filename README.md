@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-126 is the number of years that Gilgamesh reigned according to the Sumerian king list.
+12 is the number of function keys on most PC keyboards (F1 through F12).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
