@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22 is the number of yards in a chain.
+72 is the record number of victories in an NBA season (1995-96 Chicago Bulls).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
