@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the telephone number "to report a car breakdown on the highway in Austria.
+38 is the number of games that each team in the current English Premiership, the top division in English Association Football, plays in a season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
