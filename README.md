@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
+66 is the number of years of the longest hiccups on record by an American pig farmer from 1922 to 1987.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
