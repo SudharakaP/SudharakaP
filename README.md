@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-111 is the number occasionally referred to as "eleventy-one", as read in The Fellowship of the Ring by J.R.R.
+204 is the HTTP status code indicating the request was received but there is no response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
