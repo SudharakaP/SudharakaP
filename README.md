@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-176 is the rank of Madagascar 176 world population density.
+144 is the number of square inches in a square foot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
