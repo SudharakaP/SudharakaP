@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
