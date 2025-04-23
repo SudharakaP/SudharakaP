@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the gold or "golden" wedding anniversary in years of marriage.
+120 is the number of Men of the Great Assembly who canonized the Books of the Tanakh and formulated the Jewish prayers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
