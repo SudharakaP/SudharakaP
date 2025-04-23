@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-83 is the atomic number of bismuth.
+181 is the atomic number of an element temporarily called Unoctunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
