@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-213 is the name of a hip hop, active 1990-2004.
+102 is the number of floors in Empire State Building in New York City.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
