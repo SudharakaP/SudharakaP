@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-137 is a radioactive isotope of Caesium formed by nuclear fission.
+171 is the atomic number of an element called Ununseptunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
