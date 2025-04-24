@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-108 is the number of cards in a deck of UNO cards.
+343 is the number of New York City Firefighters who died on September 11, 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
