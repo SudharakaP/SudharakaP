@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1400000 is the number of species that have been named by the World Resources Institute.
+6 is the jersey number worn by the starting stand-off half/five-eighth in most rugby league competitions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
