@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40 is the number of eggs that female alligators lay, which hatch in 60 - 70 days.
+386 is the number of Pokémon in the 3rd Generation National Pokédex.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
