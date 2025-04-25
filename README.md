@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
+132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
