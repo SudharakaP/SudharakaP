@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15 is the number of balls in the eight ball variant of billiards.
+31 is the number of flavors of Baskin-Robbins ice cream.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
