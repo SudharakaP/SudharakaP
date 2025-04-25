@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
+20000000000 is the approximate number of coconuts produced worldwide each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
