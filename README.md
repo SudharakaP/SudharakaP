@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-107 is the number of Nobel Prize in Literature laureates.
+1979 is a song by American alternative rock band The Smashing Pumpkins.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
