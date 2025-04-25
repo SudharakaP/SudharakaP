@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the height of the World's tallest thermometer in feet located in Baker, California.
+40 is the number of thieves in Ali Baba and the Forty Thieves and in Ali Shar and Zumurrud, from Thousand and One Nights.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
