@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
+185 is the rank Grenada in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
