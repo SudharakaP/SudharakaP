@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-343 is the number of New York City Firefighters who died on September 11, 2001.
+45000000000 is the approximate number of fat cells in an average adult.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
