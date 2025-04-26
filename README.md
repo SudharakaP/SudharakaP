@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-84 is the atomic number of polonium.
+212 is the boiling point of water at sea level in Fahrenheit degrees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
