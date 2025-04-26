@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the number for voicemail for mobile phones on the Vodafone network.
+1728 is braces were first invented by Pierre Fauchard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
