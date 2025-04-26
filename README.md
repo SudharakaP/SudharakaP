@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-106 is the atomic number of seaborgium (Unilhexium Unh).
+139 is the number of unlabeled topologies with 5 elements.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
