@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
+255 is the largest values that can be assigned to elements in the 24-bit RGB color model, since each color channel is allotted eight bits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
