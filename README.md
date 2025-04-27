@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
+195 is the number of runs by Dick Culler in his Major League Baseball career from 1936-1949.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
