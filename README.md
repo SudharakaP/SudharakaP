@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-183 is the id number of Issam Hamid Al Bin Ali Al Jayfi, a detainee at Guantanamo Bay.
+47 is the number of El-Aurians Scotty manages to beam up before their ship is destroyed by the energy ribbon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
