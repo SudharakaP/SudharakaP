@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-37 is the normal human body temperature in degrees Celsius.
+0 is the atomic number of the theoretical element tetraneutron.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
