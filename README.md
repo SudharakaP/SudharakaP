@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-41 is the number of soldiers in The Expendables (2010 film) tactor Eric Roberts laments to his subordinates about having been killed by star Sylvester Stallone in his escape from their island.
+165 is the number of episodes that the TV show Daniel Boone ran on NBC from 1964 to 1970.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
