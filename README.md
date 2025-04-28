@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8e+60 is the number of Planck time intervals since the Big Bang.
+139 is the margin in St Kilda's win over the Brisbane Lions in the last round of the 2005 season in the Australian Football League.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
