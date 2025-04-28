@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000000 is the approximate number of coconuts produced worldwide each year.
+142600 is tonnes of gold mined in the world by the end of 2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
