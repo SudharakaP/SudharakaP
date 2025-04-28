@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56 is the maximum speed of analog data transmission over a POTS in the 20th century measured in kbit/s.
+68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
