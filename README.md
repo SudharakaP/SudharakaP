@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-221 is sMTP status code for service closing transmission channel.
+4294967296 is the number of bytes in 4 gibibytes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
