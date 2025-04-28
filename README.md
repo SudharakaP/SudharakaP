@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5 is the number of appendages on most starfish, which exhibit pentamerism.
+10 is the number of fingers on a pair of human hands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
