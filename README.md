@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+161 is the number of episodes the TV series The Avengers ran from 1961 to 1969.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
