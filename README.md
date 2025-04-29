@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-239 is the atomic mass number of the most common isotope of plutonium.
+90 is the number of minutes in a football (soccer) match.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
