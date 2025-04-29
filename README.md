@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-106 is the maximum number of characters filenames can have in Joliet, an extension to the ISO 9660 file system.
+75 is the age in years that the Saguaro Cactus, found in southwestern US, must be to grow branches.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
