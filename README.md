@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-37 is the number of plays William Shakespeare is thought to have written (counting Henry IV as three parts).
+161 is the the number of theatrical shorts of Tom and Jerry cartoons between 1940 and 1967.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
