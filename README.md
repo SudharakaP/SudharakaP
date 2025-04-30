@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-188 is the rank of Tonga in world population.
+118 is the atomic number of the element Ununoctium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
