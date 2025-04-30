@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-151 is the total number of Pokémon in the original set, counting Mewtwo and Mew.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
