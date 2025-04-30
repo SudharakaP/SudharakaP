@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
+550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
