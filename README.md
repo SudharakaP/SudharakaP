@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-613 is a significant number in Judaism, as its metaphysics, the Kabbalah, views every full entity as divisible into 613 parts.
+240 is the number of pence in a pound in the British currency until 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
