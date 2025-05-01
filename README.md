@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the miles per hours that the fastest moving land snake, the Black Mamba, can move.
+1000000000000 is the number of bacteria on the surface of the human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
