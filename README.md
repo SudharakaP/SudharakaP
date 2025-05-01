@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the Opus number of one of Beethoven's greatest works.
+525998433 is the number of distinct websites as of November 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
