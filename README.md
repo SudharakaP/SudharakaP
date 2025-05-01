@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
+251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
