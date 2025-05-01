@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000 is the weight in tons of the average iceberg.
+120 is a file medium format developed by Kodak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
