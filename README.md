@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000 is the gallons of saliva an average human produces in a lifetime.
+184 is the distance in light years to Eta Aquarii,a star in the constellation Aquarius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
