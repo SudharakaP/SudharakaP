@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1337 is the weight in pounds of the biggest pumpkin in the world.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
