@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-69 is the number Bill and Ted were thinking of when talking to their future selves.
+121 is the number for voicemail for mobile phones on the Vodafone network.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
