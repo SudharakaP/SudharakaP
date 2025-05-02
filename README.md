@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-189 is the atomic number of an element temporarily called Unoctennium.
+20000000000 is the approximate number of coconuts produced worldwide each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
