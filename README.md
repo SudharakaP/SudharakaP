@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the number of member states of the United Nations.
+128 is a sacred number honored by Beans for many generations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
