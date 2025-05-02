@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-166 is the number of points the Dow Jones Industrials fell on June 24, 2005.
+135 is the hottest temperature ever measured in the United States in Fahrenheit  at Death Valley, California on July 10, 1913.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
