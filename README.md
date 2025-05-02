@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-127 is the atomic number of Unbiseptium, an element that has not yet been discovered.
+613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
