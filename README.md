@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000 is the weight in tons of the average iceberg.
+138 is the atomic number of Untrioctium, a temporary chemical element.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
