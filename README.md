@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-162 is total number of baseball games each team plays during a regular season in Major League Baseball.
+58 is the number of usable cells on a Hexxagon game board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
