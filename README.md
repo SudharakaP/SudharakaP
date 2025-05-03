@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-47 is the number of phonemes in English phonology in Received Pronunciation.
+99 is a common price ending in psychological pricing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
