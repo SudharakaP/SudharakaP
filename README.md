@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the drop in meters of the world's tallest freefall ride, The Giant Drop located in Australia.
+56000000000 is the number of web pages indexed by Google as of 2010.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
