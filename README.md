@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-336 is the number of dimples on an American golf ball.
+240 is the common voltage in England and Australia before conversion to 230V standard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
