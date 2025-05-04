@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is a number that in an astrological aspect is considered to be negative in influence.
+43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
