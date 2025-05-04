@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is distinct solutions of the Soma cube puzzle.
+110 is the age a person must attain in order to be considered a supercentenarian.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
