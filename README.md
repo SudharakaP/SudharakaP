@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-170 is largest integer for which Google"s built-in calculator function can compute the factorial.
+107 is the number of Nobel Prize in Literature laureates.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
