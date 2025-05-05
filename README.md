@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2055001 is the number of people employed by Wal-mart in 2007.
+463 is the number of days in the synodic period of Ceres.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
