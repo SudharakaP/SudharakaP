@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
