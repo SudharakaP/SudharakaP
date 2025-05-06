@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-215 is the Dewey Decimal Classification for Science and religion.
+3 is the number of witches in William Shakespeare's Macbeth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
