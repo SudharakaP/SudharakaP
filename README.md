@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-261 is number of possible unfolded tesseract patterns.
+145 is the atomic number of Unquadpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
