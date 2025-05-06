@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-75 is the age limit for Canadian senators.
+88 is a standard length of playing cards in mm.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
