@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-184 is a weight class in collegiate wrestling, 184 lb (83 kg).
+59 is the number corresponding to the last second in a given minute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
