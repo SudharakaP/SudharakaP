@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the speed limit, in kilometers per hour, of Australian roads with unspecified limits.
+4.52e+46 is the upper bound for the number of legal chess positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
