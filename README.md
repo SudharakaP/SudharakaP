@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is the temperature in Fahrenheit of milk when it leaves the body of a cow.
+451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
