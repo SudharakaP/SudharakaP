@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6909 is the number of estimate for the linguistic diversity of living human languages or dialects.
+129 is the combined 2-year total of home runs for baseball's Sammy Sosa with 66 home runs in 1999 and 63 in 2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
