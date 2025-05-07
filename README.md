@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-300 is the number of bones humans are born with in their body.
+169 is miles that the Thames River flows through Ontario, Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
