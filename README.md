@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
+343 is the number of New York City Firefighters who died on September 11, 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
