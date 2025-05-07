@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-189 is the rank of Stayin' Alive (1977) by the Bee Gees on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
+20000000000 is the approximate number of coconuts produced worldwide each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
