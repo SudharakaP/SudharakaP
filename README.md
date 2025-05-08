@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
+493 is the number of Pokémon species, from the first set through the fourth generation as of August 2009.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
