@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the number for voicemail for mobile phones on the Vodafone network.
+153 is the code for malignant neoplasm of the colon in the International Statistical Classification of Diseases and Related Health Problems.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
