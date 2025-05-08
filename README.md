@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-166 is the atomic number of an element temporarily called Unhexhexium.
+121 is the number for voicemail for mobile phones on the Vodafone network.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
