@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-400000000000 is the number of stars in the Milky Way galaxy.
+3 is the number of notes in a triad, the basic form of any chord.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
