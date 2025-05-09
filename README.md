@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the miles per hours that the fastest moving land snake, the Black Mamba, can move.
+729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
