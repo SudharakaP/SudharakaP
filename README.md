@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17 is 'the least random number' as described at MIT, according to hackers' lore.
+59 is the number corresponding to the last minute in a given hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
