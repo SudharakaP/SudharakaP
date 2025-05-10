@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
+132 is the number of episodes of the TV series Martin that ran on Fox from 1992 to 1997.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
