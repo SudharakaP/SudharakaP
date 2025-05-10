@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the distance in feet the Hampstead London Underground station is below ground level.
+1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
