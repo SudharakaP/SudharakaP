@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the number of episodes of the TV series Martin that ran on Fox from 1992 to 1997.
+132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
