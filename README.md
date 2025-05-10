@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000000 is the approximate number of coconuts produced worldwide each year.
+25 is the number of fruits that a grapefruit cluster can have up to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
