@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
+755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
