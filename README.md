@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-25 is the minimum age of candidates for election to the United States House of Representatives.
+41 is the number of times Paul McCartney sings the phrase "Let It Be" in the Beatles' hit Let It Be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
