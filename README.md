@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
+613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
