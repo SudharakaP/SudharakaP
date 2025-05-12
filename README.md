@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-163 is the atomic number of an element temporarily called Unhextrium.
+177 is the all-time titles record held by Tennis Hall of Famer Martina Navratilova.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
