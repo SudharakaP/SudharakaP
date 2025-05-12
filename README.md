@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-98 is the temperature (F) of the normal body.
+197 is the approximate atomic mass of Gold.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
