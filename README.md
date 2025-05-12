@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
+37 is the number of slots in European Roulette (numbered 0 through 36, the 00 is not used in European roulette as it is in American roulette).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
