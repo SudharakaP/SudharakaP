@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30000 is the number of distinct Chinese characters.
+54 is the number of cards in a deck of playing cards, if two jokers are included.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
