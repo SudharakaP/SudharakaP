@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-93 is that approximate distance in millions of miles the Sun is away from the Earth.
+84 is the atomic number of polonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
