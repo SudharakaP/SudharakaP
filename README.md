@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-600 is the maximum credit score considered poor, thus limiting available credit in the USA.
+189 is the rank of Stayin' Alive (1977) by the Bee Gees on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
