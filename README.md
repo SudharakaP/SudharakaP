@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-256 is the number of NFL regular season football games.
+118 is the medical and Alpine rescue emergency telephone number in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
