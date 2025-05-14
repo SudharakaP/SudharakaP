@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
+28 is the average number of minutes in a day that kids in the U.S. between the ages of 2 - 8 spend coloring.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
