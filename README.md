@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-18 is the number of bronze monks the Shaolin temple had in Chinese folklore.
+10000000000000000000 is the estimated insect population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
