@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+113 is a number considred unlucky in enduro, given to a race entrant and is colloquially known as a "blind pew".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
