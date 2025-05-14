@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-273 is the death toll of the air crash of American Airlines Flight 191.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
