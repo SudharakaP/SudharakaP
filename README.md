@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-0 is the coldest possible temperature old the Kelvin scale.
+24 is the number of accepted runners in the Melbourne Cup.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
