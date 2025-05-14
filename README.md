@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
+56 is the number of layers of the Universe according to Aristotle (Earth plus 55 crystalline spheres above it).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
