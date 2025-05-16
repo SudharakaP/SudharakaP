@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
+1000000 is the number of colors that can be distinguished by the trichromatic color vision of the human eye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
