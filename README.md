@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
+2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
