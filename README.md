@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
+343 is the number of New York City Firefighters who died on September 11, 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
