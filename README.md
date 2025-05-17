@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the standard size of drum in US gallons.
+2 is the first magic number in physics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
