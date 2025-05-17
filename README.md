@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the first magic number in physics.
+30 is the consumption in pounds of candy annually per person in Denmark, the country with the highest candy consumption.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
