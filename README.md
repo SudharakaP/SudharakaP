@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is the cost in cents to make a $1 bill in the United States.
+56000000000 is the number of web pages indexed by Google as of 2010.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
