@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-83 is the highest UHF channel on older televisions made before the late 1970s.
+3 is the number of sets needed to be won to win the whole match in volleyball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
