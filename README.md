@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6909 is the number of estimate for the linguistic diversity of living human languages or dialects.
+203 is the HTTP status code indicating partial information.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
