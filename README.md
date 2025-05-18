@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
