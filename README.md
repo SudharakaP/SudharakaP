@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the traditional number of years in a jubilee period.
+156 is the number of strikes a clock will strike in the course of a day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
