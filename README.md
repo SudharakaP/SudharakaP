@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-125000 is the number of average strands of hair in the human head.
+194 is the number of historic building in the Braden Castle Park Historic District in Bradenton, Florida.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
