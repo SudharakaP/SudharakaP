@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-360 is the number of degrees in a circle for the purpose of angular measurement.
+133 is the common processor speed in MHz for common 32-bit processor CPUs circa 1995 such as the Intel Pentium and AMD AMD K5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
