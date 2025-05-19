@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+56 is the number of men who signed the United States Declaration of Independence in 1776.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
