@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10 is the average thickness of the Arctic ice sheet in feet.
+511 is the number of collaborators mathematician Paul Erdős had.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
