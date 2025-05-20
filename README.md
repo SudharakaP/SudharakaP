@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the total number of books in the Holy Bible in the Catholic version.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
