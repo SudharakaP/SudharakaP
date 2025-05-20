@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the approximate number of times a mother hen turns her egg in a day so the yolk does not stick to the shell.
+218 is votes required in the US House of Representatives to achieve a majority as of 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
