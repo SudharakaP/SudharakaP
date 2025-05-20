@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is a percentage in the expression "To give 110%", meaning to give a little more effort than one's maximum effort.
+5 is the number of babies born in a quintuplet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
