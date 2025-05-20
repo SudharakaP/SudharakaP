@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2500 is the number of letters on a typical typed page of text.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
