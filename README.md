@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-211 is the SMTP status code system status.
+1 is the number of dimensions of a line.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
