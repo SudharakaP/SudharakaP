@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-184 is the distance in light years to Eta Aquarii,a star in the constellation Aquarius.
+72 is the life duration of the ovule in hours.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
