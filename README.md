@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30000 is the number of distinct Chinese characters.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
