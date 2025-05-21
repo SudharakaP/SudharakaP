@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is the common voltage in England and Australia before conversion to 230V standard.
+147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
