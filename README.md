@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-215 is the Dewey Decimal Classification for Science and religion.
+45000000 is the number of turkeys Americans eat at Thanksgiving annually.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
