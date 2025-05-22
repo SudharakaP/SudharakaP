@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-36 is the number of vehicles that run in each race of NASCAR's Camping World Truck Series.
+60 is the highest obtainable level on World of Warcraft (not including expansions).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
