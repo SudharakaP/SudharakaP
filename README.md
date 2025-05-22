@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+26 is the number of letters in the English and Interlingua alphabets.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
