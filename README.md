@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-164 is the number of home runs the Baltimore Orioles hit in 2006.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
