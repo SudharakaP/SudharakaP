@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-106 is the maximum number of characters filenames can have in Joliet, an extension to the ISO 9660 file system.
+538 is the total number of votes in the Electoral College of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
