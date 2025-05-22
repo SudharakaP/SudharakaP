@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-336 is the number of dimples on an American golf ball.
+2055001 is the number of people employed by Wal-mart in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
