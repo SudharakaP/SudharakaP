@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-24 is the maximum number of Knight Companions in the Order of the Garter.
+386 is the number of Pokémon in the 3rd Generation National Pokédex.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
