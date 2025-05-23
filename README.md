@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
+188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
