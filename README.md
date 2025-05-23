@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-183 is the id number of Issam Hamid Al Bin Ali Al Jayfi, a detainee at Guantanamo Bay.
+29 is the number of days February has in leap years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
