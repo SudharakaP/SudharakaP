@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-208 is the heaviest stable isotope of any element (lead).
+76 is the atomic number of osmium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
