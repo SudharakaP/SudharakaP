@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5500000000000000 is the number of estimated ants on Earth alive at any one time.
+73 is the percentage of girls in Bangladesh that are married by age 18.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
