@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-248 is the number of organs in the human body as traditionally depicted.
+10 is the Number of dots in a tetractys.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
