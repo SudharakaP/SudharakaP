@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61 is the number of points required to win a "standard" game of Cribbage.
+31 is the number of musical triads (12 major, 12 minor, 4 diminished, and 3 augmented).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
