@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the height of the World's tallest thermometer in feet located in Baker, California.
+73 is the single-season home run record in baseball set by Barry Bonds in 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
