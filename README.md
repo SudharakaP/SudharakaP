@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-26 is the number of red cards as well as the number of blue cards in a normal deck of cards.
+911 is the number of days after September 11th that the Madrid Attack took place.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
