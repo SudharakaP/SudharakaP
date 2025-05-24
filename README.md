@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-911 is the number of days after September 11th that the Madrid Attack took place.
+343 is the number of frames in which U.S. President John F. Kennedy's presidential limousine can be seen in the Zapruder film.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
