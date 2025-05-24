@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
+183 is the number of runs scored by former cricket player Sourav Ganguly in the 1999 Cricket World Cup, second highest in World Cup history, and highest by an Indian in the tournament.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
