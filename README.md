@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
+198 is the number of sacks by Reggie White in his NFL career from 1985-2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
