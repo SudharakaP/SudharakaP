@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4200000 is the number of couples in the United States that live together but are not married.
+11 is the number of pounds one gallon of pure maple syrup weighs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
