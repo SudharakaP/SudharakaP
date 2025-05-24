@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35 is the percentage of all bingo players are under the age of 35.
+562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
