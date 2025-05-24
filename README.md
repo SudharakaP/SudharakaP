@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-200 is the minimum number of varieties of watermelons grown in the U.S.
+157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
