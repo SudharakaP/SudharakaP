@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-205 is the world speed record (mph) of a car on ice.
+227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
