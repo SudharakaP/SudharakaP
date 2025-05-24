@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5e+30 is the number of bacterial cells on Earth.
+60 is the highest obtainable level on World of Warcraft (not including expansions).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
