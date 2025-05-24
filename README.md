@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-189 is the rank of Stayin' Alive (1977) by the Bee Gees on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
+106 is the number of surat Quraysh in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
