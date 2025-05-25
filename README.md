@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
