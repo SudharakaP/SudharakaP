@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the record number of goals scored by France at the 1998 World Cup.
+65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
