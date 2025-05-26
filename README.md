@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
+4 is the number of chambers the mammalian heart consists of.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
