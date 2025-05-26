@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
+2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
