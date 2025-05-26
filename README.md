@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
+3 is the number of spatial dimensions we perceive our universe to have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
