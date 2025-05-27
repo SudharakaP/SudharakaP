@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-600 is the advertised number of miles that NASCAR runs in the Coca-Cola 600, the longest race on any of the NASCAR circuits.
+47 is the number of El-Aurians Scotty manages to beam up before their ship is destroyed by the energy ribbon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
