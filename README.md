@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-16 is the number of personality types in the Myers-Briggs classification system.
+176 is the rank of Madagascar 176 world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
