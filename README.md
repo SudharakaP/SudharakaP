@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1400000 is the number of species that have been named by the World Resources Institute.
+101 is is the number of floors of Taipei 101, the tallest skyscraper in the world from 2004 to 2010.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
