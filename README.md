@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-137 is the atomic number of an element not yet observed called Untriseptium.
+205 is the world speed record (mph) of a car on ice.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
