@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-130 is the approximate maximum height in meters of trees.
+26 is the number of episodes in a television program each year (usually).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
