@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the height of the World's tallest thermometer in feet located in Baker, California.
+59 is the number of days, approximately in two lunar months.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
