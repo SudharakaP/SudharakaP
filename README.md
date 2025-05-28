@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-54 is the number of cards in a deck of playing cards, if two jokers are included.
+693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
