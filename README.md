@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-365 is the number of solar days in the mean tropical year.
+36 is the number of vehicles that run in each race of NASCAR's Camping World Truck Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
