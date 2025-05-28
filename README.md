@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000 is the weight in tons of the average iceberg.
+930000 is the number of words in the King James Version of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
