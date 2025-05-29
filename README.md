@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5000 is the number of base pairs in the DNA of the simplest viruses.
+225 is the longest distance in miles a deepwater lobster has been recorded to travel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
