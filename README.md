@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-229 is the lowest individual batting score not achieved by any player in test match cricket.
+218 is votes required in the US House of Representatives to achieve a majority as of 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
