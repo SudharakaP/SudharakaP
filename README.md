@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-208 is the heaviest stable isotope of any element (lead).
+1e+83 is the number of fundamental particles in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
