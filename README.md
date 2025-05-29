@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
+267 is the number of groups of order 64.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
