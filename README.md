@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-225 is the longest distance in miles a deepwater lobster has been recorded to travel.
+141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
