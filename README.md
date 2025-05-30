@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000 is the weight in tons of the average iceberg.
+7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
