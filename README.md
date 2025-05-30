@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-92 is the percentage of water in watermelons.
+159 is the number of counties in the state of Georgia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
