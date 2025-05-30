@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-32 is the percentage of employees in the USA who eat lunch and work at the same time.
+33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
