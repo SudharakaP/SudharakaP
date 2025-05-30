@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the average number of heartbeats per minute for a resting adult.
+159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
