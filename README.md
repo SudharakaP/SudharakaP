@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-65 is the minimum grade required to pass an exam, or class, in many areas.
+104 is the number of Corinthian columns in the Temple of Olympian Zeus, the largest temple ever built in Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
