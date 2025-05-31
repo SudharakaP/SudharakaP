@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the length in minutes of the Right Stuff.
+169 is the height in feet of The Oak Island Lighthouse on Oak Island, North Carolina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
