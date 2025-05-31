@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17 is the minimum driving age for a car or van in the United Kingdom.
+440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
