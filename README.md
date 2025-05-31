@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the TV series Third Watch ran on NBC from 1999 to 2005 with 132 episodes.
+66 is the total number of books in the Protestant edition of the Bible (Old Testament and New Testament) combined.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
