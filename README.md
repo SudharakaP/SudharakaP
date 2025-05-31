@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
