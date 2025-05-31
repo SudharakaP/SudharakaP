@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-911 is the number of days after September 11th that the Madrid Attack took place.
+6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
