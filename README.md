@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-214 is the SMTP status code for help message.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
