@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-496 is what the dimension of the gauge group must be for a superstring theory to make sense.
+43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
