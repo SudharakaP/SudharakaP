@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-131 is the number serving a monkiker for Indie music.
+85 is the IQ and nickname of Aaron in Alien 3.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
