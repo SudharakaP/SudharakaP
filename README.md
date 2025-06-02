@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
+390 is the speed in feet per second that nerve impulses for muscle position travel at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
