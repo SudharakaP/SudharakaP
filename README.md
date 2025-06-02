@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-52 is the number of white keys (notes in the C major scale).
+72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
