@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the population of Arguisuelas, Castile-La Mancha, Spain.
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
