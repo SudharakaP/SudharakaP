@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-115 is the atomic number of an element temporarily called ununpentium.
+360 is the number of degrees in a circle for the purpose of angular measurement.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
