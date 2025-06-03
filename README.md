@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-193 is species of monkeys and apes.
+178 is the atomic number of an element temporarily called Unseptoctium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
