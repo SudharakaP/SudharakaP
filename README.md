@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the total number of major and minor keys in Western tonal music, including enharmonic equivalents.
+148 is the number of episodes of the TV series The Fresh Prince of Bel-Air on NBC from 1990 to 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
