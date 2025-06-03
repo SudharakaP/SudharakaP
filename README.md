@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the height of Mount Victoria, Wellington, a prominent hill near Wellington, New Zealand.
+1096000000 is the population of India in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
