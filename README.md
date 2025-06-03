@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-155 is the number of performances Ivanhoe, the romantic opera that opened in January 31, 1891, ran for.
+2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
