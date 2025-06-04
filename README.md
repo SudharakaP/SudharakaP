@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-167 is the kilometers in length of Andros, Bahamas.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
