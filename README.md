@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-400000 is the number of morphine addicts the Civil War produced.
+4.52e+46 is the upper bound for the number of legal chess positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
