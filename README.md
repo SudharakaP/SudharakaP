@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the rank of Uruguay in world population.
+105 is the atomic number of hahnium, also known as dubnium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
