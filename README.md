@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-402000000 is the number of native speakers of English.
+221 is sMTP status code for service closing transmission channel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
