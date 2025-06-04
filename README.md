@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
+217 is the area code for central Illinois.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
