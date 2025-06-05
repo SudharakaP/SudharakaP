@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35 is the minimum age of candidates for election to the United States Presidency.
+198 is the atomic number of an element temporarily called Unennoctium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
