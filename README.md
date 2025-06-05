@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-70 is the number of years of marriage until the platinum wedding anniversary.
+196 is the population density in square kilometers of Italy, the fifth-highest population density in Europe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
