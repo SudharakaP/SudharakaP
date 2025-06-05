@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-153 is the ordinal number of the coat of arms of Komi Republic in the State Heraldic Register of the Russian Federation.
+1 is the loneliest number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
