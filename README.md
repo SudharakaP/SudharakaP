@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
+70 is the number of years of marriage until the platinum wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
