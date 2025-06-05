@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-16 is the minimum age that one can drop out of school in most states of the US (however, restrictions apply and vary depending on state).
+147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
