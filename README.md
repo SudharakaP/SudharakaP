@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-193 is species of monkeys and apes.
+169 is the height in feet of The Oak Island Lighthouse on Oak Island, North Carolina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
