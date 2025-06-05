@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
+110 is the age a person must attain in order to be considered a supercentenarian.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
