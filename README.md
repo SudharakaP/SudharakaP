@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61 is the code for international direct dial phone calls to Australia.
+158 is the number of verses of the national anthem of Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
