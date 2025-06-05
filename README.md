@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-158 is the number of verses of the national anthem of Greece.
+190 is the rank of Seychelles in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
