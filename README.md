@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-151 is total number of types of Pokémon in the original set.
+5 is the number of dots in a quincunx.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
