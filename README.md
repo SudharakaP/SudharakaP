@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
+361 is the number of positions on a standard 19 x 19 Go board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
