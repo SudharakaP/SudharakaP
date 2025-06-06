@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-24 is the maximum number of Knight Companions in the Order of the Garter.
+4000 is the weight in pounds that the Great White Shark can grow to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
