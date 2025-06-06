@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-62 is the atomic number of samarium.
+54 is the number of countries in Africa.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
