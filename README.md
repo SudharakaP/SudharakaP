@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-144 is the Intel 8086 instruction for no operation (NOP).
+45000000 is the number of turkeys Americans eat at Thanksgiving annually.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
