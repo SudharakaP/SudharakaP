@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
