@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-98 is the temperature (F) of the normal body.
+72 is the life duration of the ovule in hours.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
