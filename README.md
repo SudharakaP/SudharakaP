@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the earliest age that the emancipation of minors can occur in the U.S.
+199 is the number of points by Mario Lemieux in the 1988-1989 NHL season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
