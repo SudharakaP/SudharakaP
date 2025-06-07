@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4294967296 is the number of bytes in 4 gibibytes.
+175 is the rank of Belize in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
