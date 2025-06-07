@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the traffic emergency telephone number in China.
+220 is the SMTP code meaning "service ready".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
