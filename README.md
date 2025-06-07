@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-90 is the latitude of the North Pole and the South Pole.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
