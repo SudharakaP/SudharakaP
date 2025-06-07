@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-27 is the number of grains in some Buddhist rosary (108 divided by 4).
+176 is the rank of Madagascar 176 world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
