@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the consumption in pounds of candy annually per person in Denmark, the country with the highest candy consumption.
+25 is the number of cents in a quarter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
