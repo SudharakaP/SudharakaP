@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
+7e+27 is the number of atoms in the average human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
