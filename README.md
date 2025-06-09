@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-900000000 is the approximate number of trees cut down in a year to make the raw materials for US pulp mills and paper.
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
