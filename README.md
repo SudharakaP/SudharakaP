@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-463 is the number of days in the synodic period of Ceres.
+198 is the number of films that actor Harvey Clark appeared in between 1915 and 1938.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
