@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
+245 is the number of Jewish singers who returned from captivity in Babylon in circa 538 BCE BC following the rise of Cyrus the Great and the Persian Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
