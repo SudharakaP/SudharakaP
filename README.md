@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-202 is the area code assigned to Washington D.C.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
