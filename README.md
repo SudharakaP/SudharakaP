@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-118 is the atomic number of the element Ununoctium.
+172 is the record in miles per hour of John White's shot in squash.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
