@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7e+27 is the number of atoms in the average human body.
+10000000000000000000 is the estimated insect population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
