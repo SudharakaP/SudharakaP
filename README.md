@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
+214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
