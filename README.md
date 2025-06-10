@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is the number of the Vault that is the starting area of Fallout 3.
+240 is distinct solutions of the Soma cube puzzle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
