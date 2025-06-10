@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-116 is the prefix for several EU-wide telephone helplines designated as harmonised service of social value.
+104 is the atomic number of rutherfordium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
