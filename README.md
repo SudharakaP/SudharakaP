@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-114 is the number of chapter in the Quran, the holy book of Islam contains 114.
+614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
