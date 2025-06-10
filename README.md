@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-29 is the number of letters in the Turkish,Finnish, Swedish,Faroese,Danish and Norwegianalphabets.
+31 is the number of flavors of Baskin-Robbins ice cream.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
