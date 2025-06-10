@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-212 is the boiling point of water at sea level in Fahrenheit degrees.
+170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
