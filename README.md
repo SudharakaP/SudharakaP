@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is the total number of black and white squares on the game board in chess or draughts.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
