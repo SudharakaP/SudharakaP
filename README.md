@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the max number of shine sprites in Super Mario Sunshine.
+184 is a weight class in collegiate wrestling, 184 lb (83 kg).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
