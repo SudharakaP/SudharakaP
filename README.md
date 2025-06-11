@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-194 is the NHL record number of saves, set by Bruce Sutter in 1982.
+133 is the rank in world population for Albania.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
