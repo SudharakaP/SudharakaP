@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-181 is the number of 181 colleges, universities and other higher education institutions in Texas.
+500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
