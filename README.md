@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-133 is the rank in world population for Albania.
+-Infinity is negative infinity.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
