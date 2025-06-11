@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-23 is the number of minutes that all flashbacks take place before the assassination attempt on the president in the film Vantage Point.
+25 is the number of points needed to win a set in volleyball under rally scoring rules.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
