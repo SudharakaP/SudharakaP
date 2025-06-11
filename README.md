@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5 is the number of Justices on the Supreme Court of the United States necessary to render a majority decision.
+496 is what the dimension of the gauge group must be for a superstring theory to make sense.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
