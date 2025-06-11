@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is the temperature in Fahrenheit of milk when it leaves the body of a cow.
+200 is degrees in a human"s field of vision (approximately).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
