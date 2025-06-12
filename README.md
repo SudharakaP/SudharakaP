@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-36 is the number of vehicles that run in each race of NASCAR's Camping World Truck Series.
+108 is the number of suitors coveting Penelope, wife of Odysseus in Homer's Odyssey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
