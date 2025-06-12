@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1096000000 is the population of India in 2007.
+216 is the ISO's standard for paper sizes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
