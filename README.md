@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-46 is the number of slices of pizza an average American kid eats in a year.
+12 is the number of people who have walked on Earth's moon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
