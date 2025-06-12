@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-216 is the ISO's standard for paper sizes.
+2 is the price in cents per acre the USA bought Alaska from Russia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
