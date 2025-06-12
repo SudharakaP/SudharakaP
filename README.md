@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14500 is the number of unique English words occur in the King James Version of the Bible.
+562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
