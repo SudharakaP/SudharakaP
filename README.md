@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15250 is the number of times the average driver will honk in a lifetime.
+273 is the death toll of the air crash of American Airlines Flight 191.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
