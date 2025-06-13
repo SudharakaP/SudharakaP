@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3.457e+181 is the number of ways to arrange the tiles in English Scrabble on a standard 15-by-15 Scrabble board.
+205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
