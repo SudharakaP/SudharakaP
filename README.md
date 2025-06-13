@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
+176 is the rank of Madagascar 176 world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
