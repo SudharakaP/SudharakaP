@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
+112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
