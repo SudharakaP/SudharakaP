@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
+133 is the number of episodes of the TV series Good Times ran on CBS from 1974 to 1979.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
