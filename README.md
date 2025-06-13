@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is the length of the Judgment at Nuremberg measured in 186 minutes.
+5 is the number of basic "pillars" of Islam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
