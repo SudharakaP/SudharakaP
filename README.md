@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
+5500000000000000 is the number of estimated ants on Earth alive at any one time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
