@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
+9 is the number of circles of Hell in Dante's Divine Comedy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
