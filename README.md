@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
+8e+60 is the number of Planck time intervals since the Big Bang.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
