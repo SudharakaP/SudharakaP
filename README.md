@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
+2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
