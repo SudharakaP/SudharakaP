@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the population of Giry, France.
+81 is the number of squares on a shogi playing board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
