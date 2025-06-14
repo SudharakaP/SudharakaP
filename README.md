@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-176 is the number of verses in the longest chapter in the Bible, Psalm 119.
+220 is the SMTP code meaning "service ready".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
