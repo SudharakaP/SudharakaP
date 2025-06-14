@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-169 is miles that the Thames River flows through Ontario, Canada.
+169 is the height in feet of The Oak Island Lighthouse on Oak Island, North Carolina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
