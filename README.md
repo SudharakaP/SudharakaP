@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is number of golden disks in the myth of the Tower of Hanoi.
+131 is the medical emergency telephone number in Chile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
