@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100 is the record number of points scored in one NBA game by a single player, set by Wilt Chamberlain of the Philadelphia Warriors on March 2, 1962 I.
+206 is bones in the typical adult human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
