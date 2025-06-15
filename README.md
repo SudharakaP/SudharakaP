@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56 is the number of men who signed the United States Declaration of Independence in 1776.
+75 is the age in years that the Saguaro Cactus, found in southwestern US, must be to grow branches.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
