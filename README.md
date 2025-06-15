@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
+205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
