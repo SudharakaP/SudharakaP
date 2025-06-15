@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-66 is the number of hot dogs eaten by World record holder Joey Chestnut in 15 minutes.
+105 is the atomic number of hahnium, also known as dubnium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
