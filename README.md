@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-75 is the age in years that the Saguaro Cactus, found in southwestern US, must be to grow branches.
+135 is the height of the World's tallest thermometer in feet located in Baker, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
