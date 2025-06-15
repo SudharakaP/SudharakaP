@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-45000000000 is the approximate number of fat cells in an average adult.
+196 is the height of Mount Victoria, Wellington, a prominent hill near Wellington, New Zealand.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
