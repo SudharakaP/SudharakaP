@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-52 is the number of letters in the English alphabet, if majuscules are distinguished from minuscules.
+243 is the number of isotopes or variations of elements calculated by Dr. Plichta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
