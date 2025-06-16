@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-58 is the number of usable cells on a Hexxagon game board.
+366 is the number of days in a leap year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
