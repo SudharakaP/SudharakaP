@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-47 is the number of El-Aurians Scotty manages to beam up before their ship is destroyed by the energy ribbon.
+30 is the number of years that tarantulas can live up to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
