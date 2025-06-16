@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20000000000 is the approximate number of coconuts produced worldwide each year.
+78 is the total number of gifts in the song The Twelve Days of Christmas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
