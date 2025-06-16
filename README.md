@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the highest speed limit allowed in the United States between 1974 and 1986 per the National Maximum Speed Law.
+155 is the number of episodes the TV series Sea Hunt ran in syndication from 1958 to 1961.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
