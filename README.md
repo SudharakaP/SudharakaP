@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
+104 is the number of guns on Admiral Horatio Nelson's flagship HMS Victory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
