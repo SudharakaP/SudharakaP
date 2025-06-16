@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-243 is the number of isotopes or variations of elements calculated by Dr. Plichta.
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
