@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
+2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
