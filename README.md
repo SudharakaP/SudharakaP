@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the rank of "Maybe" (1957) by The Chantels on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
+440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
