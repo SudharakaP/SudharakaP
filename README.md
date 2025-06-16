@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1600000 is the number of people employed by the Indian railway system in India.
+176 is the number of verses in the longest chapter, the Psalm 119 of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
