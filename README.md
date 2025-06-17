@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the miles per hours that the fastest moving land snake, the Black Mamba, can move.
+182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
