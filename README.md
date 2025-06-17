@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-26 is the number of red cards as well as the number of blue cards in a normal deck of cards.
+538 is the total number of votes in the Electoral College of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
