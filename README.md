@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-850 is the maximum possible Fair Isaac credit score.
+166 is the number of episodes that the Flintstones ran on ABC from 1960 to 1966.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
