@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
+313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
