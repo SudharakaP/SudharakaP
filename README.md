@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17 is the number of the raka'ahs that Muslims perform during Salah on a daily basis.
+73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
