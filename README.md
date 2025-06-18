@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-137 is the California Penal Code for "Offer bribe to influence testimony".
+10000000000000000000 is the estimated insect population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
