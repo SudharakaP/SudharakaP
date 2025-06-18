@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-47 is the number of El-Aurians Scotty manages to beam up before their ship is destroyed by the energy ribbon.
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
