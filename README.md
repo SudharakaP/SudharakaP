@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6800 is the approximate number of languages in the world.
+139 is the number of unlabeled topologies with 5 elements.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
