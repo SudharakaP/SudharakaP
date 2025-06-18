@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-86 is the device number for a lockout relay function in electrical circuit protection schemes.
+4 is the number of characters in a canonical four-character idiom in Chinese.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
