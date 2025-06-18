@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+17 is the number of the raka'ahs that Muslims perform during Salah on a daily basis.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
