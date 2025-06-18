@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-18 is the number of levels in hell in the Chinese mythos.
+144 is the number of months in 12 years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
