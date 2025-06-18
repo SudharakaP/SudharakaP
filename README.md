@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-105 is the number of surat al-Fil in the Qur'an.
+135 is the hottest temperature ever measured in the United States in Fahrenheit  at Death Valley, California on July 10, 1913.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
