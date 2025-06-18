@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4 is the number of characters in a canonical four-character idiom in Chinese.
+242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
