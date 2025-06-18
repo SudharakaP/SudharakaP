@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-194 is the number of episodes of I Love Lucy that ran on CBS from 1951 to 1960.
+343 is the number of New York City Firefighters who died on September 11, 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
