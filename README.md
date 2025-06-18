@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-85 is the IQ and nickname of Aaron in Alien 3.
+137 is the California Penal Code for "Offer bribe to influence testimony".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
