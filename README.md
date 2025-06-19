@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
