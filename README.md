@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-194 is the number of episodes of Will & Grace that ran on NBC from 1998 to 2006.
+714 is the number of home runs Babe Ruth scored in his career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
