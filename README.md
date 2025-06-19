@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-20 is the number of baby teeth in the deciduous dentition.
+192 is the number of episodes with Moose, a dog, playing Eddie Crane on Frasier.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
