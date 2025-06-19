@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the speed limit, in kilometers per hour, of Australian roads with unspecified limits.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
