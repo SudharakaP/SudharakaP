@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-42 is the sum of the codes of the letters in the words "BIG BANG" using the encoding A=1, B=2, C=3, etc.
+29 is the number of letters in the Turkish,Finnish, Swedish,Faroese,Danish and Norwegianalphabets.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
