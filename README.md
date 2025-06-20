@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is the number of hair strands used to animate Rapunzel's 70 meter long hair in Tangled (2010).
+108 is a number prominently related in the symbolism associated with karate, particularly the GÅjÅ«-ryÅ« discipline.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
