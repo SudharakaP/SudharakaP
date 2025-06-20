@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100000 is the number of verses (shlokas) in the Mahabharata.
+27 is the number of outs in a regulation baseball game for each team at all adult levels.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
