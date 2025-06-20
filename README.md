@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
+173 is the number of hair strands used to animate Rapunzel's 70 meter long hair in Tangled (2010).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
