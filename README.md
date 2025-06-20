@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is the number of demons in the Dictionnaire Infernal.
+511 is the number of collaborators mathematician Paul Erdős had.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
