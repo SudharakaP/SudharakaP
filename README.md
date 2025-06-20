@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7e+27 is the number of atoms in the average human body.
+44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
