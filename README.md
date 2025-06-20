@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
