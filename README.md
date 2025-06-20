@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
+22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
