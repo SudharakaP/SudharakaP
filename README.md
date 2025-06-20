@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-245 is the number of Jewish singers who returned from captivity in Babylon in circa 538 BCE BC following the rise of Cyrus the Great and the Persian Empire.
+59 is the number on a button commonly worn by feminist activists in the 1970s (based on the claim that a woman earned 59 cents to an equally qualified man's dollar).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
