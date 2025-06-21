@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the distance in feet the Hampstead London Underground station is below ground level.
+102 is the number of floors in Empire State Building in New York City.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
