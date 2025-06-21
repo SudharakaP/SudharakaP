@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the maximum number of power stars a player can get in Super Mario 64 for the Nintendo 64.
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
