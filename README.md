@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-243 is the number of Earth Days for the planet Venus to complete one Venetian day, one revolution.
+217 is the room in Stephen King's novel "The Shining", that plays a central part in the story as it is haunted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
