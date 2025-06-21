@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the number of runs that Ollie Beard had in his MLB career from 1889-1891.
+100000 is the number of thunderstorms that occur in the USA every year, of which 10% are classified as severe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
