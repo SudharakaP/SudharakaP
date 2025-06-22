@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-97 is the number of leap days that the Gregorian calendar contains in its cycle of 400 years.
+85 is the atomic number of astatine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
