@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the average number of minutes in a day that kids in the U.S. between the ages of 2 - 8 spend coloring.
+50 is the approximate number of times a mother hen turns her egg in a day so the yolk does not stick to the shell.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
