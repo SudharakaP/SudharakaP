@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
+70 is the number of years of marriage until the platinum wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
