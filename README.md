@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-123 is the medical emergency telephone number in Egypt.
+151 is total number of types of Pokémon in the original set.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
