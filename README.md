@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-218 is votes required in the US House of Representatives to achieve a majority as of 2008.
+135 is the hottest temperature ever measured in the United States in Fahrenheit  at Death Valley, California on July 10, 1913.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
