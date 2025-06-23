@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-538 is the total number of votes in the Electoral College of the United States.
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
