@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4e+185 is the number of planck volumes in the observable universe.
+118 is the medical and Alpine rescue emergency telephone number in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
