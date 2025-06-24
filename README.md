@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17 is the number of the raka'ahs that Muslims perform during Salah on a daily basis.
+536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
