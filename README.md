@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-199 is the number of points by Mario Lemieux in the 1988-1989 NHL season.
+7e+22 is the number of stars within range of telescopes (as of 2003).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
