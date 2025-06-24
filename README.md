@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-45 is the sapphire wedding anniversary in years of marriage.
+273 is the zero of the Celsius temperature scale (to the nearest whole number) in Kelvin.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
