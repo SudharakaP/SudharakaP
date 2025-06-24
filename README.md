@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1 is the number of dimensions of a line.
+587 is the outgoing port for email message submission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
