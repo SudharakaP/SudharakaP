@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
+4000 is the weight in pounds that the Great White Shark can grow to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
