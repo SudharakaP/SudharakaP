@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-364 is the total number of gifts received in the song "The Twelve Days of Christmas".
+1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
