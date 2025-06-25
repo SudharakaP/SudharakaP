@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-112 is the number of surat al-Ikhlas in the Qur'an.
+2 is the number of polynucleotide strands in a DNA double helix.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
