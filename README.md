@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-70 is the number of years of marriage until the platinum wedding anniversary.
+126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
