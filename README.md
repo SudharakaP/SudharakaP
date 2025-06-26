@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-116 is the atomic number of an element temporarily called ununhexium.
+46 is the number of human chromosomes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
