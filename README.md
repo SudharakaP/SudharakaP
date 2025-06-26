@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-82 is the atomic number of lead.
+714 is the number of home runs Babe Ruth scored in his career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
