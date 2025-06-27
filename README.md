@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-198 is the rank of Finland in population density.
+230 is the country code for Mauritius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
