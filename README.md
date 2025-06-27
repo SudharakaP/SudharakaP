@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-126 is the atomic number of unbihexium, an element that has not yet been discovered.
+42 is the number of gallons that one barrel of petroleum holds.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
