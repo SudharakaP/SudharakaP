@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
+101 is the number identifying number of several infantry units in various militaries across the world, such as the American and Israeli paratrooper brigades.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
