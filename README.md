@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-139 is the all-time record number of rugby union international appearances made by Australia scrum-half George Gregan.
+998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
