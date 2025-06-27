@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
+120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
