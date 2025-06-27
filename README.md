@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1400000 is the number of species that have been named by the World Resources Institute.
+147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
