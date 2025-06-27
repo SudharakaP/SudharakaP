@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
+4000 is the weight in pounds that the Great White Shark can grow to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
