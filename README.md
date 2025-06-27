@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is the number identifying number of several infantry units in various militaries across the world, such as the American and Israeli paratrooper brigades.
+1311000000 is the population of the People's Republic of China in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
