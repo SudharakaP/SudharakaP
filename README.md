@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-75 is the age in years that the Saguaro Cactus, found in southwestern US, must be to grow branches.
+225 is the longest distance in miles a deepwater lobster has been recorded to travel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
