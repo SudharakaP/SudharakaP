@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-118 is the atomic number of the element Ununoctium.
+69 is the atomic number of thulium, a lanthanide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
