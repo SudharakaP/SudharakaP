@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-67890 is the number of largest decimal places of π that have been recited from memory.
+200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
