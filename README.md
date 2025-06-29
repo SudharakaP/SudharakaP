@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-190 is the number of member states of the United Nations.
+54 is the score in golf colloquially referred to as a perfect round.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
