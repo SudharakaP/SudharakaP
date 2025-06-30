@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-128 is a sacred number honored by Beans for many generations.
+10000 is the number of other neurons each neuron is connected to in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
