@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the maximum number of electrons that can fit in an f sublevel.
+400000000000 is the number of stars in the Milky Way galaxy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
