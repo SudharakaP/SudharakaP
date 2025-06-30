@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-209 is the basketball record for most three pointers in a row.
+131 is the medical emergency telephone number in Chile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
