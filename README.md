@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is the atomic number of an element temporarily called ununtrium.
+433 is the perfect score in the game show Fifteen To One, only ever achieved once in over 2000 shows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
