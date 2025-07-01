@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1337 is the weight in pounds of the biggest pumpkin in the world.
+44 is the number of candles in a box of Hanukkah candles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
