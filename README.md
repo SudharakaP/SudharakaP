@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
+91 is the code for international direct dial phone calls to India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
