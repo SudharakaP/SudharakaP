@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
+123 is the Notation for national and international telephone numbers Recommendation ITU-T Recommendation E.123 defines a standard way to write telephone numbers, e-mail addresses, and web addresses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
