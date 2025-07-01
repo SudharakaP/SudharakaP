@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-68 is the ideal temperature (F) for developing black-and-white film.
+120 is the maximum number of power stars a player can get in Super Mario 64 for the Nintendo 64.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
