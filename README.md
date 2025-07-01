@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
+40000000 is the number of times lightning hits the ground 40 million times a year in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
