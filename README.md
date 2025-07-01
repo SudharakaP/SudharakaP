@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-192 is the distance in feet the Hampstead London Underground station is below ground level.
+4200000 is the number of couples in the United States that live together but are not married.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
