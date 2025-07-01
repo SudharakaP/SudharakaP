@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the maximum number of power stars a player can get in Super Mario 64 for the Nintendo 64.
+162 is 162 is the total number of baseball games each team plays during a regular season in Major League Baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
