@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
+5000 is the number of base pairs in the DNA of the simplest viruses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
