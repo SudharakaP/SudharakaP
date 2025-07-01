@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56 is the age of Mao Zedong when the People's Republic of China was established on Oct. 1, 1949.
+243 is the number of Earth Days for the planet Venus to complete one Venetian day, one revolution.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
