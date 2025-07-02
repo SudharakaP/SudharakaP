@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-149000000 is the number of kilometres from the Earth the sun is.
+Infinity is the estimation of the game-tree complexity in the game of Go.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
