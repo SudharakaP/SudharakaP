@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-106 is the maximum number of characters filenames can have in Joliet, an extension to the ISO 9660 file system.
+139 is the number of episodes of the TV series 3rd Rock from the Sun that ran on NBC from 1996 to 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
