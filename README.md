@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-170 is largest integer for which Google"s built-in calculator function can compute the factorial.
+755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
