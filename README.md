@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+300 is the number of pounds per square inch of pressure to break the shell of Macadamia nuts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
