@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-68 is the ideal temperature (F) for developing black-and-white film.
+65 is the minimum grade required to pass an exam, or class, in many areas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
