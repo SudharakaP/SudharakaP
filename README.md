@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-52 is the number of white keys (notes in the C major scale).
+92 is the number of letters in the longest place name: Taumatawhakatangihangakoauauotamateaurehaeaturipukakapikimaungahoronukupokaiwhenuakitanatahu.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
