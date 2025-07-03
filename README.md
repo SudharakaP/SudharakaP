@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is the first course in a subject taught at a college or university in Australia, Canada, South Africa, or the United States.
+45000000000 is the approximate number of fat cells in an average adult.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
