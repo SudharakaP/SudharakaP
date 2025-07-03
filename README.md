@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-255 is the largest representable integer in an unsigned byte.
+230 is the country code for Mauritius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
