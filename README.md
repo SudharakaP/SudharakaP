@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-365 is the number of solar days in the mean tropical year.
+113 is the number of surat al-Falaq in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
