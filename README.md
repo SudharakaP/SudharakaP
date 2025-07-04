@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-125000 is the number of average strands of hair in the human head.
+500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
