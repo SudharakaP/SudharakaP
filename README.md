@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is the number of the first check for new checking account in the US.
+7e+22 is the number of stars within range of telescopes (as of 2003).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
