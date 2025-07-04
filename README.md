@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-159 is the number of counties in the state of Georgia.
+175 is the weight in grams of a flying disc used in Ultimate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
