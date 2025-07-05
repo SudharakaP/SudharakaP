@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-179 is the number of even numbered days of the year.
+52 is the number of letters in the English alphabet, if majuscules are distinguished from minuscules.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
