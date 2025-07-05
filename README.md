@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the number of days in the average human menstrual cycle.
+26 is the number of spacetime dimensions in bosonic string theory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
