@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-53 is the port number of UDP and TCP for the Domain Name System protocol.
+124 is the atomic number of the yet-to-be-discovered element unbiquadium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
