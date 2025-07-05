@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the price in cents per acre the USA bought Alaska from Russia.
+163 is the atomic number of an element temporarily called Unhextrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
