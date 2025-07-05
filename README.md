@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1728 is braces were first invented by Pierre Fauchard.
+171 is the atomic number of an element called Ununseptunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
