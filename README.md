@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
