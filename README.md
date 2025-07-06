@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-133 is the rank in world population for Albania.
+16 is the number of personality types in the Myers-Briggs classification system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
