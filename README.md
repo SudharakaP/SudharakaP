@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-493 is the number of bronze knuts equivalent to one gold galleon, in the monetary system of the world of Harry Potter.
+118 is the number of ridges a U.S. dime has around its edge.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
