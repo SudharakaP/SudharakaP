@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-111 is the atomic number of the element roentgenium (Rg).
+404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
