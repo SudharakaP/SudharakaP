@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15 is the length in miles of a train of boxcars that can be filled from recycled paper in the USA every day.
+1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
