@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14 is the number of days in a fortnight.
+189 is the atomic number of an element temporarily called Unoctennium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
