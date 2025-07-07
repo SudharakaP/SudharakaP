@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35 is the basic film gauge in mm most commonly used for both analog photography and motion pictures.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
