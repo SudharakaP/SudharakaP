@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the height of the World's tallest thermometer in feet located in Baker, California.
+108 is the number of suitors coveting Penelope, wife of Odysseus in Homer's Odyssey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
