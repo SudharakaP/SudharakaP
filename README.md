@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
+240 is distinct solutions of the Soma cube puzzle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
