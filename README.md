@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-343 is the number of frames in which U.S. President John F. Kennedy's presidential limousine can be seen in the Zapruder film.
+361 is the number of positions on a standard 19 x 19 Go board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
