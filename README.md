@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-201 is the Saros cycle; the next solar eclipse in this cycle is predicted to take place in AD 3223.
+155 is the number of episodes the TV series Sea Hunt ran in syndication from 1958 to 1961.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
