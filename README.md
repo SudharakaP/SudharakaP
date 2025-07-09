@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000 is the gallons of saliva an average human produces in a lifetime.
+208 is the heaviest stable isotope of any element (lead).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
