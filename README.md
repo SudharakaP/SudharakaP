@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-73 is the percentage of girls in Bangladesh that are married by age 18.
+5e+30 is the number of bacterial cells on Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
