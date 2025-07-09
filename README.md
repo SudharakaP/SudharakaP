@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-239 is the atomic mass number of the most common isotope of plutonium.
+176 is the number of verses in the longest chapter, the Psalm 119 of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
