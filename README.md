@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
