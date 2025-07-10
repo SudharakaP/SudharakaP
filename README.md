@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-85 is the IQ and nickname of Aaron in Alien 3.
+364 is the total number of gifts received in the song "The Twelve Days of Christmas".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
