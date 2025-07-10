@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-128 is the bytes of memory of the Atari 2600 console.
+1e+83 is the number of fundamental particles in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
