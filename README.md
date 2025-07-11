@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
+156 is the number of years that Hong Kong was under British colony rule.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
