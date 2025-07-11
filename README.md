@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
+158 is days it took for the Surprize ship that set sail from England on January 19, 1790, to make port in Port Jackson, Sydney, Australia on June 26, 158 days later.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
