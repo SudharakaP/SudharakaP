@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the pairs of ribs normally in the human body.
+198 is the number of films that actor Neal Burns appeared in between 1915 and 1946.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
