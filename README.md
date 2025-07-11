@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-128 is the atomic number of unbioctium, an element yet to be discovered.
+1337 is the weight in pounds of the biggest pumpkin in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
