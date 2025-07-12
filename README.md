@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5600 is the number of metres above sea level of the highest bridge in the world, located in the Himalayan mountains.
+199 is the number of hits MLB pitcher Alex Jones gave up in his career from 1889-1903.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
