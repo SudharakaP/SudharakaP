@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is a number considred unlucky in enduro, given to a race entrant and is colloquially known as a "blind pew".
+26 is the number of red cards as well as the number of blue cards in a normal deck of cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
