@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
+4.52e+46 is the upper bound for the number of legal chess positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
