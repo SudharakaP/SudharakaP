@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-38 is the number of surviving plays written by William Shakespeare.
+12 is the number of people who have walked on Earth's moon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
