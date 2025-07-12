@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-129 is the atomic number of Unbiennium, an element yet to be discovered.
+12 is the largest number that has just one syllable.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
