@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-181 is the rider number given to Lance Armstrong in 1999 when he won his first of seven Tour de France consecutive victories.
+3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
