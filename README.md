@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-720 is five gross (= 500 duodecimal, 5 × 144).
+56 is the number of officially recognized ethnic groups in the list of ethnic groups in China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
