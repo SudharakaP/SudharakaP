@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-61 is the number of points required to win a "standard" game of Cribbage.
+121 is the official end score for Cribbage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
