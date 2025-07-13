@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-525 is the number of scan lines in the NTSC television standard.
+2055001 is the number of people employed by Wal-mart in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
