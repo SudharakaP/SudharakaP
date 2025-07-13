@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-136 is the hottest temperature ever recorded in Fahrenheits at Aziziya, Libya in September 1922.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
