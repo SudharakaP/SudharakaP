@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-220 is the common voltage in many countries.
+42 is the angle in degrees for which a rainbow appears or the critical angle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
