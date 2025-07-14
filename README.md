@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1337 is the weight in pounds of the biggest pumpkin in the world.
+43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
