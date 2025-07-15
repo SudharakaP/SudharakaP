@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
+195 is the population of Guedanga, in the Ouo Department of ComoÃ© Province, Burkina Faso.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
