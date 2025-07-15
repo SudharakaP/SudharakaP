@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-180 is the standard number of days in the school year in most areas of the USA.
+124 is the rank of the Palestinian territories in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
