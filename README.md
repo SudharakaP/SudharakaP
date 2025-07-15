@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the population of Guedanga, in the Ouo Department of ComoÃ© Province, Burkina Faso.
+950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
