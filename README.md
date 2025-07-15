@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
+167 is the number of tennis titles Martina Navratilova has, an all-time record for men or women.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
