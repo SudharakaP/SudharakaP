@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is the size in bits of certain data types in some computer programming languages.
+220 is the SMTP code meaning "service ready".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
