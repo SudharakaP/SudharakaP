@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-135 is the cartridge version of 35mm photographic film, used widely in still photogaphy.
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
