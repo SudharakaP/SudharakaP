@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-235 is the atomic mass number of an important isotope of the element uranium, the fissile isotope which is used as the fuel for nuclear reactors and in some nuclear weapons.
+56 is the age of Mao Zedong when the People's Republic of China was established on Oct. 1, 1949.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
