@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the highest obtainable level on World of Warcraft (not including expansions).
+73 is the percentage of girls in Bangladesh that are married by age 18.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
