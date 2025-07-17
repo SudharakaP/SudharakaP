@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-39 is the number of books in the Old Testament according to Protestant canon.
+12 is the largest number that has just one syllable.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
