@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-202 is the area code assigned to Washington D.C.
+179 is the rank of Guam in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
