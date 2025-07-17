@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-56 is the age of Mao Zedong when the People's Republic of China was established on Oct. 1, 1949.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
