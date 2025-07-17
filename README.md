@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-496 is what the dimension of the gauge group must be for a superstring theory to make sense.
+56 is the age of Mao Zedong when the People's Republic of China was established on Oct. 1, 1949.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
