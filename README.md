@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1 is the number of Gods in monotheism.
+192 is the rank of Sweden in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
