@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
+32 is the number of teeth of a full set of teeth in an adult human, including wisdom teeth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
