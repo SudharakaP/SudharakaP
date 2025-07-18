@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
+159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
