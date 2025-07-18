@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2055001 is the number of people employed by Wal-mart in 2007.
+11 is the number of players in an American football team on the field at one time during play.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
