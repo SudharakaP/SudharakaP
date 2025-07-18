@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
+120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
