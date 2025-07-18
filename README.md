@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-153 is the frequency in kHz of of the longwave transmitters Donebach, Ingøy, Braşov, and Kenadsa.
+64 is number of codons in the RNA codon table under genetic code.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
