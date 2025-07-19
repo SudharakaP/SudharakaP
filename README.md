@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the highest obtainable level on World of Warcraft (not including expansions).
+183 is the rank of Laos in countries by population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
