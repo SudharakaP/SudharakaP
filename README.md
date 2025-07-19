@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-45 is the sapphire wedding anniversary in years of marriage.
+60 is the highest obtainable level on World of Warcraft (not including expansions).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
