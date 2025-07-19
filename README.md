@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-511 is the number of collaborators mathematician Paul Erdős had.
+22 is the number of yards in a chain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
