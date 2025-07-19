@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-128 is the atomic number of unbioctium, an element yet to be discovered.
+62 is the number which Sigmund Freud has an irrational fear of.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
