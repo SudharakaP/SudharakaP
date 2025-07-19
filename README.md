@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-390 is the speed in feet per second that nerve impulses for muscle position travel at.
+149 is the number of legal proceedings against 149 communists in Estonia in 1924.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
