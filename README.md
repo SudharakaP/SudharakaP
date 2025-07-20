@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-72 is the number of episodes in the original airing of Futurama.
+123 is the medical emergency telephone number in Egypt.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
