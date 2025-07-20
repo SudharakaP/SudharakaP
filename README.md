@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the number of feet below ground level a coffin is traditionally buried.
+168 is the number of home runs that José Hernández hit in his MLB career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
