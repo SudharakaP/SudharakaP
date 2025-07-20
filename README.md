@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the number of runs Pakistan was shot out o hand over the World cup trophy to a strong australian team in the Cricket World Cup 1999.
+205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
