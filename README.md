@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-38 is the number of games that each team in the current English Premiership, the top division in English Association Football, plays in a season.
+100000 is the number of verses (shlokas) in the Mahabharata.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
