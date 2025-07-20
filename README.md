@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1600000 is the number of people employed by the Indian railway system in India.
+6 is the number of feet below ground level a coffin is traditionally buried.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
