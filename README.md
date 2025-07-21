@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-183 is the rank of the U.S. Virgin Islands in world population.
+230 is the common voltage in the European Union.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
