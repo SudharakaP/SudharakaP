@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4000 is the weight in pounds that the Great White Shark can grow to.
+35000 is the number of genes in a human being.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
