@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the traffic emergency telephone number in China.
+23 is the number of crosses on Calvary in the Monty Python film Life Of Brian.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
