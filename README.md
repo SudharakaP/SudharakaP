@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the highest speed limit allowed in the United States between 1974 and 1986 per the National Maximum Speed Law.
+10000 is the gallons of saliva an average human produces in a lifetime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
