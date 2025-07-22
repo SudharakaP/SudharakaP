@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is the TCP port used for POP3 email protocol.
+213 is the name of a hip hop, active 1990-2004.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
