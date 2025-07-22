@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
+1096000000 is the population of India in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
