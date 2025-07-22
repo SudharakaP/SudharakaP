@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
+161 is the number of episodes the TV series The Avengers ran from 1961 to 1969.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
