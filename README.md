@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+108 is the number of moves in several different Taijiquan long forms.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
