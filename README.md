@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-96 is the rating of Skyrim on metacritic.com.
+187 is 187th Street in the Washington Heights section of Manhattan.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
