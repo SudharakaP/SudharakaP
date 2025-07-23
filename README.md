@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-108 is the number of moves in several different Taijiquan long forms.
+208 is the heaviest stable isotope of any element (lead).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
