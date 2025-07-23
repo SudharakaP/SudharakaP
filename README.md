@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-120 is the maximum number of power stars a player can get in Super Mario 64 for the Nintendo 64.
+182 is the atomic number of an element temporarily called Unoctbium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
