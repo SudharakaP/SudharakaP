@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-123 is the electricity emergency telephone number in Indonesia.
+20000000 is the weight in tons of the average iceberg.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
