@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-0 is the atomic number of the theoretical element tetraneutron.
+204 is the HTTP status code indicating the request was received but there is no response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
