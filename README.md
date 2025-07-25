@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the number of constellations in the ecliptic (or signs of the zodiac).
+129 is the atomic number of Unbiennium, an element yet to be discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
