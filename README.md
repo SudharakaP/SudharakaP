@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-129 is the atomic number of Unbiennium, an element yet to be discovered.
+58 is the number of usable cells on a Hexxagon game board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
