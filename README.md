@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100 is the minimum distance in yards for a Par 3 on a golf course.
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
