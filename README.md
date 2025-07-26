@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-197 is the number of episodes of the Cosby Show that ran on NBC from 1984-1992.
+67890 is the number of largest decimal places of π that have been recited from memory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
