@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-21 is the number of demands which were sent to the Chinese government by the Japanese government of Okuma Shigenobu in 1915.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
