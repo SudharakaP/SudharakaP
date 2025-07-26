@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-33 is the temperature at which water boils according to the Newton scale.
+98 is the temperature (F) of the normal body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
