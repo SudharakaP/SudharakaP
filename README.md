@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-555 is the number of keyboard sonatas written by Domenico Scarlatti, according to the catalog by Ralph Kirkpatrick.
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
