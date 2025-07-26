@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35000 is the number of genes in a human being.
+194 is the number of episodes of I Love Lucy that ran on CBS from 1951 to 1960.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
