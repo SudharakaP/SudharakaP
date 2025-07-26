@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-402000000 is the number of native speakers of English.
+80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
