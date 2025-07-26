@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-110 is the age a person must attain in order to be considered a supercentenarian.
+1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
