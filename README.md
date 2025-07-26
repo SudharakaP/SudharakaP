@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
