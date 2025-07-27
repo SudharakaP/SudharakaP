@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-240 is the common voltage in England and Australia before conversion to 230V standard.
+114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
