@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-153 is the code for malignant neoplasm of the colon in the International Statistical Classification of Diseases and Related Health Problems.
+10000 is the gallons of saliva an average human produces in a lifetime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
