@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
