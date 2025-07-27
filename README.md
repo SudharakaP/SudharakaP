@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-104 is the number of Corinthian columns in the Temple of Olympian Zeus, the largest temple ever built in Greece.
+204 is the HTTP status code indicating the request was received but there is no response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
