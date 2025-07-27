@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-194 is the NHL record number of saves, set by Bruce Sutter in 1982.
+5600 is the number of metres above sea level of the highest bridge in the world, located in the Himalayan mountains.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
