@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-181 is the number of athletes from Belarus competed in 28 events at the 2008 Olympics in Beijing.
+82 is the number of games in an NBA or NHL regular season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
