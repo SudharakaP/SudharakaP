@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the number worn by LeBron James in the NBA.
+538 is the total number of votes in the Electoral College of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
