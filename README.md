@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
+185 is the distance a single playing card was thrown in feet by Kevin St. Onge to set a Guinness World Record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
