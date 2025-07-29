@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
+384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
