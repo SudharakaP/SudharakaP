@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
+361 is the number of positions on a standard 19 x 19 Go board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
