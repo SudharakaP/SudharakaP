@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-201 is the Saros cycle; the next solar eclipse in this cycle is predicted to take place in AD 3223.
+146 is the Guinness World Record for the most languages a poem was recited in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
