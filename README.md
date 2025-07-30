@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
+433 is the perfect score in the game show Fifteen To One, only ever achieved once in over 2000 shows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
