@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-74 is the atomic number of tungsten.
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
