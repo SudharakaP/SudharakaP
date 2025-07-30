@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-152 is the number of diapers solder in a Pampers Swaddlers pack.
+151 is total number of types of Pokémon in the original set.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
