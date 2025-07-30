@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
+27 is the number of outs in a regulation baseball game for each team at all adult levels.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
