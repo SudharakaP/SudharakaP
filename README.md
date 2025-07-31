@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
+493 is the number of Pokémon species, from the first set through the fourth generation as of August 2009.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
