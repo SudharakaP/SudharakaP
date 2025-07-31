@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-33 is the temperature at which water boils according to the Newton scale.
+13 is the number of colonies that formed the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
