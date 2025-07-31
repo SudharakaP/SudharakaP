@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-29 is the number of letters in the Turkish,Finnish, Swedish,Faroese,Danish and Norwegianalphabets.
+267 is the number of groups of order 64.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
