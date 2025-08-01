@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-171 is the top speed in miles per hours of the the Porsche Cayenne Turbo S automobile.
+184 is a weight class in collegiate wrestling, 184 lb (83 kg).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
