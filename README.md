@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-37 is the cost in cents of the Whopper Sandwich when Burger King first introduced it in 1957.
+61000 is the average number of people airborne over the US at any given hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
