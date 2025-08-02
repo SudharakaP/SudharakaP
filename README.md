@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
+2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
