@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-199 is steps to the top of the Cape May Lighthouse in Cape May, New Jersey.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
