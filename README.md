@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-173 is the rank of Faroe Islands (Denmark) in world population density.
+172000 is tons of chocolate produced in Belgium in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
