@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-78 is the total number of gifts in the song The Twelve Days of Christmas.
+10000000000000000000 is the estimated insect population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
