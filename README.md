@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-29 is the number of attributes existing according to The Strokes in You Only Live Once.
+101 is is the atomic number of mendelevium, an actinide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
