@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35000 is the number of genes in a human being.
+11 is the number of players on a soccer team on the field at a time as well as in a cricket team.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
