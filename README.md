@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-14500 is the number of unique English words occur in the King James Version of the Bible.
+37 is the number of slots in European Roulette (numbered 0 through 36, the 00 is not used in European roulette as it is in American roulette).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
