@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50000000 is the approximate number of people who fish per year in the United States.
+150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
