@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-149000000 is the number of kilometres from the Earth the sun is.
+56 is the maximum speed of analog data transmission over a POTS in the 20th century measured in kbit/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
