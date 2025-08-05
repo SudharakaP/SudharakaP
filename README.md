@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
+100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
