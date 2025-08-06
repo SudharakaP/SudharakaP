@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is the atomic number of an element temporarily called Unocthexium.
+1728 is braces were first invented by Pierre Fauchard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
