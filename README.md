@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
+336 is the number of dimples on an American golf ball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
