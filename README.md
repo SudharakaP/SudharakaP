@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4.52e+46 is the upper bound for the number of legal chess positions.
+154 is the period in days that the sun follows on gamma-ray flares.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
