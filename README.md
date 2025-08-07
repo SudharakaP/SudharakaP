@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6800 is the approximate number of languages in the world.
+197 is the number of years that Fu Xi lived for altogether.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
