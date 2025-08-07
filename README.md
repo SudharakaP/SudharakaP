@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is the minimum odd number of voting components for simple easy redundancy checks by direct comparison.
+212 is the boiling point of water at sea level in Fahrenheit degrees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
