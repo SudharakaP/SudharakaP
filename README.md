@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-123 is the atomic number of the yet-to-be-discovered element unbitrium.
+161 is the number of songs Pink Floyd recorded.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
