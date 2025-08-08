@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is the number of points received for a successful field goal in both American football and Canadian football.
+97 is the atomic number of berkelium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
