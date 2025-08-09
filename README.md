@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-187 is a signature wrestling move by wrestler New Jack (diving elbow drop while holding a steel chair underneath his arm).
+171 is the top speed in miles per hours of the the Porsche Cayenne Turbo S automobile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
