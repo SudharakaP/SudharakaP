@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-600 is the maximum credit score considered poor, thus limiting available credit in the USA.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
