@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100 is the approximate number of eyes a scallop has around the edge of its shell.
+100000 is the number of verses (shlokas) in the Mahabharata.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
