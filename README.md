@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-285 is the total number of Rules of Acquisition in Star Trek.
+107 is a common police code denoting a suspicious person.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
