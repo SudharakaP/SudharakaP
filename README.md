@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
+364 is the total number of gifts received in the song "The Twelve Days of Christmas".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
