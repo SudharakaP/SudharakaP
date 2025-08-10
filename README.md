@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-126 is the number of years that Gilgamesh reigned according to the Sumerian king list.
+19 is the final year a person is a teenager.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
