@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4e+185 is the number of planck volumes in the observable universe.
+336 is the number of dimples on an American golf ball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
