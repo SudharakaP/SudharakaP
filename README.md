@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
+4e+185 is the number of planck volumes in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
