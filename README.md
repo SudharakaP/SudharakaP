@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-11 is the approximate periodicity of a sunspot cycle in years.
+525998433 is the number of distinct websites as of November 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
