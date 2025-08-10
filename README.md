@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-100000 is the number of verses (shlokas) in the Mahabharata.
+221 is sMTP status code for service closing transmission channel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
