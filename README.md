@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
