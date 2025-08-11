@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-75 is the age limit for Canadian senators.
+83 is the atomic number of bismuth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
