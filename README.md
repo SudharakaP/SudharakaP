@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-206 is the number of bones in the typical adult human body.
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
