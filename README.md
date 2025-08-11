@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-42 is the answer to the Ultimate Question of Life, the Universe, and Everything.
+251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
