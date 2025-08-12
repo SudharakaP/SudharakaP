@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-39 is the duration, in nanoseconds, of the nuclear reaction in the largest nuclear explosion ever performed (Tsar bomb).
+16 is the minimum age for getting an adult job in most states and provinces across the globe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
