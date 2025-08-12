@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-146 is the Guinness World Record for the most languages a poem was recited in.
+117 is the atomic number of a recently discovered element temporarily called ununseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
