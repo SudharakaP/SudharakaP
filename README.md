@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3000 is the number of years for which Carpenter ants have been used to close wounds in parts of India, Asia and South America.
+63 is the number of chromosomes found in the offspring of a donkey and a horse.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
