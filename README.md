@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the number of runs by Dick Culler in his Major League Baseball career from 1936-1949.
+2055001 is the number of people employed by Wal-mart in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
