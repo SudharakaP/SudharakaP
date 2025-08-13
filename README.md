@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-63 is the number of chromosomes found in the offspring of a donkey and a horse.
+44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
