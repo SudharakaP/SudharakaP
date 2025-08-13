@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-127 is the atomic number of Unbiseptium, an element that has not yet been discovered.
+384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
