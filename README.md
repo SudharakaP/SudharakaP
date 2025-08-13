@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+90 is the number of minutes in a football (soccer) match.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
