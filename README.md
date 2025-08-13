@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-167 is the miles long of the Hetch Hetchy Aqueduct in Yosemite National Park.
+5 is the holy number of Discordianism, as dictated by the Law of Fives.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
