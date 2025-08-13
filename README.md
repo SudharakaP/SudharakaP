@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-146 is the Guinness World Record for the most languages a poem was recited in.
+6000000 is the number of beavers in Canada before the fur trade started.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
