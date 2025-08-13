@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35000 is the number of genes in a human being.
+126 is the number of years that Gilgamesh reigned according to the Sumerian king list.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
