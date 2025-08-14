@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+19 is the number of years in 235 lunations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
