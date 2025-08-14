@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-59 is the number corresponding to the last minute in a given hour.
+400000000000 is the number of stars in the Milky Way galaxy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
