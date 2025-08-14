@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
+181 is the rider number given to Lance Armstrong in 1999 when he won his first of seven Tour de France consecutive victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
