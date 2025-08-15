@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
+250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
