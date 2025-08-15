@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-63 is the number of groats in a guinea in British pre-decimal currency.
+200 is degrees in a human"s field of vision (approximately).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
