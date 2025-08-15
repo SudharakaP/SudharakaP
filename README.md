@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-44 is the number of candles in a box of Hanukkah candles.
+47 is the total numbers of balloons that a player can collect in Rareware's Nintendo 64 game Diddy Kong Racing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
