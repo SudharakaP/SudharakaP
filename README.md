@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-167 is the miles long of the Hetch Hetchy Aqueduct in Yosemite National Park.
+352 is the number of international appearances by Kristine Lilly for the USA women's national soccer team, an all-time record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
