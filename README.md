@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-118 is the number of ridges a U.S. dime has around its edge.
+192 is the rank of Sweden in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
