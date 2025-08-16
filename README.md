@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-118 is the atomic number of the element Ununoctium.
+106 is the number of surat Quraysh in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
