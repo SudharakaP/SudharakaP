@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-930000 is the number of words in the King James Version of the Bible.
+201 is the title of an episode of South Park.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
