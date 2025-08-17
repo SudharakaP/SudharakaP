@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-9220000000000000000 is the largest number which can fit into a signed (two's complement) 64-bit integer on a computer.
+255 is the largest values that can be assigned to elements in the 24-bit RGB color model, since each color channel is allotted eight bits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
