@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-930000 is the number of words in the King James Version of the Bible.
+90000 is the average number of hairs that redheads have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
