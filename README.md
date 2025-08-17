@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-107 is the number of Nobel Prize in Literature laureates.
+4e+185 is the number of planck volumes in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
