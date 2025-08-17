@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1000000000000 is the number of bacteria on the surface of the human body.
+107 is a common police code denoting a suspicious person.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
