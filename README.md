@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-85 is the atomic number of astatine.
+168 is hours in a week.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
