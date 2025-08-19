@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-127 is the highest signed 8 bit integer.
+2 is the price in cents per acre the USA bought Alaska from Russia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
