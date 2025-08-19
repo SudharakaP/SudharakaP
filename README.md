@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
--Infinity is negative infinity.
+191 is a common flight number for flights involved in crashes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
