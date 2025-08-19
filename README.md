@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-46 is the number of slices of pizza an average American kid eats in a year.
+1400000 is the number of species that have been named by the World Resources Institute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
