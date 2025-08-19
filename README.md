@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-137 is the California Penal Code for "Offer bribe to influence testimony".
+755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
