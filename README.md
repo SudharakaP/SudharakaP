@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50000000 is the approximate number of people who fish per year in the United States.
+169 is the height in feet of The Oak Island Lighthouse on Oak Island, North Carolina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
