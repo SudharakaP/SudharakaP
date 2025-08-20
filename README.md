@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-134 is the number of episodes in the TV series Hawaiian Eye that ran on ABC from 1959 to 1963.
+21 is the number of trump cards of the tarot deck if one does not consider The Fool to be a proper trump card.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
