@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-201 is the title of an episode of South Park.
+3000 is the number of gowns Queen Elizabeth I of England owned when she died.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
