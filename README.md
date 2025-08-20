@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the age of Jeanne Calment when she died.
+361 is the number of positions on a standard 19 x 19 Go board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
