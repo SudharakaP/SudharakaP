@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-300 is the number of different beverages the Coca Cola company offers.
+145 is the atomic number of Unquadpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
