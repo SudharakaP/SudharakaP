@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-67 is the number of counties in Florida.
+72 is the number of names of God, according to Kabbalah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
