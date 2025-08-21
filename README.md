@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-12 is the number of keys in any standard digital telephone (1 through 9, 0, * and #).
+16 is the minimum age that one can drop out of school in most states of the US (however, restrictions apply and vary depending on state).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
