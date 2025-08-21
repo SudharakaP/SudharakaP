@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
+97 is the number of leap days that the Gregorian calendar contains in its cycle of 400 years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
