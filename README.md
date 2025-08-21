@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-53 is the maximum number of players on a National Football League roster.
+7 is the number of suicides mentioned in the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
