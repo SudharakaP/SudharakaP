@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
+167 is the number of tennis titles that Martina Navratilova has, which is an all-time record for men or women.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
