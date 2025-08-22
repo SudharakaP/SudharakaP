@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
+44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
