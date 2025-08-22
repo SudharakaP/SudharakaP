@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-165 is miles of shoreline of Lake Berryessa in Napa County, California.
+1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
