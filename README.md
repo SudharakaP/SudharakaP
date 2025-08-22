@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-75 is the age in years that the Saguaro Cactus, found in southwestern US, must be to grow branches.
+132 is the number of episodes of the TV series Martin that ran on Fox from 1992 to 1997.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
