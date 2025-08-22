@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-137 is the California Penal Code for "Offer bribe to influence testimony".
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
