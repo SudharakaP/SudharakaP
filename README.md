@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-80 is the length (years) of the Eighty Years' War (1568–1648).
+998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
