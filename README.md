@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-113 is the atomic number of an element temporarily called ununtrium.
+140 is liters of water needed to produce 1 cup of coffee.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
