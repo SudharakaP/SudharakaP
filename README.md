@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+40 is the Eddington–Dirac number.
+24 is the maximum number of Knight Companions in the Order of the Garter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
