@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-140 is liters of water needed to produce 1 cup of coffee.
+22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
