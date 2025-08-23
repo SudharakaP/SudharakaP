@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
+46 is the number of human chromosomes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
