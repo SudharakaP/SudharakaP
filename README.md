@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
+45 is the sapphire wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
