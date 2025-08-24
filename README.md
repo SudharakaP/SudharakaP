@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-209 is the basketball record for most three pointers in a row.
+8 is the number of furlongs in a mile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
