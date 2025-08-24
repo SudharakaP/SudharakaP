@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-64 is the size in bits of certain data types in some computer programming languages.
+42 is the answer to the Ultimate Question of Life, the Universe, and Everything.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
