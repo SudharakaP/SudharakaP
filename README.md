@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-46 is the number of samurai, out of 47, who carried out the attack in the historical Ako vendetta.
+45000000000 is the approximate number of fat cells in an average adult.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
