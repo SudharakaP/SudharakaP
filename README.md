@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-151 is the number of episodes that TV series Malcolm in the Middle ran on the Fox Network from 2000 to 2006.
+168 is the number of episodes that the The Practice ran on ABC from 1997 to 2004.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
