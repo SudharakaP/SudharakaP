@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is the cost in cents to make a $1 bill in the United States.
+123 is the telephone number of the speaking clock for the correct time in the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
