@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-116 is the atomic number of an element temporarily called ununhexium.
+196 is the length in miles of the New Orleans and Northeastern Railroad.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
