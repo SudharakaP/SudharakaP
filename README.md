@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-210 is the world speed record (km/h) for a mountain bike on a ski slope.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
