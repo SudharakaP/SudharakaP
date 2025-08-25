@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-134 is the number of episodes in the TV series Hawaiian Eye that ran on ABC from 1959 to 1963.
+2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
