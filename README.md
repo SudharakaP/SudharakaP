@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-123 is the telephone number of the speaking clock for the correct time in the United Kingdom.
+273 is the death toll of the air crash of American Airlines Flight 191.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
