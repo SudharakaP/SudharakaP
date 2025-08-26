@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
+21 is the number of trump cards of the tarot deck if one does not consider The Fool to be a proper trump card.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
