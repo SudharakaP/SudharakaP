@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the number of episodes of the TV series Martin that ran on Fox from 1992 to 1997.
+10 is the number of fingers on a pair of human hands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
