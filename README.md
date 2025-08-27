@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7 is the number of seconds it takes "Superman: Escape from Krypton" roller coaster to go from 0 to 100 miles per hour.
+121 is the official end score for Cribbage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
