@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1 is the loneliest number.
+14 is the maximum number of electrons that can fit in an f sublevel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
