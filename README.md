@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40 is the customary number of hours in a regular workweek in some Western countries.
+20000000000 is the approximate number of coconuts produced worldwide each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
