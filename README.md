@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-126 is the number of years that Gilgamesh reigned according to the Sumerian king list.
+15 is the number of letters in the words "uncopyrightable", "dermatoglyphics", "misconjugatedly", and "hydropneumatics", the longest English words with no repeat letters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
