@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6800 is the approximate number of languages in the world.
+40 is the customary number of hours in a regular workweek in some Western countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
