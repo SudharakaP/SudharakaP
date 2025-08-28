@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-162 is total number of baseball games each team plays during a regular season in Major League Baseball.
+220 is the SMTP code meaning "service ready".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
