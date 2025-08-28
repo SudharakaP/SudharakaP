@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the lowest channel of television in the United States, Canada, Argentina and Mexico on which television signals are broadcast.
+72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
