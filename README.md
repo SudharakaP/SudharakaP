@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the Opus number of one of Beethoven's greatest works.
+2 is the lowest channel of television in the United States, Canada, Argentina and Mexico on which television signals are broadcast.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
