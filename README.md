@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-30 is the duration in years of the Thirty Years' War - 1618 to 1648.
+267000 is the number of words in James Joyce's Ulysses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
