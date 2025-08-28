@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-122 is the age of Jeanne Calment when she died.
+200 is degrees in a human"s field of vision (approximately).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
