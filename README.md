@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-24 is the number of teams that participated in each FIFA World Cup finals tournament between 1982 and 1994.
+150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
