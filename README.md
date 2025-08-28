@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-138 is the number of touchdowns football quarterback Donnie Davis had for the Georgia Force of the Arena Football League.
+2055001 is the number of people employed by Wal-mart in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
