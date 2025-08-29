@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3825000 is the number of entries on Wikipedia in the English language.
+43687 is the number of toilet related accidents in the United States in 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
