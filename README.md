@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-3 is the number of sets needed to be won to win the whole match in volleyball.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
