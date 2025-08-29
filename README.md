@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-587 is the outgoing port for email message submission.
+138 is the estimated number of ATP molecules produced by one molecule of fatty acid, for the mixture that comprises human adipose tissue.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
