@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-38 is the number of years it took the Israelites to travel from Kadesh Barnea to the Zered valley in Deuteronomy.
+54 is the score in golf colloquially referred to as a perfect round.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
