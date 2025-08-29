@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-154 is the period in days that the sun follows on gamma-ray flares.
+161 is the number of songs Pink Floyd recorded.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
