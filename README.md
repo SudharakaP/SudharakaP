@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
+60 is the total number of years in a Sexagenary cycle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
