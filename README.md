@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-749 is the pounds of paper products used by an American individual annually on average.
+195 is minuscule 195 is a Greek minuscule manuscript of the New Testament, on parchment.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
