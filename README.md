@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
+39 is the number of Scud missiles which Iraq fired at Israel during the Gulf War in 1991.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
