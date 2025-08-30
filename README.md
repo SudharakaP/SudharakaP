@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
+167 is the number of tennis titles Martina Navratilova has, an all-time record for men or women.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
