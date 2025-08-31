@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-15250 is the number of times the average driver will honk in a lifetime.
+4 is the number of completed, numbered symphonies by Johannes Brahms.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
