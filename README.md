@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
+56 is the number of layers of the Universe according to Aristotle (Earth plus 55 crystalline spheres above it).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
