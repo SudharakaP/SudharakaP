@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-464 is the number of legal positions of the kings in chess, not counting mirrored positions.
+13 is the number of colonies that formed the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
