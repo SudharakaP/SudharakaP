@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8e+60 is the number of Planck time intervals since the Big Bang.
+4200000 is the number of couples in the United States that live together but are not married.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
