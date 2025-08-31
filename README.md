@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
+214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
