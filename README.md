@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-63 is the number of groats in a guinea in British pre-decimal currency.
+39 is the duration, in nanoseconds, of the nuclear reaction in the largest nuclear explosion ever performed (Tsar bomb).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
