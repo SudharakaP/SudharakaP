@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1000000000000 is the number of bacteria on the surface of the human body.
+180 is the gent's clout shooting distance in archery measured in yards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
