@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-193 is the number of member states of the United Nations as of 2011.
+2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
