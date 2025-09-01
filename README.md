@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
+55 is the highest speed limit allowed in the United States between 1974 and 1986 per the National Maximum Speed Law.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
