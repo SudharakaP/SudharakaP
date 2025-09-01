@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-270 is the average number of days in human pregnancy.
+Infinity is the estimation of the game-tree complexity in the game of Go.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
