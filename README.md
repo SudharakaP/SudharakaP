@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-83 is the highest UHF channel on older televisions made before the late 1970s.
+182 is the atomic number of an element temporarily called Unoctbium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
