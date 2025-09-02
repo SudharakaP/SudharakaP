@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-58 is the number of usable cells on a Hexxagon game board.
+153 is the code for "mental processes & intelligence" in the Dewey Decimal Classification.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
