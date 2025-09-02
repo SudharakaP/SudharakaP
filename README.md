@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-400000 is the number of morphine addicts the Civil War produced.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
