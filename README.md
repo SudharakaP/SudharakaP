@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-50 is the gold or "golden" wedding anniversary in years of marriage.
+183 is the rank of the U.S. Virgin Islands in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
