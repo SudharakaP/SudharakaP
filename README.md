@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-17 is the maximum number of strokes of a Chinese radical.
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
