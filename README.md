@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the number of runs Pakistan was shot out o hand over the World cup trophy to a strong australian team in the Cricket World Cup 1999.
+147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
