@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-7 is the number of suicides mentioned in the Bible.
+193 is species of monkeys and apes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
