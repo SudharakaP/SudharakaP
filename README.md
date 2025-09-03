@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
+20 is the number of baby teeth in the deciduous dentition.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
