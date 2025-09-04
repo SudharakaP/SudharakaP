@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-197 is the approximate atomic mass of Gold.
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
