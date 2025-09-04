@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
+132 is the number of columns of a Line printer printing in landscape mode on 14-inch paper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
