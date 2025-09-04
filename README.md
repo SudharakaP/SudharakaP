@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
+300 is the number of bones humans are born with in their body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
