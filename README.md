@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-166 is the number of points the Dow Jones Industrials fell on June 24, 2005.
+1e+83 is the number of fundamental particles in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
