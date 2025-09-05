@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-144 is the number of square inches in a square foot.
+22 is the typical (minimum) number of episodes in a season for a television program broadcast on a major American network.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
