@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-8674 is the number of unique words in the Hebrew Bible.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
