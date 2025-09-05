@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
+156 is the number of episodes the TV series The West Wing ran on NBC from 1999 to 2006, including an extra episode.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
