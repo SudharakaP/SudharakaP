@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-103 is the atomic number of lawrencium, an actinide.
+6 is the number of basic holes or keys on most woodwind instruments.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
