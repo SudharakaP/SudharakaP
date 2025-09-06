@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-175 is the weight in grams of a flying disc used in Ultimate.
+197 is the rank of the Solomon Islands in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
