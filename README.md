@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-911 is the number of days after September 11th that the Madrid Attack took place.
+176 is the atomic number of an element temporarily called Unsepthexium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
