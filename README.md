@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-186 is the length of the Judgment at Nuremberg measured in 186 minutes.
+150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
