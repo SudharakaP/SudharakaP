@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-99 is the number of names of Allah, the names or attributes of God in the Qur'an.
+313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
