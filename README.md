@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-206 is bones in the typical adult human body.
+92 is the percentage of water in watermelons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
