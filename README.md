@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-175 is the number of touchdowns by Former NFL running back Emmitt Smith, ranking him second to Jerry Rice's 207.
+24 is the number of teams that participated in each FIFA World Cup finals tournament between 1982 and 1994.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
