@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-2 is the lowest channel of television in the United States, Canada, Argentina and Mexico on which television signals are broadcast.
+755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
