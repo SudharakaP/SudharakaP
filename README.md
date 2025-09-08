@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6000000000000000000 is the number of transistor produced worldwide in 2008.
+84 is the atomic number of polonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
