@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1096000000 is the population of India in 2007.
+39 is the number of mentions of work or labor in the Torah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
