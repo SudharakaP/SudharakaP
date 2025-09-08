@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-196 is the number of athletes that Canada had in 15 sports at the 2006 Winter Olympics.
+25 is the number of cents in a quarter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
