@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-10000 is the gallons of saliva an average human produces in a lifetime.
+60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
