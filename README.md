@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4 is the number of legs most furniture has.
+183 is the atomic number of an element temporarily called Unocttrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
