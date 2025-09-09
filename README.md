@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-35 is the percentage of all bingo players are under the age of 35.
+22 is the typical length in minutes of a half hour sitcom not including commercials.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
