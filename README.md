@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-267000 is the number of words in James Joyce's Ulysses.
+202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
