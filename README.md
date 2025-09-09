@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-183 is the number of runs scored by former cricket player Sourav Ganguly in the 1999 Cricket World Cup, second highest in World Cup history, and highest by an Indian in the tournament.
+138 is the Saros number of the solar eclipse series which began on June 6, 1472 and will end on July 11, 2716.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
