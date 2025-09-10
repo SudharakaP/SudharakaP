@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-40000000 is the number of times lightning hits the ground 40 million times a year in the United States.
+173 is the rank of Faroe Islands (Denmark) in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
