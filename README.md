@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-90 is the latitude of the North Pole and the South Pole.
+195 is the atomic number of an element temporarily called Unennpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
