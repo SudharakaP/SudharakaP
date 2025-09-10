@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-134 is the number of episodes in the TV series Hawaiian Eye that ran on ABC from 1959 to 1963.
+7e+27 is the number of atoms in the average human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
