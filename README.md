@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-285 is the total number of Rules of Acquisition in Star Trek.
+20 is the number of ounces in Venti size coffees at Starbucks coffee shops.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
