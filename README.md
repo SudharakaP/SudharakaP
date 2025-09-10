@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
+9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
