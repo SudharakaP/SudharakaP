@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-108 is the number of cards in a deck of UNO cards.
+179 is the atomic number of an element temporarily called Unseptennium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
