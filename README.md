@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
+80 is the length (years) of the Eighty Years' War (1568–1648).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
