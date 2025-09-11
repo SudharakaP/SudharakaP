@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the standard size of drum in US gallons.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
