@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-167 is the number of tennis titles that Martina Navratilova has, which is an all-time record for men or women.
+14 is the number of muqatta'at in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
