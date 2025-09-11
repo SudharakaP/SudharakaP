@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
+43687 is the number of toilet related accidents in the United States in 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
