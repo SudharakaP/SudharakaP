@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-107 is a common police code denoting a suspicious person.
+60 is the number of miles per hour an automobile accelerates from rest as one of the standard measurements of performance.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
