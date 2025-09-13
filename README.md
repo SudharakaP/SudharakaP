@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-81 is the number of stanzas or chapters in the Tao te Ching (in the most common arrangements).
+525 is the number of scan lines in the NTSC television standard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
