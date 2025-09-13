@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-587 is the outgoing port for email message submission.
+3 is cans of Spam consumed every second in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
