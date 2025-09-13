@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-129 is the atomic number of Unbiennium, an element yet to be discovered.
+35 is the minimum age of candidates for election to the United States Presidency.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
