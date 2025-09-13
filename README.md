@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-4.52e+46 is the upper bound for the number of legal chess positions.
+181 is the wing area of a Boeing 757 airplane in meters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
