@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-169 is the height in feet of The Oak Island Lighthouse on Oak Island, North Carolina.
+100000000000 is the number of neurons in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
