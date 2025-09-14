@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-121 is the official end score for Cribbage.
+1 is the number of Gods in monotheism.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
