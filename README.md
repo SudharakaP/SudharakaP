@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-195 is the rank of "Maybe" (1957) by The Chantels on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
+108 is the number of Mbit/s of a non-standard extension of IEEE 802.11g wireless network using channel bonding.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
