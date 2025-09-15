@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-60 is the number of miles per hour an automobile accelerates from rest as one of the standard measurements of performance.
+500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
