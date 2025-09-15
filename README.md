@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-177 is the second highest possible score in darts that can be obtained by throwing three darts in a single visit to the oche.
+149000000 is the number of kilometres from the Earth the sun is.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
