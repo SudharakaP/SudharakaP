@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
