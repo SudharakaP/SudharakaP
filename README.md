@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-176 is the rank of Rocks (1976) by Aerosmith on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
+9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
