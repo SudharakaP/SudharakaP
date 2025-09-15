@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
+Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
