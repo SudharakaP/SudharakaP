@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-200 is degrees in a human"s field of vision (approximately).
+142 is the number of home-based business ideas included in the 142 Now packet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
