@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-53 is the total number of national football associations of UEFA.
+50 is the traditional number of years in a jubilee period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
