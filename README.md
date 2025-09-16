@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-123 is the electricity emergency telephone number in Indonesia.
+205 is the world speed record (mph) of a car on ice.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
