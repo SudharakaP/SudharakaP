@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-201 is the title of an episode of South Park.
+96 is the rating of Skyrim on metacritic.com.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
