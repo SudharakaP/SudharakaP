@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-185 is the name of an improve improv game where, given a subject from the audience, players make up jokes beginning with "185 (blanks) walk into a bar.
+235 is the atomic mass number of an important isotope of the element uranium, the fissile isotope which is used as the fuel for nuclear reactors and in some nuclear weapons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
