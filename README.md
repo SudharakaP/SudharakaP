@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-59 is the number of days, approximately in two lunar months.
+105 is the atomic number of hahnium, also known as dubnium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
