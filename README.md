@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-158 is the number of international goals scored by Mia Hamm for the USA women's team, an all-time record for either sex in soccer.
+191 is the number of episodes for the different regions in the PokÃ©mon anime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
