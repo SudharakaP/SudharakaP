@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-1e+83 is the number of fundamental particles in the observable universe.
+17 is the minimum driving age for a car or van in the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
