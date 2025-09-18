@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-55 is the highest speed limit allowed in the United States between 1974 and 1986 per the National Maximum Speed Law.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
