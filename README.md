@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-156 is the number of episodes the TV series The West Wing ran on NBC from 1999 to 2006, including an extra episode.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
