@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-106 is the number of surat Quraysh in the Qur'an.
+7 is the figurative number of seas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
