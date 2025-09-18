@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-85 is the IQ and nickname of Aaron in Alien 3.
+130 is the approximate maximum height in meters of trees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
