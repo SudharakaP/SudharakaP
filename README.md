@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-101 is the HTTP status code indicating that a client should switch protocols.
+7 is the number of days in a week.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
