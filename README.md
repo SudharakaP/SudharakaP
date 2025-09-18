@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
+50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
