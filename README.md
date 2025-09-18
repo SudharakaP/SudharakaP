@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-6 is the highest number on one end of a standard domino.
+404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
