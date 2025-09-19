@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-123 is the telephone number of the speaking clock for the correct time in the United Kingdom.
+53 is the total number of national football associations of UEFA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
