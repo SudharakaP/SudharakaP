@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-0 is the atomic number of the theoretical element tetraneutron.
+4000 is the weight in pounds that the Great White Shark can grow to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
