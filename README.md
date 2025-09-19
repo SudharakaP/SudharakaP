@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-28 is the number of dominoes in standard domino sets.
+1 is the number of Gods in monotheism.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
