@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-129 is the number of episodes of the TV series Becker that ran on CBS from 1998 to 2004.
+500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
