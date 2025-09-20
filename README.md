@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-600 is the maximum credit score considered poor, thus limiting available credit in the USA.
+129 is the atomic number of Unbiennium, an element yet to be discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
