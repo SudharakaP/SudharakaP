@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-132 is the number of columns of a Line printer printing in landscape mode on 14-inch paper.
+8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
