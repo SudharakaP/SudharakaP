@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-27 is the number of grains in some Buddhist rosary (108 divided by 4).
+202 is the area code assigned to Washington D.C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
