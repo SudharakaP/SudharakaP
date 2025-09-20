@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-400000000000 is the number of stars in the Milky Way galaxy.
+130 is the approximate maximum height in meters of trees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
