@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-470 is the minimum length in yards from the tee to the hole on a Par 5.
+188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
