@@ -1,5 +1,5 @@
 ## 😄 Hello! Did you know that... 😄
-300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
+114 is the number of chapter in the Quran, the holy book of Islam contains 114.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
