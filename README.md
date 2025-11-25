@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 161, "advice": "You have as many hours in a day as the people you admire most."}}
+{"slip": { "id": 135, "advice": "If you want to be happily married, marry a happy person."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
