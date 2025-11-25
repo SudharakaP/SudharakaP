@@ -1,7 +1,7 @@
-## 😄 Hello! Did you know that... 😄
-496 is what the dimension of the gauge group must be for a superstring theory to make sense.
+## 🦉 Hello! Did you know that... 🦉
+{"slip": { "id": 198, "advice": "Sing in the shower."}}
 
-<sup>(come back in 5 minutes for the next trivia)</sup>
+<sup>(come back in 5 minutes for the next piece of advice)</sup>
 
 
-<sup>Credits: http://numbersapi.com</sup>
+<sup>Credits: https://api.adviceslip.com/</sup>
