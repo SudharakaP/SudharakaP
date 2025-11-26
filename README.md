@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 85, "advice": "If you don't want something to be public, don't post it on the Internet."}}
+{"slip": { "id": 219, "advice": "Try buying a coffee for the creator of a free public API, now and then."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
