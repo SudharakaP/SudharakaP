@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 13, "advice": "If you're feeling tired or anxious, a pint of water will almost always make you feel better."}}
+{"slip": { "id": 183, "advice": "Always get two ciders."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
