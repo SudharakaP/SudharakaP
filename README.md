@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 68, "advice": "The number of vampires in the average home, is directly proportional to the amount of garlic bread in the fridge."}}
+{"slip": { "id": 24, "advice": "When the cistern is filling, the seat is probably still warm."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
