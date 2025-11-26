@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 49, "advice": "A long walk alone with some time to think, can work wonders."}}
+{"slip": { "id": 128, "advice": "When you're at a concert or event, enjoy the moment, enjoy being there. Try leaving your camera in your pocket."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
