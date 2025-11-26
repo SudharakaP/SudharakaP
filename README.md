@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 93, "advice": "The higher up you are in a company, the more likely it is that your boss is a psychopath."}}
+{"slip": { "id": 52, "advice": "Don't promise what you can't deliver."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
