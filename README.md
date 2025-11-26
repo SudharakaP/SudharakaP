@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 119, "advice": "Don't assume anything is possible or impossible until you've asked the people who will be doing the work."}}
+{"slip": { "id": 32, "advice": "Everything in moderation, including moderation itself."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
