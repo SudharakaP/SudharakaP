@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 37, "advice": "There is no reason at all to believe that White Wine is any different to water when it comes to removing Red Wine stains."}}
+{"slip": { "id": 212, "advice": "The hardest things to say are usually the most important."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
