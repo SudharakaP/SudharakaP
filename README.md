@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 164, "advice": "Some of life's best lessons are learnt at the worst times."}}
+{"slip": { "id": 87, "advice": "Turn jeans inside out when washing them to help preserve their colour."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
