@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 21, "advice": "Don't feed Mogwais after midnight."}}
+{"slip": { "id": 179, "advice": "Never regret. If it's good, it's wonderful. If it's bad, it's experience."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
