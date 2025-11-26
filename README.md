@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 112, "advice": "It's not about who likes you, it's about who you like."}}
+{"slip": { "id": 200, "advice": "Sarcasm is the lowest form of wit. Employ correctly with apt timing."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
