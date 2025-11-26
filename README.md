@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 57, "advice": "If you get stuck, try doing the opposite of what the solution requires."}}
+{"slip": { "id": 201, "advice": "Don't burn bridges."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
