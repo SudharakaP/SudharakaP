@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 70, "advice": "Don't try and bump start a motorcycle on an icy road."}}
+{"slip": { "id": 161, "advice": "You have as many hours in a day as the people you admire most."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
