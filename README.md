@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 182, "advice": "Most things look better when you put them in a circle."}}
+{"slip": { "id": 184, "advice": "You can fail at what you don't want. So you might as well take a chance on doing what you love."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
