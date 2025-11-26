@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 121, "advice": "If you think your headphones are dying, check the socket for fluff with a straightened paperclip."}}
+{"slip": { "id": 187, "advice": "The sun always shines above the clouds."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
