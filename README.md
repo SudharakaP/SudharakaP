@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 147, "advice": "Don't take life too seriously."}}
+{"slip": { "id": 159, "advice": "What's stopping you?"}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
