@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 10, "advice": "Never pay full price for a sofa at DFS."}}
+{"slip": { "id": 116, "advice": "One of the top five regrets people have is that they didn't stay in contact with friends."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
