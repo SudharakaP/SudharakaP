@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 63, "advice": "If you're squashed close to strangers on public transport, try not to be rude to them. No one likes those situations."}}
+{"slip": { "id": 105, "advice": "When you look around and don't see anyone you respect, its time to leave."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
