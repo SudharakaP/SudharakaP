@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 137, "advice": "You're not that important; it's what you do that counts."}}
+{"slip": { "id": 13, "advice": "If you're feeling tired or anxious, a pint of water will almost always make you feel better."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
