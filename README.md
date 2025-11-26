@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 126, "advice": "Taking photos with tablet devices looks weird."}}
+{"slip": { "id": 40, "advice": "Never run with scissors."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
