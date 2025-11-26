@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 162, "advice": "Stop using the term \"busy\" as an excuse."}}
+{"slip": { "id": 109, "advice": "To cleanly remove the seed from an Avocado, lay a knife firmly across it, and twist."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
