@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 103, "advice": "Respect your elders."}}
+{"slip": { "id": 97, "advice": "If you are ever in doubt about whether or not to wash your hair: Wash it."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
