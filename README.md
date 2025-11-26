@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 139, "advice": "If you're going bald, don't comb your hair over your bald patch."}}
+{"slip": { "id": 38, "advice": "The most delicious cocktails often have the highest alcohol content. Always pace yourself to preserve your dignity."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
