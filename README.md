@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 83, "advice": "Put a piece of kitchen roll in with your bag of leaves to make them last longer."}}
+{"slip": { "id": 53, "advice": "Accentuate the positive, eliminate the negative."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
