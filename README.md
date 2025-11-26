@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 58, "advice": "Don't give a speech. Put on a show."}}
+{"slip": { "id": 162, "advice": "Stop using the term \"busy\" as an excuse."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
