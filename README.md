@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 103, "advice": "Respect your elders."}}
+{"slip": { "id": 172, "advice": "If it still itches after a week, go to the doctors."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
