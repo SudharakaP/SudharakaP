@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 179, "advice": "Never regret. If it's good, it's wonderful. If it's bad, it's experience."}}
+{"slip": { "id": 144, "advice": "Pedantry is fine, unless you're on the receiving end. And not a pedant."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
