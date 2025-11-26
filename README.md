@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 30, "advice": "When in doubt, just take the next small step."}}
+{"slip": { "id": 45, "advice": "Build something out of LEGO."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
