@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 53, "advice": "Accentuate the positive, eliminate the negative."}}
+{"slip": { "id": 42, "advice": "Always double check you actually attached the file to the email."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
