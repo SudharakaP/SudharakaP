@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 19, "advice": "If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip."}}
+{"slip": { "id": 162, "advice": "Stop using the term \"busy\" as an excuse."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
