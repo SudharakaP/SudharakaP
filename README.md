@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When you look around and don't see anyone you respect, its time to leave.
+Try to do the things that you're incapable of.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
