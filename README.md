@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 44, "advice": "If you are feeling down, try holding a pencil between your top lip and your nose for five minutes."}}
+{"slip": { "id": 64, "advice": "You don't need to floss all of your teeth. Only the ones you want to keep."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
