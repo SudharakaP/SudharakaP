@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 54, "advice": "The more ideas that you give away, the more ideas that will come to you."}}
+{"slip": { "id": 194, "advice": "Don't always rely on your comforts."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
