@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 35, "advice": "Only those who attempt the impossible can achieve the absurd."}}
+{"slip": { "id": 147, "advice": "Don't take life too seriously."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
