@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't wear clean trousers when walking your dog in the park.
+If you get stuck, try doing the opposite of what the solution requires.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
