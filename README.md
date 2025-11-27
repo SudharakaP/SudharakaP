@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 139, "advice": "If you're going bald, don't comb your hair over your bald patch."}}
+{"slip": { "id": 103, "advice": "Respect your elders."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
