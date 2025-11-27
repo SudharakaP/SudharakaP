@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When in doubt, just take the next small step.
+Some people would be better off if they took their own advice.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
