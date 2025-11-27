@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 33, "advice": "Don't let the bastards grind you down."}}
+{"slip": { "id": 143, "advice": "When painting a room, preparation is key. The actual painting should account for about 40% of the work."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
