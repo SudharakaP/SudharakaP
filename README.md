@@ -1,5 +1,5 @@
 ## 🦉 Hello! Did you know that... 🦉
-{"slip": { "id": 41, "advice": "Don't use Excel or Powerpoint documents for your basic word processing needs."}}
+{"slip": { "id": 148, "advice": "Some people would be better off if they took their own advice."}}
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
