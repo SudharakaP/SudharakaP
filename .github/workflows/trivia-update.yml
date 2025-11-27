@@ -20,7 +20,7 @@ jobs:
     - name: Run a multi-line script
       run: |
         echo "## 🦉 Hello! Some random advice... 🦉" > $GITHUB_WORKSPACE/README.md
-        curl https://api.adviceslip.com/advice | jq '.slip.advice' >> $GITHUB_WORKSPACE/README.md
+        curl https://api.adviceslip.com/advice | jq '.slip.advice' | sed 's/"//g' >> $GITHUB_WORKSPACE/README.md
         (echo && echo && echo "<sup>(come back in 5 minutes for the next piece of advice)</sup>") >> $GITHUB_WORKSPACE/README.md
         (echo && echo && echo "<sup>Credits: https://api.adviceslip.com/</sup>") >> $GITHUB_WORKSPACE/README.md
         
