@@ -1,5 +1,6 @@
-## 🦉 Hello! Random Piece of Advice... 🦉
-{"slip": { "id": 103, "advice": "Respect your elders."}}
+## 🦉 Hello! Did you know that... 🦉
+"Build something out of LEGO."
+
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
 
