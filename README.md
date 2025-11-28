@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-As things get closer to the light, the shadows get darker.
+Brush your teeth the moment you get up.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
