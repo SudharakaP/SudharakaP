@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If it ain't broke don't fix it.
+Everyone has their down days. Don't take it out on innocent bystanders.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
