@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The quieter you become, the more you can hear.
+For every complex problem there is an answer that is clear, simple, and wrong.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
