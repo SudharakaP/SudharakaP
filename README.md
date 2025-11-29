@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Enjoy a little nonsense now and then.
+Don't give a speech. Put on a show.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
