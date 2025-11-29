@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Have a firm handshake.
+It's wrong to be right.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
