@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Work is never as important as you think it is.
+Don't use Excel or Powerpoint documents for your basic word processing needs.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
