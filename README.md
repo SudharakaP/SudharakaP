@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The hardest things to say are usually the most important.
+A nod is as good as a wink to a blind horse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
