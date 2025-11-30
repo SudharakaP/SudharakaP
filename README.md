@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Vinegar is a powerful cleaning agent.
+YOLO
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
