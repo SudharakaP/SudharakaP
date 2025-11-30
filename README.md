@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never run a marathon in Crocs.
+You never really grow up.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
