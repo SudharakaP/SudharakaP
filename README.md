@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Build something out of LEGO.
+No \brand\ is your friend.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
