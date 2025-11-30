@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you think your headphones are dying, check the socket for fluff with a straightened paperclip.
+Smile and the world smiles with you. Frown and you're on your own.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
