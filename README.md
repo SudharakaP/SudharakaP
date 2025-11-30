@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When you're looking up at birds flying overhead, keep your mouth closed.
+One of the single best things about being an adult, is being able to buy as much LEGO as you want.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
