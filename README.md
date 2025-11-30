@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Some people would be better off if they took their own advice.
+Try going commando to an important meeting, NB: don't wear a skirt.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
