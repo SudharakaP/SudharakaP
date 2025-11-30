@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you don't want something to be public, don't post it on the Internet.
+Don't take life too seriously.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
