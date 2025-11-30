@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A common regret in life is wishing one had the courage to be ones true self.
+If you are ever in doubt about whether or not to wash your hair: Wash it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
