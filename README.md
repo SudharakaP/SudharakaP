@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try using an old idea.
+Work is never as important as you think it is.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
