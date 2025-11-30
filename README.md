@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A nod is as good as a wink to a blind horse.
+Don't give to others advice which you wouldn't follow.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
