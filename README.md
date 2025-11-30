@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try to pay at least one person a compliment every day.
+You have as many hours in a day as the people you admire most.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
