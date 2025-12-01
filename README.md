@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Work is never as important as you think it is.
+If it ain't broke don't fix it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
