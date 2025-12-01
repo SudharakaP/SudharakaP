@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Have a firm handshake.
+Don't burn bridges.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
