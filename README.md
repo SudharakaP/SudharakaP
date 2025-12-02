@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you think your headphones are dying, check the socket for fluff with a straightened paperclip.
+If you have grandparents or parents - Talk to them more. Ask them about their life experiences.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
