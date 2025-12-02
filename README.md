@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always double check you actually attached the file to the email.
+Don't try and bump start a motorcycle on an icy road.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
