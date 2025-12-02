@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you're feeling tired or anxious, a pint of water will almost always make you feel better.
+Don't eat anything your grandparents wouldn't recognise as food.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
