@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never pay full price for a sofa at DFS.
+If you're squashed close to strangers on public transport, try not to be rude to them. No one likes those situations.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
