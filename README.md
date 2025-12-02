@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you have grandparents or parents - Talk to them more. Ask them about their life experiences.
+If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
