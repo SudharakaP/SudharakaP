@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Things are just things. Don't get too attached to them.
+Never regret. If it's good, it's wonderful. If it's bad, it's experience.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
