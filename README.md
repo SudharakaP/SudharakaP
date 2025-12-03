@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's unlucky to be superstitious.
+Everything in moderation, including moderation itself.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
