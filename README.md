@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Stop procrastinating.
+Don't always believe what you think.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
