@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Repeat people's names when you meet them.
+Some of life's best lessons are learnt at the worst times.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
