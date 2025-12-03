@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Some of life's best lessons are learnt at the worst times.
+Turn jeans inside out when washing them to help preserve their colour.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
