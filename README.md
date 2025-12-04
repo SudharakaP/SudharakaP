@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Once you find a really good friend don't do anything that could mess up your friendship.
+The number of vampires in the average home, is directly proportional to the amount of garlic bread in the fridge.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
