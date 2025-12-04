@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A nod is as good as a wink to a blind horse.
+When having a clear out, ask yourself if an item has any financial, practical or sentimental value. If not, chuck it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
