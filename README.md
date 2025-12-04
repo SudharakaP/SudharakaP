@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The most delicious cocktails often have the highest alcohol content. Always pace yourself to preserve your dignity.
+The higher up you are in a company, the more likely it is that your boss is a psychopath.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
