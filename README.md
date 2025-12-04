@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Fail. Fail again. Fail better.
+Don't take it personally.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
