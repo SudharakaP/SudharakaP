@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Learn from your mistakes.
+Life is short enough, don't race to the finish.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
