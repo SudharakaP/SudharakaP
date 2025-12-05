@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Age is of no importance, unless you are a cheese.
+If you find yourself distressed about something, ask yourself if it will still matter tomorrow or next week or next month.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
