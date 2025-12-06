@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Your smile could make someone's day, don't forget to wear it.
+Most things are not as bad as you think they are.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
