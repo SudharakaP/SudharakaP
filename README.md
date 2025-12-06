@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't always believe what you think.
+Everybody makes mistakes.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
