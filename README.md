@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The most delicious cocktails often have the highest alcohol content. Always pace yourself to preserve your dignity.
+It's not about who likes you, it's about who you like.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
