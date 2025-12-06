@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's not about who likes you, it's about who you like.
+Put a piece of kitchen roll in with your bag of leaves to make them last longer.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
