@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't give to others advice which you wouldn't follow.
+When you're at a concert or event, enjoy the moment, enjoy being there. Try leaving your camera in your pocket.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
