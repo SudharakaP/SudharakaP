@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A common regret in life is wishing one hadn't worked so hard.
+Sometimes it's best to ignore other people's advice.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
