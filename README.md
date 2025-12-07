@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't wear clean trousers when walking your dog in the park.
+You're not that important; it's what you do that counts.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
