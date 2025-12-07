@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Look people in the eye.
+Walking is a perfectly valid solution to traffic congestion problems.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
