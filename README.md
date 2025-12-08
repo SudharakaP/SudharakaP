@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Once you find a really good friend don't do anything that could mess up your friendship.
+Don't eat anything your grandparents wouldn't recognise as food.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
