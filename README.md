@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When you're at a concert or event, enjoy the moment, enjoy being there. Try leaving your camera in your pocket.
+Mercy is the better part of justice.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
