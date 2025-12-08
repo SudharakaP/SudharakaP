@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-True happiness always resides in the quest.
+Work is never as important as you think it is.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
