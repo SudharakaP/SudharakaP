@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Rule number 1: Try not to die. Rule number 2: Don't be a dick.
+Don't assume anything is possible or impossible until you've asked the people who will be doing the work.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
