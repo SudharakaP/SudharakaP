@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-There is no reason at all to believe that White Wine is any different to water when it comes to removing Red Wine stains.
+You can fail at what you don't want. So you might as well take a chance on doing what you love.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
