@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Just because you are offended, doesn't mean you are right.
+Things are just things. Don't get too attached to them.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
