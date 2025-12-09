@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You can fail at what you don't want. So you might as well take a chance on doing what you love.
+Never set an alarm clock unless you know how to switch it off
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
