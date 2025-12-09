@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Sarcasm is the lowest form of wit. Employ correctly with apt timing.
+If you think nobody cares if you're alive, try missing a few payments.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
