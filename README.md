@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-As things get closer to the light, the shadows get darker.
+Visitors are like fish: As much as you might like them, after three days they start to smell.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
