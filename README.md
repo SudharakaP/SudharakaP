@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A long walk alone with some time to think, can work wonders.
+What's stopping you?
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
