@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-What could you increase? What could you reduce?
+As things get closer to the light, the shadows get darker.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
