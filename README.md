@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It is easy to sit up and take notice, what's difficult is getting up and taking action.
+Once you find a really good friend don't do anything that could mess up your friendship.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
