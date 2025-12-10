@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Visitors are like fish: As much as you might like them, after three days they start to smell.
+What could you increase? What could you reduce?
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
