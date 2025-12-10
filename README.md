@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You can fail at what you don't want. So you might as well take a chance on doing what you love.
+It is easy to sit up and take notice, what's difficult is getting up and taking action.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
