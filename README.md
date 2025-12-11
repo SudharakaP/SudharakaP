@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When painting a room, preparation is key. The actual painting should account for about 40% of the work.
+You spend half your life asleep or in bed. It's worth spending money on a good mattress, decent pillows and a comfy duvet.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
