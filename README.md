@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Do not compare yourself with others.
+Hold the door open for the next person.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
