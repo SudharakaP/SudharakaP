@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't cross the streams.
+The best nights out are when people around you are simply having fun.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
