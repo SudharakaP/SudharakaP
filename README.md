@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't give a speech. Put on a show.
+Don't cross the streams.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
