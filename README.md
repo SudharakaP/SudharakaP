@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When you're at a concert or event, enjoy the moment, enjoy being there. Try leaving your camera in your pocket.
+Step 1. Give a shit. Step 2. Don't be a dick. Step 3. Know when to let go.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
