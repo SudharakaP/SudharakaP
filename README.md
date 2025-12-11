@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You're not as fat as you think you are.
+If you are ever in doubt about whether or not to wash your hair: Wash it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
