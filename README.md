@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-As things get closer to the light, the shadows get darker.
+If your hair is thinning, try dying your hair a similar tone to your scalp.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
