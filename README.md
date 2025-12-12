@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Once you find a really good friend don't do anything that could mess up your friendship.
+Most things look better when you put them in a circle.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
