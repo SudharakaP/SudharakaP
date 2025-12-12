@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Fail. Fail again. Fail better.
+Identify sources of happiness.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
