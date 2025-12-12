@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The quieter you become, the more you can hear.
+If your hair is thinning, try dying your hair a similar tone to your scalp.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
