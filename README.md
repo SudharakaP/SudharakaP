@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Everyone has their down days. Don't take it out on innocent bystanders.
+The sun always shines above the clouds.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
