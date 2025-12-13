@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The person who never made a mistake never made anything.
+Don't be afraid of silly ideas.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
