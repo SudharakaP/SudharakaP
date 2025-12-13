@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-What's stopping you?
+Measure twice, cut once.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
