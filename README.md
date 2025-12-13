@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Brush your teeth the moment you get up.
+Everything matters, but nothing matters that much.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
