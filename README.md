@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Build something out of LEGO.
+If you want to be happily married, marry a happy person.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
