@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Step 1. Give a shit. Step 2. Don't be a dick. Step 3. Know when to let go.
+The number of vampires in the average home, is directly proportional to the amount of garlic bread in the fridge.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
