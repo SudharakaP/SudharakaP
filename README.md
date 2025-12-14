@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you are feeling down, try holding a pencil between your top lip and your nose for five minutes.
+If you want to be happily married, marry a happy person.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
