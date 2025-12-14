@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You don't need to floss all of your teeth. Only the ones you want to keep.
+Lemon and salt works wonders on tarnished brass.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
