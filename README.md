@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The more ideas that you give away, the more ideas that will come to you.
+Good things come to those who wait.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
