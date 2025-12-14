@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you want to be happily married, marry a happy person.
+Never regret. If it's good, it's wonderful. If it's bad, it's experience.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
