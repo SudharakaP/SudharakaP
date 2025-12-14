@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you can't do anything about it, there's no point in worrying about it.
+You can fail at what you don't want. So you might as well take a chance on doing what you love.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
