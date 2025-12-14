@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's always the quiet ones.
+When hugging, hug with both arms and apply reasonable, affectionate pressure.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
