@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When hugging, hug with both arms and apply reasonable, affectionate pressure.
+Never run a marathon in Crocs.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
