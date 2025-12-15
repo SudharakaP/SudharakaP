@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You can fail at what you don't want. So you might as well take a chance on doing what you love.
+Don't put off breaking up with someone when you know you want to. Prolonging the situation only makes it worse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
