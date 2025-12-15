@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you think nobody cares if you're alive, try missing a few payments.
+When you're looking up at birds flying overhead, keep your mouth closed.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
