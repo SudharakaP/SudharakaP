@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You will always regret the round of Tequila.
+Value the people in your life.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
