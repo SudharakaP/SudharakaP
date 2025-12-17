@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't put off breaking up with someone when you know you want to. Prolonging the situation only makes it worse.
+Things are just things. Don't get too attached to them.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
