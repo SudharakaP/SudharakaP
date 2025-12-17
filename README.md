@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never pay full price for a sofa at DFS.
+Don't eat non-snow-coloured snow.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
