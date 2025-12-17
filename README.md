@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you've nothing nice to say, say nothing.
+Enjoy a little nonsense now and then.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
