@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip.
+Take time once in a while to look up at the stars for at least 5 minutes, in order to comprehend your cosmic significance.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
