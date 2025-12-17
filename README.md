@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Walking is a perfectly valid solution to traffic congestion problems.
+Put a piece of kitchen roll in with your bag of leaves to make them last longer.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
