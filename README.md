@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't give to others advice which you wouldn't follow.
+Once in a while, eat some sweets you used to enjoy when you were younger.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
