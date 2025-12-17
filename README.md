@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Everybody makes mistakes.
+Don't give to others advice which you wouldn't follow.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
