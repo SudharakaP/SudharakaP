@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The best nights out are when people around you are simply having fun.
+There is no reason at all to believe that White Wine is any different to water when it comes to removing Red Wine stains.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
