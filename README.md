@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A problem shared is a problem halved.
+Sing in the shower.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
