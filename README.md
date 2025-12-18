@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Good advice is something a man gives when he is too old to set a bad example.
+As you get older, learn never to trust a fart.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
