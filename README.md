@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Lemon and salt works wonders on tarnished brass.
+Never run a marathon in Crocs.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
