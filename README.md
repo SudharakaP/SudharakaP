@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's not about who likes you, it's about who you like.
+Exercise in the rain can really make you feel alive.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
