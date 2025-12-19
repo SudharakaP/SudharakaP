@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Do something selfless.
+Try using an old idea.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
