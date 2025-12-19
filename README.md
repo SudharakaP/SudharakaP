@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You're not that important; it's what you do that counts.
+Age is of no importance, unless you are a cheese.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
