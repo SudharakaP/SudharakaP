@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Turn jeans inside out when washing them to help preserve their colour.
+One of the top five regrets people have is that they didn't stay in contact with friends.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
