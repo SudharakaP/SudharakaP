@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you're going bald, don't comb your hair over your bald patch.
+Don't judge a book by its cover, unless it has a synopsis on the back.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
