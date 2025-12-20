@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Pedantry is fine, unless you're on the receiving end. And not a pedant.
+Make choices and dont look back.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
