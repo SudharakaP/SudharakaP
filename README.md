@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always seek out advice or opinions when making a decision.
+Don't feed Mogwais after midnight.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
