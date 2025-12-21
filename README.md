@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Walking is a perfectly valid solution to traffic congestion problems.
+Don't eat non-snow-coloured snow.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
