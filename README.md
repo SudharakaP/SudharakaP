@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-To cleanly remove the seed from an Avocado, lay a knife firmly across it, and twist.
+Today, do not use the words \Kind of\, \Sort of\ or \Maybe\. It either is or it isn't.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
