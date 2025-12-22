@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Be brave. Even if you're not, pretend to be. No one can tell the difference.
+The higher up you are in a company, the more likely it is that your boss is a psychopath.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
