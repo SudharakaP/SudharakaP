@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you need cheering up, try searching online for photos of kittens.
+Hold the door open for the next person.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
