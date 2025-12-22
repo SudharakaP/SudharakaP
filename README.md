@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Work is never as important as you think it is.
+Never buy cheap cling film.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
