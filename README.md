@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Some of life's best lessons are learnt at the worst times.
+If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
