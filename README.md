@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always double check you actually attached the file to the email.
+Most things are not as bad as you think they are.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
