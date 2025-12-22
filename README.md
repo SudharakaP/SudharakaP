@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't eat anything your grandparents wouldn't recognise as food.
+Pedantry is fine, unless you're on the receiving end. And not a pedant.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
