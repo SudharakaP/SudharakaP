@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Some people would be better off if they took their own advice.
+Brush your teeth the moment you get up.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
