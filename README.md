@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Everybody makes mistakes.
+The person who never made a mistake never made anything.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
