@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't feed Mogwais after midnight.
+Never pay full price for a sofa at DFS.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
