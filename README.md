@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Sarcasm is the lowest form of wit. Employ correctly with apt timing.
+When you're looking up at birds flying overhead, keep your mouth closed.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
