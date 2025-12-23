@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip.
+A common regret in life is wishing one had the courage to be ones true self.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
