@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try to not compliment people on things they don't control.
+If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
