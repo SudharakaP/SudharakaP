@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When having a clear out, ask yourself if an item has any financial, practical or sentimental value. If not, chuck it.
+When painting a room, preparation is key. The actual painting should account for about 40% of the work.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
