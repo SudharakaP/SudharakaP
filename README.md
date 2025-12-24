@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Do not check work email on your days off.
+Try to do the things that you're incapable of.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
