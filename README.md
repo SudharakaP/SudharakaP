@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Do not check work email on your days off.
+Rule number 1: Try not to die. Rule number 2: Don't be a dick.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
