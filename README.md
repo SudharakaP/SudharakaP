@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Life is short enough, don't race to the finish.
+If you need cheering up, try searching online for photos of kittens.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
