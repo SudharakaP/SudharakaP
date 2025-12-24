@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-True happiness always resides in the quest.
+If you don't ask, you don't get.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
