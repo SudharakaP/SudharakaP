@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always bet on black.
+The best sex is fun.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
