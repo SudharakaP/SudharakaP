@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Drink a glass of water before meals.
+To improve productivity, always have a shittier task to put off.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
