@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's not about who likes you, it's about who you like.
+A common regret in life is wishing one had the courage to be ones true self.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
