@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You spend half your life asleep or in bed. It's worth spending money on a good mattress, decent pillows and a comfy duvet.
+Take time once in a while to look up at the stars for at least 5 minutes, in order to comprehend your cosmic significance.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
