@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The more ideas that you give away, the more ideas that will come to you.
+Try going commando to an important meeting, NB: don't wear a skirt.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
