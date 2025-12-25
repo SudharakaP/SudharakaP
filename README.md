@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The most important thing is the thing most easily forgotten.
+You have as many hours in a day as the people you admire most.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
