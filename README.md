@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Smile and the world smiles with you. Frown and you're on your own.
+Don't wear clean trousers when walking your dog in the park.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
