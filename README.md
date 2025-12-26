@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Sarcasm is the lowest form of wit. Employ correctly with apt timing.
+What could you increase? What could you reduce?
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
