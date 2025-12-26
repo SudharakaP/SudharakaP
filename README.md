@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Sometimes it's best to ignore other people's advice.
+You have as many hours in a day as the people you admire most.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
