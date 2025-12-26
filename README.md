@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Learn from your mistakes.
+Build something out of LEGO.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
