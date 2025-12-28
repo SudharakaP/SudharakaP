@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When you look around and don't see anyone you respect, its time to leave.
+Rule number 1: Try not to die. Rule number 2: Don't be a dick.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
