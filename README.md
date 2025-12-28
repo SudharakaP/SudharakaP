@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The most important thing is the thing most easily forgotten.
+Good advice is something a man gives when he is too old to set a bad example.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
