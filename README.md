@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try buying a coffee for the creator of a free public API, now and then.
+The more ideas that you give away, the more ideas that will come to you.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
