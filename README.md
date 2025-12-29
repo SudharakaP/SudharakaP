@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Value the people in your life.
+Do not check work email on your days off.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
