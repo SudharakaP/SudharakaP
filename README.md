@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try going commando to an important meeting, NB: don't wear a skirt.
+Never write in an email to someone, something which you wouldn't say to that person's face.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
