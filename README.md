@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You're not that important; it's what you do that counts.
+If you can't do anything about it, there's no point in worrying about it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
