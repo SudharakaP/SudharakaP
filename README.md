@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A problem shared is a problem halved.
+Never buy cheap cling film.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
