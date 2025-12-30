@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Everything matters, but nothing matters that much.
+When the cistern is filling, the seat is probably still warm.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
