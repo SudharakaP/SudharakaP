@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Take time once in a while to look up at the stars for at least 5 minutes, in order to comprehend your cosmic significance.
+If you need cheering up, try searching online for photos of kittens.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
