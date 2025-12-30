@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Everybody makes mistakes.
+Respect your elders.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
