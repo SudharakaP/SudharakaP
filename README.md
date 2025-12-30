@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Be brave. Even if you're not, pretend to be. No one can tell the difference.
+Good things come to those who wait.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
