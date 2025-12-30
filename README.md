@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you find yourself distressed about something, ask yourself if it will still matter tomorrow or next week or next month.
+Visitors are like fish: As much as you might like them, after three days they start to smell.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
