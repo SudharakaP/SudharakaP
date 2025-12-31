@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's unlucky to be superstitious.
+Plant a tree.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
