@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never buy cheap cling film.
+Taking photos with tablet devices looks weird.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
