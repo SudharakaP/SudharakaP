@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you don't ask, you don't get.
+A nod is as good as a wink to a blind horse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
