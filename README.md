@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always seek out advice or opinions when making a decision.
+Happiness is a journey, not a destination.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
