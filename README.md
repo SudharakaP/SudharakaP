@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Stop using the term \busy\ as an excuse.
+Most things look better when you put them in a circle.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
