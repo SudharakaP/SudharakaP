@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you're squashed close to strangers on public transport, try not to be rude to them. No one likes those situations.
+Don't assume anything is possible or impossible until you've asked the people who will be doing the work.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
