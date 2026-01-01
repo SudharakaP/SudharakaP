@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Most things look better when you put them in a circle.
+To improve productivity, always have a shittier task to put off.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
