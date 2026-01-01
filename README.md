@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try using an old idea.
+You will always regret the round of JÃ¤germeister.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
