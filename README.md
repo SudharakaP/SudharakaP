@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Play is the true mother of invention.
+Never regret. If it's good, it's wonderful. If it's bad, it's experience.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
