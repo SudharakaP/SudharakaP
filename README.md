@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try to do the things that you're incapable of.
+It's unlucky to be superstitious.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
