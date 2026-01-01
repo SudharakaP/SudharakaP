@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try to pay at least one person a compliment every day.
+Always seek out advice or opinions when making a decision.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
