@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-To improve productivity, always have a shittier task to put off.
+When in doubt, just take the next small step.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
