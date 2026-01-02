@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you're going bald, don't comb your hair over your bald patch.
+Accentuate the positive, eliminate the negative.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
