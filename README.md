@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Step 1. Give a shit. Step 2. Don't be a dick. Step 3. Know when to let go.
+If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
