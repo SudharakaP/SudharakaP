@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip.
+Don't use Excel or Powerpoint documents for your basic word processing needs.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
