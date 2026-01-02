@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't judge a book by its cover, unless it has a synopsis on the back.
+No one knows anyone else in the way you do.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
