@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Accentuate the positive, eliminate the negative.
+Never cut your own fringe.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
