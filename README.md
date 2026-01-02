@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When you're looking up at birds flying overhead, keep your mouth closed.
+Life is better when you sing about bananas.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
