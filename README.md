@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A nod is as good as a wink to a blind horse.
+Try to pay at least one person a compliment every day.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
