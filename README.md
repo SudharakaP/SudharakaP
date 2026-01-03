@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When having a clear out, ask yourself if an item has any financial, practical or sentimental value. If not, chuck it.
+Big things have small beginnings.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
