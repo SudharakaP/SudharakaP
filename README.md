@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try to not compliment people on things they don't control.
+A nod is as good as a wink to a blind horse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
