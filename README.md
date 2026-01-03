@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always seek out advice or opinions when making a decision.
+You're not that important; it's what you do that counts.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
