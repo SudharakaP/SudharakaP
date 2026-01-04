@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Have a firm handshake.
+Everything matters, but nothing matters that much.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
