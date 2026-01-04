@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you have the chance, take it!
+Have a firm handshake.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
