@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If it ain't broke don't fix it.
+Big things have small beginnings.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
