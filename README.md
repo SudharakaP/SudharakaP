@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-For every complex problem there is an answer that is clear, simple, and wrong.
+Mercy is the better part of justice.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
