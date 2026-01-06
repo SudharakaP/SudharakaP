@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Stop using the term \busy\ as an excuse.
+Repeat people's names when you meet them.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
