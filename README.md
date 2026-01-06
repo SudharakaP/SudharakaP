@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When you look around and don't see anyone you respect, its time to leave.
+When hugging, hug with both arms and apply reasonable, affectionate pressure.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
