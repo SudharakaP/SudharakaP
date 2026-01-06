@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Smile and the world smiles with you. Frown and you're on your own.
+Visitors are like fish: As much as you might like them, after three days they start to smell.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
