@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Put a piece of kitchen roll in with your bag of leaves to make them last longer.
+Everyone has their down days. Don't take it out on innocent bystanders.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
