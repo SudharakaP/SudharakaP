@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-For every complex problem there is an answer that is clear, simple, and wrong.
+Give up your seat for someone who needs it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
