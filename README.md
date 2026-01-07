@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Most things are not as bad as you think they are.
+Never write in an email to someone, something which you wouldn't say to that person's face.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
