@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never write in an email to someone, something which you wouldn't say to that person's face.
+Visitors are like fish: As much as you might like them, after three days they start to smell.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
