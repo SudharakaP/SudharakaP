@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Today, do not use the words \Kind of\, \Sort of\ or \Maybe\. It either is or it isn't.
+Good advice is something a man gives when he is too old to set a bad example.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
