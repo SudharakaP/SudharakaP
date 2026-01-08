@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't eat non-snow-coloured snow.
+If you need cheering up, try searching online for photos of kittens.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
