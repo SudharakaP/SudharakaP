@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Build something out of LEGO.
+Play is the true mother of invention.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
