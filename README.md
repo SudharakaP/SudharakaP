@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you are ever in doubt about whether or not to wash your hair: Wash it.
+Don't put off breaking up with someone when you know you want to. Prolonging the situation only makes it worse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
