@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-One of the top five regrets people have is that they didn't have the courage to be their true self.
+Try going commando to an important meeting, NB: don't wear a skirt.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
