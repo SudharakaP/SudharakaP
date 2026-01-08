@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't promise what you can't deliver.
+Good things come to those who wait.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
