@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you've nothing nice to say, say nothing.
+The sun always shines above the clouds.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
