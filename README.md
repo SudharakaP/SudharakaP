@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Good advice is something a man gives when he is too old to set a bad example.
+If you get stuck, try doing the opposite of what the solution requires.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
