@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Be brave. Even if you're not, pretend to be. No one can tell the difference.
+Don't try and bump start a motorcycle on an icy road.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
