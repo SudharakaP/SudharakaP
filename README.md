@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When in doubt, just take the next small step.
+Do not check work email on your days off.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
