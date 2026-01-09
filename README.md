@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Most things are not as bad as you think they are.
+When having a clear out, ask yourself if an item has any financial, practical or sentimental value. If not, chuck it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
