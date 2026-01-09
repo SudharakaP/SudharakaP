@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Today, do not use the words \Kind of\, \Sort of\ or \Maybe\. It either is or it isn't.
+Never write in an email to someone, something which you wouldn't say to that person's face.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
