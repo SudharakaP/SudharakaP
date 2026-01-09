@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you can't do anything about it, there's no point in worrying about it.
+If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
