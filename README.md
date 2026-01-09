@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-There is no reason at all to believe that White Wine is any different to water when it comes to removing Red Wine stains.
+When having a clear out, ask yourself if an item has any financial, practical or sentimental value. If not, chuck it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
