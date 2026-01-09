@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you can't do anything about it, there's no point in worrying about it.
+Most things done in secrecy are better left undone.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
