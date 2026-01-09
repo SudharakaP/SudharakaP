@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Put a piece of kitchen roll in with your bag of leaves to make them last longer.
+If you can't do anything about it, there's no point in worrying about it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
