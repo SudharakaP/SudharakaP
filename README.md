@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Be brave. Even if you're not, pretend to be. No one can tell the difference.
+Once you find a really good friend don't do anything that could mess up your friendship.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
