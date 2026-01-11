@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You have as many hours in a day as the people you admire most.
+If you're going bald, don't comb your hair over your bald patch.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
