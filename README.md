@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never set an alarm clock unless you know how to switch it off
+Age is of no importance, unless you are a cheese.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
