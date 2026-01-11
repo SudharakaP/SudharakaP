@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Good things come to those who wait.
+Life can be a lot more interesting inside your head.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
