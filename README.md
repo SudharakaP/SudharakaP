@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you are feeling down, try holding a pencil between your top lip and your nose for five minutes.
+If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
