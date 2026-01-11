@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Rule number 1: Try not to die. Rule number 2: Don't be a dick.
+When you're at a concert or event, enjoy the moment, enjoy being there. Try leaving your camera in your pocket.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
