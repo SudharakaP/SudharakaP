@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Why wait until valentines day for a romantic gesture?
+If you need cheering up, try searching online for photos of kittens.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
