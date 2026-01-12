@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Value the people in your life.
+When painting a room, preparation is key. The actual painting should account for about 40% of the work.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
