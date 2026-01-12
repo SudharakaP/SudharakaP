@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Some people would be better off if they took their own advice.
+Don't let the bastards grind you down.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
