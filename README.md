@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you get stuck, try doing the opposite of what the solution requires.
+The quieter you become, the more you can hear.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
