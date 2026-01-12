@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The most important thing is the thing most easily forgotten.
+Value the people in your life.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
