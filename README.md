@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-What could you increase? What could you reduce?
+Drink a glass of water before meals.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
