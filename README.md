@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The quieter you become, the more you can hear.
+Remember that spiders are more afraid of you, than you are of them.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
