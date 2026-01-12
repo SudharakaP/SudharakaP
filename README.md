@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you're going bald, don't comb your hair over your bald patch.
+Turn jeans inside out when washing them to help preserve their colour.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
