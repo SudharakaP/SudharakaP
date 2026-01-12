@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Today, do not use the words \Kind of\, \Sort of\ or \Maybe\. It either is or it isn't.
+Never set an alarm clock unless you know how to switch it off
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
