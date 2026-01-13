@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Exercise in the rain can really make you feel alive.
+To improve productivity, always have a shittier task to put off.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
