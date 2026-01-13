@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you find yourself distressed about something, ask yourself if it will still matter tomorrow or next week or next month.
+Good advice is something a man gives when he is too old to set a bad example.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
