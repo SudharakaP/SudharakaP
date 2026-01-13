@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never write in an email to someone, something which you wouldn't say to that person's face.
+One of the top five regrets people have is that they didn't stay in contact with friends.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
