@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Why wait until valentines day for a romantic gesture?
+When you look around and don't see anyone you respect, its time to leave.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
