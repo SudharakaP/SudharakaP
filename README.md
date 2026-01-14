@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never regret. If it's good, it's wonderful. If it's bad, it's experience.
+Sing in the shower.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
