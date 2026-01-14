@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Good things come to those who wait.
+You're not as fat as you think you are.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
