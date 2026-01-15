@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try to pay at least one person a compliment every day.
+A common regret in life is wishing one had the courage to be ones true self.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
