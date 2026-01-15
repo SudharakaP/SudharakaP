@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Age is of no importance, unless you are a cheese.
+Most things look better when you put them in a circle.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
