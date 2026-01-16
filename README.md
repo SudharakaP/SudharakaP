@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't judge a book by its cover, unless it has a synopsis on the back.
+If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
