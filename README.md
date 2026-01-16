@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Opinions are like arseholes, everyone has one.
+The number of vampires in the average home, is directly proportional to the amount of garlic bread in the fridge.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
