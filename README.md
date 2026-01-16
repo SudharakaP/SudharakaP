@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The number of vampires in the average home, is directly proportional to the amount of garlic bread in the fridge.
+If you think your headphones are dying, check the socket for fluff with a straightened paperclip.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
