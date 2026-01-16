@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The best nights out are when people around you are simply having fun.
+Pedantry is fine, unless you're on the receiving end. And not a pedant.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
