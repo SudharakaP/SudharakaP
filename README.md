@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Good advice is something a man gives when he is too old to set a bad example.
+Rule number 1: Try not to die. Rule number 2: Don't be a dick.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
