@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Avoid mixing Ginger Nuts with other biscuits, they contaminate. Keep separated.
+Visitors are like fish: As much as you might like them, after three days they start to smell.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
