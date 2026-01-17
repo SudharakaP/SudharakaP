@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try to not compliment people on things they don't control.
+It always seems impossible, until it's done.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
