@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You will always regret the round of Tequila.
+Good advice is something a man gives when he is too old to set a bad example.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
