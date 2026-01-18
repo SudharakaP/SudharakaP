@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The number of vampires in the average home, is directly proportional to the amount of garlic bread in the fridge.
+It's unlucky to be superstitious.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
