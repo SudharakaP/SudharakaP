@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Things are just things. Don't get too attached to them.
+If you're feeling tired or anxious, a pint of water will almost always make you feel better.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
