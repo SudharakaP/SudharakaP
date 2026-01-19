@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The hardest things to say are usually the most important.
+Never regret. If it's good, it's wonderful. If it's bad, it's experience.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
