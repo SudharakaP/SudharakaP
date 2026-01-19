@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't put off breaking up with someone when you know you want to. Prolonging the situation only makes it worse.
+The number of vampires in the average home, is directly proportional to the amount of garlic bread in the fridge.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
