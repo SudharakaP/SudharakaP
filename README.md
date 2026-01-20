@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Stop procrastinating.
+Build something out of LEGO.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
