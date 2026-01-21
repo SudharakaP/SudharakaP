@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The sun always shines above the clouds.
+The most important thing is the thing most easily forgotten.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
