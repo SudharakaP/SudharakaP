@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Once in a while, eat some sweets you used to enjoy when you were younger.
+It's not about who likes you, it's about who you like.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
