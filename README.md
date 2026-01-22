@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't assume anything is possible or impossible until you've asked the people who will be doing the work.
+When painting a room, preparation is key. The actual painting should account for about 40% of the work.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
