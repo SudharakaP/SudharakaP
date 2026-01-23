@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you can't do anything about it, there's no point in worrying about it.
+Fail. Fail again. Fail better.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
