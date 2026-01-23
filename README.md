@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If it still itches after a week, go to the doctors.
+Stop using the term \busy\ as an excuse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
