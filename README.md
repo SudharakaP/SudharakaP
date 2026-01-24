@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You're not that important; it's what you do that counts.
+When you're looking up at birds flying overhead, keep your mouth closed.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
