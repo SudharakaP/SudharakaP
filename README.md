@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you don't ask, you don't get.
+When faced with a choice, do both.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
