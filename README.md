@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you don't want something to be public, don't post it on the Internet.
+Once you find a really good friend don't do anything that could mess up your friendship.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
