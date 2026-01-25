@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't judge a book by its cover, unless it has a synopsis on the back.
+Good advice is something a man gives when he is too old to set a bad example.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
