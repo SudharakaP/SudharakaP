@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Eat food. Not too much, mostly plants.
+You have as many hours in a day as the people you admire most.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
