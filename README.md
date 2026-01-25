@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't use Excel or Powerpoint documents for your basic word processing needs.
+A common regret in life is wishing one hadn't worked so hard.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
