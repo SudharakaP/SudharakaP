@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Pedantry is fine, unless you're on the receiving end. And not a pedant.
+Don't put off breaking up with someone when you know you want to. Prolonging the situation only makes it worse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
