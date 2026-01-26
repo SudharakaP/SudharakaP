@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you don't want something to be public, don't post it on the Internet.
+A problem shared is a problem halved.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
