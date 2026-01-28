@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Most things look better when you put them in a circle.
+Always seek out advice or opinions when making a decision.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
