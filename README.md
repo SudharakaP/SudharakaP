@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Only those who attempt the impossible can achieve the absurd.
+Life can be a lot more interesting inside your head.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
