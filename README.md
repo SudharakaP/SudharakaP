@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Life can be a lot more interesting inside your head.
+Never set an alarm clock unless you know how to switch it off
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
