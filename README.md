@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Most things look better when you put them in a circle.
+If you are ever in doubt about whether or not to wash your hair: Wash it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
