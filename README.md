@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Build something out of LEGO.
+Things are just things. Don't get too attached to them.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
