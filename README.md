@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-State the problem in words as clearly as possible.
+No one knows anyone else in the way you do.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
