@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never waste an opportunity to tell someone you love them.
+You have as many hours in a day as the people you admire most.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
