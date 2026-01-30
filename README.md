@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Sometimes, you just need to say sorry. Even if it's not your fault.
+Remember that spiders are more afraid of you, than you are of them.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
