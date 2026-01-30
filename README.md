@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When you're looking up at birds flying overhead, keep your mouth closed.
+Being kind is more rewarding than being right.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
