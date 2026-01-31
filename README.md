@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Sometimes, you just need to say sorry. Even if it's not your fault.
+Some people would be better off if they took their own advice.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
