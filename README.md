@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you are ever in doubt about whether or not to wash your hair: Wash it.
+Life is better when you sing about bananas.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
