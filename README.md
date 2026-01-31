@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you're feeling tired or anxious, a pint of water will almost always make you feel better.
+When something goes wrong in life, just shout \plot twist!\ and carry on.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
