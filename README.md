@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you have the chance, take it!
+Try to do the things that you're incapable of.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
