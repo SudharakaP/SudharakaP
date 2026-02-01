@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Good things come to those who wait.
+Age is of no importance, unless you are a cheese.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
