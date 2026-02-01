@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's not about who likes you, it's about who you like.
+Take time once in a while to look up at the stars for at least 5 minutes, in order to comprehend your cosmic significance.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
