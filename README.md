@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you are ever in doubt about whether or not to wash your hair: Wash it.
+You will always regret the round of JÃ¤germeister.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
