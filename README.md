@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The more ideas that you give away, the more ideas that will come to you.
+If you are ever in doubt about whether or not to wash your hair: Wash it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
