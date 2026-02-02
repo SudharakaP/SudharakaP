@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always seek out advice or opinions when making a decision.
+Your smile could make someone's day, don't forget to wear it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
