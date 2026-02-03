@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't assume anything is possible or impossible until you've asked the people who will be doing the work.
+A common regret in life is wishing one hadn't worked so hard.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
