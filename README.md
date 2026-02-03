@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The more ideas that you give away, the more ideas that will come to you.
+Just because you are offended, doesn't mean you are right.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
