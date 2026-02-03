@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-There is no reason at all to believe that White Wine is any different to water when it comes to removing Red Wine stains.
+Turn jeans inside out when washing them to help preserve their colour.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
