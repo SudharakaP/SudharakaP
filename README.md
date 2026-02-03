@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Smile and the world smiles with you. Frown and you're on your own.
+If you get stuck, try doing the opposite of what the solution requires.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
