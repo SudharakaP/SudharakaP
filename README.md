@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Play is the true mother of invention.
+Most things done in secrecy are better left undone.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
