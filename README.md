@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-As you get older, learn never to trust a fart.
+Age is of no importance, unless you are a cheese.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
