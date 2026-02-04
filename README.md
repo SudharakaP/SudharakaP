@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-To improve productivity, always have a shittier task to put off.
+Sometimes, you just need to say sorry. Even if it's not your fault.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
