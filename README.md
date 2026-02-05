@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When you look around and don't see anyone you respect, its time to leave.
+Always the burrito.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
