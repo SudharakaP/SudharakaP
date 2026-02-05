@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Measure twice, cut once.
+Cars are bad investments.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
