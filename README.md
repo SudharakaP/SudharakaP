@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Avoid mixing Ginger Nuts with other biscuits, they contaminate. Keep separated.
+Never buy cheap cling film.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
