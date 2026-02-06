@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always block trolls.
+Eliminate the unnecessary.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
