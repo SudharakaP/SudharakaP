@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try to pay at least one person a compliment every day.
+If your hair is thinning, try dying your hair a similar tone to your scalp.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
