@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Step 1. Give a shit. Step 2. Don't be a dick. Step 3. Know when to let go.
+A long walk alone with some time to think, can work wonders.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
