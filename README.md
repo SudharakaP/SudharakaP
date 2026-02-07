@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-As you get older, learn never to trust a fart.
+Once in a while, eat some sweets you used to enjoy when you were younger.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
