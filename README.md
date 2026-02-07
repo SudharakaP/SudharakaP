@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Giving someone a hug can be mutually rewarding. Try to give at least one hug a day to someone.
+One of the top five regrets people have is that they didn't stay in contact with friends.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
