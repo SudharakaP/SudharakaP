@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Enjoy a little nonsense now and then.
+Once you find a really good friend don't do anything that could mess up your friendship.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
