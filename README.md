@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Have a firm handshake.
+Take time once in a while to look up at the stars for at least 5 minutes, in order to comprehend your cosmic significance.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
