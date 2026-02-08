@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-For every complex problem there is an answer that is clear, simple, and wrong.
+When in doubt, just take the next small step.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
