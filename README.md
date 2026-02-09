@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't give to others advice which you wouldn't follow.
+Always block trolls.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
