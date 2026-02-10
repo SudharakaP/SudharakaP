@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You don't need to floss all of your teeth. Only the ones you want to keep.
+Good advice is something a man gives when he is too old to set a bad example.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
