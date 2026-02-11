@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Good advice is something a man gives when he is too old to set a bad example.
+Drink a glass of water before meals.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
