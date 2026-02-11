@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Drink a glass of water before meals.
+Never regret. If it's good, it's wonderful. If it's bad, it's experience.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
