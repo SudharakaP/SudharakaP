@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you don't like the opinion you've been given, get another one.
+A common regret in life is wishing one had the courage to be ones true self.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
