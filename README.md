@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always get two ciders.
+A common regret in life is wishing one hadn't worked so hard.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
