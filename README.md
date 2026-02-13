@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A nod is as good as a wink to a blind horse.
+Turn jeans inside out when washing them to help preserve their colour.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
