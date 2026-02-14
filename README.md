@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Lemon and salt works wonders on tarnished brass.
+When something goes wrong in life, just shout \plot twist!\ and carry on.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
