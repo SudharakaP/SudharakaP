@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Smile and the world smiles with you. Frown and you're on your own.
+When you're at a concert or event, enjoy the moment, enjoy being there. Try leaving your camera in your pocket.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
