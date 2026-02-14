@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you are feeling down, try holding a pencil between your top lip and your nose for five minutes.
+Rule number 1: Try not to die. Rule number 2: Don't be a dick.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
