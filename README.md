@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Drink a glass of water before meals.
+The hardest things to say are usually the most important.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
