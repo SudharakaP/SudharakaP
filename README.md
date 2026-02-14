@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Your smile could make someone's day, don't forget to wear it.
+Be brave. Even if you're not, pretend to be. No one can tell the difference.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
