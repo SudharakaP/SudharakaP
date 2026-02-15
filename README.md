@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Mercy is the better part of justice.
+Cars are bad investments.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
