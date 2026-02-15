@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't try and bump start a motorcycle on an icy road.
+The more ideas that you give away, the more ideas that will come to you.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
