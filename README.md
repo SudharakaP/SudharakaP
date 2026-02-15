@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's unlucky to be superstitious.
+Don't be afraid of silly ideas.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
