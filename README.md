@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The more ideas that you give away, the more ideas that will come to you.
+Take time once in a while to look up at the stars for at least 5 minutes, in order to comprehend your cosmic significance.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
