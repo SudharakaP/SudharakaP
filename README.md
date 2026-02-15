@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The hardest things to say are usually the most important.
+Mercy is the better part of justice.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
