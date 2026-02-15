@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Brush your teeth the moment you get up.
+There is no reason at all to believe that White Wine is any different to water when it comes to removing Red Wine stains.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
