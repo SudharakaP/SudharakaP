@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Alway do anything for love, but don't do that.
+A nod is as good as a wink to a blind horse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
