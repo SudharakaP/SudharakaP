@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The more ideas that you give away, the more ideas that will come to you.
+Life is better when you sing about bananas.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
