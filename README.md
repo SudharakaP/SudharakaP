@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-To improve productivity, always have a shittier task to put off.
+Eat food. Not too much, mostly plants.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
