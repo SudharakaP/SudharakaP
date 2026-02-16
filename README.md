@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-One of the top five regrets people have is that they didn't have the courage to be their true self.
+Step 1. Give a shit. Step 2. Don't be a dick. Step 3. Know when to let go.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
