@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip.
+Don't put off breaking up with someone when you know you want to. Prolonging the situation only makes it worse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
