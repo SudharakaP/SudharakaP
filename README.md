@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Step 1. Give a shit. Step 2. Don't be a dick. Step 3. Know when to let go.
+Turn jeans inside out when washing them to help preserve their colour.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
