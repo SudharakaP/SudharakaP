@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Age is of no importance, unless you are a cheese.
+Being kind is more rewarding than being right.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
