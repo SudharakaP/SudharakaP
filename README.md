@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Sometimes, you just need to say sorry. Even if it's not your fault.
+Step 1. Give a shit. Step 2. Don't be a dick. Step 3. Know when to let go.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
