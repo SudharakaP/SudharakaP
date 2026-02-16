@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The number of vampires in the average home, is directly proportional to the amount of garlic bread in the fridge.
+Once in a while, eat some sweets you used to enjoy when you were younger.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
