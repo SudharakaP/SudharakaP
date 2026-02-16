@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never regret. If it's good, it's wonderful. If it's bad, it's experience.
+One of the single best things about being an adult, is being able to buy as much LEGO as you want.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
