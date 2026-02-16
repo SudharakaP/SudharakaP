@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always block trolls.
+Don't feed Mogwais after midnight.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
