@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Measure twice, cut once.
+Never run a marathon in Crocs.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
