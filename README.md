@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-State the problem in words as clearly as possible.
+Value the people in your life.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
