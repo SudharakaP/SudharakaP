@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never waste an opportunity to tell someone you love them.
+Never let your Mother cut your hair.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
