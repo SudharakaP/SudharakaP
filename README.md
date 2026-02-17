@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you get stuck, try doing the opposite of what the solution requires.
+Alway do anything for love, but don't do that.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
