@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Everyone has their down days. Don't take it out on innocent bystanders.
+Never pay full price for a sofa at DFS.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
