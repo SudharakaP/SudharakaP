@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Pedantry is fine, unless you're on the receiving end. And not a pedant.
+Always double check you actually attached the file to the email.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
