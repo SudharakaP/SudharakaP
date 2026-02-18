@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You can have too much of a good thing.
+Being kind is more rewarding than being right.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
