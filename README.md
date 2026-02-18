@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's not about who likes you, it's about who you like.
+Don't judge a book by its cover, unless it has a synopsis on the back.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
