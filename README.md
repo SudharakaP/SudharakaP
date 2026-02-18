@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't assume anything is possible or impossible until you've asked the people who will be doing the work.
+Turn jeans inside out when washing them to help preserve their colour.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
