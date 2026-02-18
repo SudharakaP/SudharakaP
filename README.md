@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Mercy is the better part of justice.
+You can have too much of a good thing.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
