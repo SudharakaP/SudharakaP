@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The best nights out are when people around you are simply having fun.
+Turn jeans inside out when washing them to help preserve their colour.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
