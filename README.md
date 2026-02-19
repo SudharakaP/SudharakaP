@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When faced with a choice, do both.
+Don't take it personally.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
