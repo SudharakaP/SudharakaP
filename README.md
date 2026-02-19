@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't put off breaking up with someone when you know you want to. Prolonging the situation only makes it worse.
+Sometimes, you just need to say sorry. Even if it's not your fault.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
