@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It is easy to sit up and take notice, what's difficult is getting up and taking action.
+For every complex problem there is an answer that is clear, simple, and wrong.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
