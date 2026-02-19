@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Life is short enough, don't race to the finish.
+The best nights out are when people around you are simply having fun.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
