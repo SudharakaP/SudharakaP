@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The higher up you are in a company, the more likely it is that your boss is a psychopath.
+Gratitude is said to be the secret to happiness.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
