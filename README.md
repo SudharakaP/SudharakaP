@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Some people would be better off if they took their own advice.
+No one knows anyone else in the way you do.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
