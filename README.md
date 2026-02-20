@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Giving someone a hug can be mutually rewarding. Try to give at least one hug a day to someone.
+Your smile could make someone's day, don't forget to wear it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
