@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Life is short enough, don't race to the finish.
+Happiness is a journey, not a destination.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
