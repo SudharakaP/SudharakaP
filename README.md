@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Your smile could make someone's day, don't forget to wear it.
+Good things come to those who wait.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
