@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-One of the top five regrets people have is that they didn't stay in contact with friends.
+Your smile could make someone's day, don't forget to wear it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
