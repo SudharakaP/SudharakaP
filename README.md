@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Big things have small beginnings.
+Happiness is a journey, not a destination.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
