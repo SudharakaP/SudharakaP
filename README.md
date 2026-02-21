@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You will always regret the round of Tequila.
+Don't promise what you can't deliver.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
