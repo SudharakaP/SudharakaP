@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Good things come to those who wait.
+Just because you are offended, doesn't mean you are right.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
