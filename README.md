@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Mercy is the better part of justice.
+Don't ever name files or folders using the word \Final\.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
