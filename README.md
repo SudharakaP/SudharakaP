@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't waste food.
+Plant a tree.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
