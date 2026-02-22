@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't promise what you can't deliver.
+Opinions are like arseholes, everyone has one.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
