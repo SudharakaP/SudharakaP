@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Turn jeans inside out when washing them to help preserve their colour.
+If it still itches after a week, go to the doctors.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
