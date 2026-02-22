@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Big things have small beginnings.
+Mercy is the better part of justice.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
