@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When hugging, hug with both arms and apply reasonable, affectionate pressure.
+Being kind is more rewarding than being right.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
