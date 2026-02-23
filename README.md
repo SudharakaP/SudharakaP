@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When hugging, hug with both arms and apply reasonable, affectionate pressure.
+Don't put off breaking up with someone when you know you want to. Prolonging the situation only makes it worse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
