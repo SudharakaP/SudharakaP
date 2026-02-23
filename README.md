@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you are ever in doubt about whether or not to wash your hair: Wash it.
+Most things are not as bad as you think they are.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
