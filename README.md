@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If it ain't broke don't fix it.
+Always seek out advice or opinions when making a decision.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
