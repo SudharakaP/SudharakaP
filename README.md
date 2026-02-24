@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Sing in the shower.
+Avoid mixing Ginger Nuts with other biscuits, they contaminate. Keep separated.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
