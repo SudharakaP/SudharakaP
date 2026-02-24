@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Things are just things. Don't get too attached to them.
+If you've nothing nice to say, say nothing.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
