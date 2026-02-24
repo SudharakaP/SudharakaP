@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You spend half your life asleep or in bed. It's worth spending money on a good mattress, decent pillows and a comfy duvet.
+Smile and the world smiles with you. Frown and you're on your own.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
