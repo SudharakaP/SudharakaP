@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you think nobody cares if you're alive, try missing a few payments.
+Never set an alarm clock unless you know how to switch it off
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
