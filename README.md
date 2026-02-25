@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Most things done in secrecy are better left undone.
+Everything in moderation, including moderation itself.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
