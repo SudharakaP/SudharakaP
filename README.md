@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you are ever in doubt about whether or not to wash your hair: Wash it.
+Giving someone a hug can be mutually rewarding. Try to give at least one hug a day to someone.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
