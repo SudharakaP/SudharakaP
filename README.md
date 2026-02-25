@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Respect other people's opinions, even when they differ from your own.
+A nod is as good as a wink to a blind horse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
