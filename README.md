@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never set an alarm clock unless you know how to switch it off
+Respect other people's opinions, even when they differ from your own.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
