@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Put a piece of kitchen roll in with your bag of leaves to make them last longer.
+Today, do not use the words \Kind of\, \Sort of\ or \Maybe\. It either is or it isn't.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
