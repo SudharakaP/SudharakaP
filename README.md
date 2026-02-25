@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Today, do not use the words \Kind of\, \Sort of\ or \Maybe\. It either is or it isn't.
+A common regret in life is wishing one hadn't worked so hard.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
