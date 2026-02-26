@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Eat food. Not too much, mostly plants.
+A nod is as good as a wink to a blind horse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
