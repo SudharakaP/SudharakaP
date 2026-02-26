@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you need cheering up, try searching online for photos of kittens.
+Always seek out advice or opinions when making a decision.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
