@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Repeat people's names when you meet them.
+It's always the quiet ones.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
