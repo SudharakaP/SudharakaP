@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-True happiness always resides in the quest.
+Do something selfless.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
