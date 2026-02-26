@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A nod is as good as a wink to a blind horse.
+If you are ever in doubt about whether or not to wash your hair: Wash it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
