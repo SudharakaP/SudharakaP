@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The person who never made a mistake never made anything.
+When something goes wrong in life, just shout \plot twist!\ and carry on.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
