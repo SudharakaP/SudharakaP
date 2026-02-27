@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Eat food. Not too much, mostly plants.
+Step 1. Give a shit. Step 2. Don't be a dick. Step 3. Know when to let go.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
