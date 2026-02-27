@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If your hair is thinning, try dying your hair a similar tone to your scalp.
+You will always regret the round of JÃ¤germeister.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
