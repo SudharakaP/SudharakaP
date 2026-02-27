@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never let your Mother cut your hair.
+Always the burrito.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
