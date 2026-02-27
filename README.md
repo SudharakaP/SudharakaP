@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Do a bit more for your friends.
+Do, or do not. There is no try.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
