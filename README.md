@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Giving someone a hug can be mutually rewarding. Try to give at least one hug a day to someone.
+A common regret in life is wishing one hadn't worked so hard.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
