@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Keep it simple.
+Exercise in the rain can really make you feel alive.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
