@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never regret. If it's good, it's wonderful. If it's bad, it's experience.
+Some people would be better off if they took their own advice.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
