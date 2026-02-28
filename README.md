@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you get stuck, try doing the opposite of what the solution requires.
+Never cut your own fringe.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
