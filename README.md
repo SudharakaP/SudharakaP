@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's not about who likes you, it's about who you like.
+Repeat people's names when you meet them.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
