@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try making a list.
+No one knows anyone else in the way you do.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
