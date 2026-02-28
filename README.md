@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Life is short enough, don't race to the finish.
+Just because you are offended, doesn't mean you are right.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
