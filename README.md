@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Just because you are offended, doesn't mean you are right.
+Sometimes it's best to ignore other people's advice.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
