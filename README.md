@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Eat food. Not too much, mostly plants.
+Learn to handle criticism.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
