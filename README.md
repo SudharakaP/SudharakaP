@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The most important thing is the thing most easily forgotten.
+Never set an alarm clock unless you know how to switch it off
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
