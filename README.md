@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When the cistern is filling, the seat is probably still warm.
+Once you find a really good friend don't do anything that could mess up your friendship.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
