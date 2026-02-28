@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Play is the true mother of invention.
+Don't be afraid to ask questions.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
