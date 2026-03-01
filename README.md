@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't judge a book by its cover, unless it has a synopsis on the back.
+Visitors are like fish: As much as you might like them, after three days they start to smell.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
