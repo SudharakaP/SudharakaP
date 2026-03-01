@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-No \brand\ is your friend.
+Try buying a coffee for the creator of a free public API, now and then.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
