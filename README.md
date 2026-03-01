@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never run with scissors.
+Learn to handle criticism.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
