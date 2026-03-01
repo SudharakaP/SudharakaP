@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never regret. If it's good, it's wonderful. If it's bad, it's experience.
+Try to do the things that you're incapable of.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
