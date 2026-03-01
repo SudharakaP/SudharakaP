@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try buying a coffee for the creator of a free public API, now and then.
+If you get stuck, try doing the opposite of what the solution requires.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
