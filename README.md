@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you don't like the opinion you've been given, get another one.
+Do, or do not. There is no try.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
