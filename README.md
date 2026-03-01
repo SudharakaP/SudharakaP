@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Work is never as important as you think it is.
+Avoid mixing Ginger Nuts with other biscuits, they contaminate. Keep separated.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
