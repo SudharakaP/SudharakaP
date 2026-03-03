@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Stop using the term \busy\ as an excuse.
+Everyone has their down days. Don't take it out on innocent bystanders.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
