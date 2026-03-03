@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You have as many hours in a day as the people you admire most.
+Hold the door open for the next person.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
