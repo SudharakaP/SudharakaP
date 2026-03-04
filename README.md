@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Plant a tree.
+A common regret in life is wishing one hadn't worked so hard.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
