@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Do, or do not. There is no try.
+Always the burrito.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
