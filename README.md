@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-No one knows anyone else in the way you do.
+If you get stuck, try doing the opposite of what the solution requires.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
