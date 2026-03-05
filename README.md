@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't try and bump start a motorcycle on an icy road.
+The higher up you are in a company, the more likely it is that your boss is a psychopath.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
