@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't cross the streams.
+Learn to handle criticism.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
