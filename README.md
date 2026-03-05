@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Things are just things. Don't get too attached to them.
+Do not check work email on your days off.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
