@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always bet on black.
+Always seek out advice or opinions when making a decision.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
