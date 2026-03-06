@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Most things are not as bad as you think they are.
+The sun always shines above the clouds.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
