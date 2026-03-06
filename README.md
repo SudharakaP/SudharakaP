@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you need cheering up, try searching online for photos of kittens.
+You're not that important; it's what you do that counts.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
