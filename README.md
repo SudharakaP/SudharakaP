@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Value the people in your life.
+Keep it simple.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
