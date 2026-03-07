@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you can't do anything about it, there's no point in worrying about it.
+You're not as fat as you think you are.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
