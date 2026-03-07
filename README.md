@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You're not as fat as you think you are.
+For every complex problem there is an answer that is clear, simple, and wrong.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
