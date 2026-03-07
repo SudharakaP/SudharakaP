@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Sometimes, you just need to say sorry. Even if it's not your fault.
+If your hair is thinning, try dying your hair a similar tone to your scalp.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
