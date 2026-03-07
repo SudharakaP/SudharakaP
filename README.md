@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's always the quiet ones.
+Look people in the eye.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
