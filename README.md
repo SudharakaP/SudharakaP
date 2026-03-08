@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-For every complex problem there is an answer that is clear, simple, and wrong.
+When something goes wrong in life, just shout \plot twist!\ and carry on.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
