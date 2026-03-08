@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When something goes wrong in life, just shout \plot twist!\ and carry on.
+There is no reason at all to believe that White Wine is any different to water when it comes to removing Red Wine stains.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
