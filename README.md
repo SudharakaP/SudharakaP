@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-One of the single best things about being an adult, is being able to buy as much LEGO as you want.
+When something goes wrong in life, just shout \plot twist!\ and carry on.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
