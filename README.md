@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't wear clean trousers when walking your dog in the park.
+Try buying a coffee for the creator of a free public API, now and then.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
