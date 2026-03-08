@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Remember that spiders are more afraid of you, than you are of them.
+It's always the quiet ones.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
