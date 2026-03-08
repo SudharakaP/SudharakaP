@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The number of vampires in the average home, is directly proportional to the amount of garlic bread in the fridge.
+If you're squashed close to strangers on public transport, try not to be rude to them. No one likes those situations.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
