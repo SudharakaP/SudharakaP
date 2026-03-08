@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-What's stopping you?
+The number of vampires in the average home, is directly proportional to the amount of garlic bread in the fridge.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
