@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A common regret in life is wishing one hadn't worked so hard.
+Sarcasm is the lowest form of wit. Employ correctly with apt timing.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
