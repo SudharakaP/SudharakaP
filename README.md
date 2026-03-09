@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Stop using the term \busy\ as an excuse.
+Everything in moderation, including moderation itself.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
