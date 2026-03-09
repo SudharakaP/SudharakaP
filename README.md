@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Everything matters, but nothing matters that much.
+The higher up you are in a company, the more likely it is that your boss is a psychopath.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
