@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-No one knows anyone else in the way you do.
+Do a bit more for your friends.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
