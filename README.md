@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Only those who attempt the impossible can achieve the absurd.
+Don't take life too seriously.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
