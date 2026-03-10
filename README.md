@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Things are just things. Don't get too attached to them.
+What could you increase? What could you reduce?
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
