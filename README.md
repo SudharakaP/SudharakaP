@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Do something selfless.
+Value the people in your life.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
