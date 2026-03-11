@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You never really grow up.
+Do, or do not. There is no try.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
