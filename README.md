@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When hugging, hug with both arms and apply reasonable, affectionate pressure.
+It's wrong to be right.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
