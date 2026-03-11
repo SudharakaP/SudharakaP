@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's wrong to be right.
+If you don't ask, you don't get.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
