@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try buying a coffee for the creator of a free public API, now and then.
+The best nights out are when people around you are simply having fun.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
