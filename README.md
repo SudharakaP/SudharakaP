@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The best nights out are when people around you are simply having fun.
+If it still itches after a week, go to the doctors.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
