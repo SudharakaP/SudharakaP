@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The best nights out are when people around you are simply having fun.
+If you find yourself distressed about something, ask yourself if it will still matter tomorrow or next week or next month.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
