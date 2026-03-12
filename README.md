@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you are feeling down, try holding a pencil between your top lip and your nose for five minutes.
+You never really grow up.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
