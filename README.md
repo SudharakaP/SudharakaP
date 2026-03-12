@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Quality beats quantity.
+If you've nothing nice to say, say nothing.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
