@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't take life too seriously.
+Fail. Fail again. Fail better.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
