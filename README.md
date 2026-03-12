@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Look people in the eye.
+Age is of no importance, unless you are a cheese.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
