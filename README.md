@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When you're at a concert or event, enjoy the moment, enjoy being there. Try leaving your camera in your pocket.
+You don't need to floss all of your teeth. Only the ones you want to keep.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
