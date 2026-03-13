@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always block trolls.
+Measure twice, cut once.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
