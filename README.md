@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't take it personally.
+Drink a glass of water before meals.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
