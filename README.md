@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't use Excel or Powerpoint documents for your basic word processing needs.
+Do not seek praise, seek criticism.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
