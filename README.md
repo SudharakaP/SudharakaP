@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Put a piece of kitchen roll in with your bag of leaves to make them last longer.
+If you are ever in doubt about whether or not to wash your hair: Wash it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
