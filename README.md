@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't give to others advice which you wouldn't follow.
+Only those who attempt the impossible can achieve the absurd.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
