@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Today, do not use the words \Kind of\, \Sort of\ or \Maybe\. It either is or it isn't.
+Life is better when you sing about bananas.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
