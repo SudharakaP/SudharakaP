@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When in doubt, just take the next small step.
+Try going commando to an important meeting, NB: don't wear a skirt.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
