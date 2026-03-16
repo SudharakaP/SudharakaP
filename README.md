@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't eat anything your grandparents wouldn't recognise as food.
+Never run with scissors.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
