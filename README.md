@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Happiness is a journey, not a destination.
+A long walk alone with some time to think, can work wonders.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
