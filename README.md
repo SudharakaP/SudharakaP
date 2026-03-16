@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Happiness is a journey, not a destination.
+Hold the door open for the next person.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
