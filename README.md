@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you think your headphones are dying, check the socket for fluff with a straightened paperclip.
+Walking is a perfectly valid solution to traffic congestion problems.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
