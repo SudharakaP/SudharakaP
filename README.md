@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you're going bald, don't comb your hair over your bald patch.
+If you think your headphones are dying, check the socket for fluff with a straightened paperclip.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
