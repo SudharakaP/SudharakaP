@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you find yourself distressed about something, ask yourself if it will still matter tomorrow or next week or next month.
+Don't wear clean trousers when walking your dog in the park.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
