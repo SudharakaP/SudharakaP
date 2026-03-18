@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The number of vampires in the average home, is directly proportional to the amount of garlic bread in the fridge.
+Gratitude is said to be the secret to happiness.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
