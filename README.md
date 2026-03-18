@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Most things look better when you put them in a circle.
+When having a clear out, ask yourself if an item has any financial, practical or sentimental value. If not, chuck it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
