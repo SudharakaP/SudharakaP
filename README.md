@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The best nights out are when people around you are simply having fun.
+When faced with a choice, do both.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
