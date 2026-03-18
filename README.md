@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Keep it simple.
+Never let your Mother cut your hair.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
