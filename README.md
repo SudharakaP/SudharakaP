@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Respect other people's opinions, even when they differ from your own.
+Being kind is more rewarding than being right.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
