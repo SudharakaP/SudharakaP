@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't feed Mogwais after midnight.
+Be brave. Even if you're not, pretend to be. No one can tell the difference.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
