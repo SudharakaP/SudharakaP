@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The quieter you become, the more you can hear.
+Once in a while, eat some sweets you used to enjoy when you were younger.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
