@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Life is short enough, don't race to the finish.
+When the cistern is filling, the seat is probably still warm.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
