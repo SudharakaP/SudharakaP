@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Smile and the world smiles with you. Frown and you're on your own.
+You can have too much of a good thing.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
