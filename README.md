@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you've nothing nice to say, say nothing.
+The best nights out are when people around you are simply having fun.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
