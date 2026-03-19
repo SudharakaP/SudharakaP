@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Visitors are like fish: As much as you might like them, after three days they start to smell.
+If you think nobody cares if you're alive, try missing a few payments.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
