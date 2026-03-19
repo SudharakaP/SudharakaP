@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't eat anything your grandparents wouldn't recognise as food.
+Don't eat non-snow-coloured snow.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
