@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Make choices and dont look back.
+Always get two ciders.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
