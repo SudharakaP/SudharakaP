@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Remember that spiders are more afraid of you, than you are of them.
+Things are just things. Don't get too attached to them.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
