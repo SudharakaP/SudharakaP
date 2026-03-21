@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never cut your own fringe.
+Everything in moderation, including moderation itself.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
