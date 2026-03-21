@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Accentuate the positive, eliminate the negative.
+Stop using the term \busy\ as an excuse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
