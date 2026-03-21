@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always block trolls.
+True happiness always resides in the quest.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
