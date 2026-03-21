@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-One of the top five regrets people have is that they didn't stay in contact with friends.
+You can fail at what you don't want. So you might as well take a chance on doing what you love.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
