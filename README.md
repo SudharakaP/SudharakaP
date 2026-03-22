@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When you're at a concert or event, enjoy the moment, enjoy being there. Try leaving your camera in your pocket.
+The hardest things to say are usually the most important.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
