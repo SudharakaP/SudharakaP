@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Look people in the eye.
+It always seems impossible, until it's done.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
