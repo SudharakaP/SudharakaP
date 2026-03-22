@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-No \brand\ is your friend.
+Respect your elders.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
