@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Make choices and dont look back.
+Do not seek praise, seek criticism.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
