@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Today, do not use the words \Kind of\, \Sort of\ or \Maybe\. It either is or it isn't.
+If you have grandparents or parents - Talk to them more. Ask them about their life experiences.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
