@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Sing in the shower.
+If it ain't broke don't fix it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
