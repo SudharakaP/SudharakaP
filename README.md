@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The higher up you are in a company, the more likely it is that your boss is a psychopath.
+If you're squashed close to strangers on public transport, try not to be rude to them. No one likes those situations.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
