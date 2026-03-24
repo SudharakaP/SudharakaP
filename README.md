@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Sing in the shower.
+What could you increase? What could you reduce?
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
