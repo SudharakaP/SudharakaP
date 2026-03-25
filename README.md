@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never regret. If it's good, it's wonderful. If it's bad, it's experience.
+Today, do not use the words \Kind of\, \Sort of\ or \Maybe\. It either is or it isn't.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
