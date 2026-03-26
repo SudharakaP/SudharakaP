@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The quieter you become, the more you can hear.
+Don't eat anything your grandparents wouldn't recognise as food.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
