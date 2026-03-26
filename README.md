@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you are ever in doubt about whether or not to wash your hair: Wash it.
+Turn jeans inside out when washing them to help preserve their colour.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
