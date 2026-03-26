@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-One of the top five regrets people have is that they didn't stay in contact with friends.
+If it still itches after a week, go to the doctors.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
