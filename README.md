@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The hardest things to say are usually the most important.
+Do a bit more for your friends.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
