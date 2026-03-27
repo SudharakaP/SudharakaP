@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The most delicious cocktails often have the highest alcohol content. Always pace yourself to preserve your dignity.
+A nod is as good as a wink to a blind horse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
