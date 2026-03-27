@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The higher up you are in a company, the more likely it is that your boss is a psychopath.
+When hugging, hug with both arms and apply reasonable, affectionate pressure.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
