@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A nod is as good as a wink to a blind horse.
+Always the burrito.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
