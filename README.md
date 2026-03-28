@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Life is better when you sing about bananas.
+Hold the door open for the next person.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
