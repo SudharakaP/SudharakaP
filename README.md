@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Once in a while, eat some sweets you used to enjoy when you were younger.
+The sun always shines above the clouds.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
