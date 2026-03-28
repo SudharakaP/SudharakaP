@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Do not compare yourself with others.
+When faced with a choice, do both.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
