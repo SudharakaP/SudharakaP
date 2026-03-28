@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The sun always shines above the clouds.
+Don't take life too seriously.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
