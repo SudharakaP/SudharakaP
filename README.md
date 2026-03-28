@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You will always regret the round of Tequila.
+If you're feeling tired or anxious, a pint of water will almost always make you feel better.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
