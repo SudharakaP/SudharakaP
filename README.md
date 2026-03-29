@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Remember that spiders are more afraid of you, than you are of them.
+For every complex problem there is an answer that is clear, simple, and wrong.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
