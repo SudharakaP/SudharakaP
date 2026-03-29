@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try buying a coffee for the creator of a free public API, now and then.
+When hugging, hug with both arms and apply reasonable, affectionate pressure.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
