@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never write in an email to someone, something which you wouldn't say to that person's face.
+Try buying a coffee for the creator of a free public API, now and then.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
