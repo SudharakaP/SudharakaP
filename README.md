@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't cross the streams.
+You will always regret the round of JÃ¤germeister.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
