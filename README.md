@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try buying a coffee for the creator of a free public API, now and then.
+The most delicious cocktails often have the highest alcohol content. Always pace yourself to preserve your dignity.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
