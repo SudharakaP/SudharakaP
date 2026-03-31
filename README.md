@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Once you find a really good friend don't do anything that could mess up your friendship.
+Do a bit more for your friends.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
