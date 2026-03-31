@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you're squashed close to strangers on public transport, try not to be rude to them. No one likes those situations.
+Never run with scissors.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
