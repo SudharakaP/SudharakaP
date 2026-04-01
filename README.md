@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Sometimes it's best to ignore other people's advice.
+Do a bit more for your friends.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
