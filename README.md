@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You're not as fat as you think you are.
+Do, or do not. There is no try.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
