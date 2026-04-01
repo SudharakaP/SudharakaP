@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When you're looking up at birds flying overhead, keep your mouth closed.
+Do not compare yourself with others.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
