@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When something goes wrong in life, just shout \plot twist!\ and carry on.
+Put a piece of kitchen roll in with your bag of leaves to make them last longer.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
