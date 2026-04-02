@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It is easy to sit up and take notice, what's difficult is getting up and taking action.
+If you don't like the opinion you've been given, get another one.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
