@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It is easy to sit up and take notice, what's difficult is getting up and taking action.
+Never waste an opportunity to tell someone you love them.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
