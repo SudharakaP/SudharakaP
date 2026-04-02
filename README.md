@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Lemon and salt works wonders on tarnished brass.
+Look people in the eye.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
