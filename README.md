@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Sing in the shower.
+When hugging, hug with both arms and apply reasonable, affectionate pressure.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
