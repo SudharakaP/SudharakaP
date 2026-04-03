@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When hugging, hug with both arms and apply reasonable, affectionate pressure.
+When having a clear out, ask yourself if an item has any financial, practical or sentimental value. If not, chuck it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
