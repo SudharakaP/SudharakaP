@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Brush your teeth the moment you get up.
+It always seems impossible, until it's done.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
