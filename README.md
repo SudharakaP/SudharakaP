@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Fail. Fail again. Fail better.
+The person who never made a mistake never made anything.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
