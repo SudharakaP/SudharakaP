@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't always rely on your comforts.
+Eat food. Not too much, mostly plants.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
