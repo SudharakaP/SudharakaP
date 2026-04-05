@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never waste an opportunity to tell someone you love them.
+If you get stuck, try doing the opposite of what the solution requires.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
