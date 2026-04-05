@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Opinions are like arseholes, everyone has one.
+Never waste an opportunity to tell someone you love them.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
