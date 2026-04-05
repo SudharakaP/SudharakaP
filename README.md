@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The quieter you become, the more you can hear.
+Good things come to those who wait.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
