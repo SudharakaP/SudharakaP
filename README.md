@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't be afraid to ask questions.
+Don't burn bridges.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
