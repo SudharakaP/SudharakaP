@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Good advice is something a man gives when he is too old to set a bad example.
+It's not about who likes you, it's about who you like.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
