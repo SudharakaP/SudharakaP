@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Avoid mixing Ginger Nuts with other biscuits, they contaminate. Keep separated.
+If you find yourself distressed about something, ask yourself if it will still matter tomorrow or next week or next month.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
