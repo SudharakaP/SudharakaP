@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When hugging, hug with both arms and apply reasonable, affectionate pressure.
+If you're going bald, don't comb your hair over your bald patch.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
