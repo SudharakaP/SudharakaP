@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The sun always shines above the clouds.
+Remedy tickly coughs with a drink of honey, lemon and water as hot as you can take.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
