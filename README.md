@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Do a bit more for your friends.
+Do not compare yourself with others.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
