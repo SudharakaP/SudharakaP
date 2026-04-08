@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you want to be happily married, marry a happy person.
+One of the top five regrets people have is that they didn't have the courage to be their true self.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
