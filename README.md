@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's unlucky to be superstitious.
+Don't give a speech. Put on a show.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
