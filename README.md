@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Play is the true mother of invention.
+Everything matters, but nothing matters that much.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
