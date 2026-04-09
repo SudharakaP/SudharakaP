@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's wrong to be right.
+Don't drink bleach.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
