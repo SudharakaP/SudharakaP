@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Giving someone a hug can be mutually rewarding. Try to give at least one hug a day to someone.
+When the cistern is filling, the seat is probably still warm.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
