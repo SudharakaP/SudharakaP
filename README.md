@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't drink bleach.
+Eliminate the unnecessary.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
