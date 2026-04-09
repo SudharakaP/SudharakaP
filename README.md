@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Alway do anything for love, but don't do that.
+Opinions are like arseholes, everyone has one.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
