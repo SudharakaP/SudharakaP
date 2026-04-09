@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's wrong to be right.
+Never let your Mother cut your hair.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
