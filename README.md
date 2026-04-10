@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't wear clean trousers when walking your dog in the park.
+The quieter you become, the more you can hear.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
