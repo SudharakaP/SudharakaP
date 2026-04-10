@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You don't need to floss all of your teeth. Only the ones you want to keep.
+It's not about who likes you, it's about who you like.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
