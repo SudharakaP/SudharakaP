@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never regret. If it's good, it's wonderful. If it's bad, it's experience.
+If you are feeling down, try holding a pencil between your top lip and your nose for five minutes.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
