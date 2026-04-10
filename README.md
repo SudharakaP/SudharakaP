@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You will always regret the round of JÃ¤germeister.
+Don't wear clean trousers when walking your dog in the park.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
