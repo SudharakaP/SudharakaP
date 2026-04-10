@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It always seems impossible, until it's done.
+Don't take it personally.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
