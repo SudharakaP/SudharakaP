@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Most things are not as bad as you think they are.
+Gratitude is said to be the secret to happiness.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
