@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Be a good lover.
+Don't burn bridges.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
