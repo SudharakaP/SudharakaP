@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Put a piece of kitchen roll in with your bag of leaves to make them last longer.
+If you think your headphones are dying, check the socket for fluff with a straightened paperclip.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
