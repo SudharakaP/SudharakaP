@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try to pay at least one person a compliment every day.
+You spend half your life asleep or in bed. It's worth spending money on a good mattress, decent pillows and a comfy duvet.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
