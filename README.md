@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you find yourself distressed about something, ask yourself if it will still matter tomorrow or next week or next month.
+Put a piece of kitchen roll in with your bag of leaves to make them last longer.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
