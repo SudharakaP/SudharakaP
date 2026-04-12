@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You can fail at what you don't want. So you might as well take a chance on doing what you love.
+If you're feeling tired or anxious, a pint of water will almost always make you feel better.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
