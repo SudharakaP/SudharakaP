@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When you're looking up at birds flying overhead, keep your mouth closed.
+If you find yourself distressed about something, ask yourself if it will still matter tomorrow or next week or next month.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
