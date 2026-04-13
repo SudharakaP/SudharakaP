@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Opinions are like arseholes, everyone has one.
+When faced with a choice, do both.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
