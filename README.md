@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Value the people in your life.
+Don't feed Mogwais after midnight.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
