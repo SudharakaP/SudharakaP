@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-State the problem in words as clearly as possible.
+No \brand\ is your friend.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
