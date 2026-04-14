@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If your hair is thinning, try dying your hair a similar tone to your scalp.
+Don't assume anything is possible or impossible until you've asked the people who will be doing the work.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
