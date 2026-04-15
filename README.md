@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Enjoy a little nonsense now and then.
+When you look around and don't see anyone you respect, its time to leave.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
