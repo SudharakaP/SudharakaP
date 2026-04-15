@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Learn to handle criticism.
+When faced with a choice, do both.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
