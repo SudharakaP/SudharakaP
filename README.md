@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When you look around and don't see anyone you respect, its time to leave.
+If you think nobody cares if you're alive, try missing a few payments.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
