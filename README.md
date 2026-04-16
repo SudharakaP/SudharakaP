@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The higher up you are in a company, the more likely it is that your boss is a psychopath.
+Don't assume anything is possible or impossible until you've asked the people who will be doing the work.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
