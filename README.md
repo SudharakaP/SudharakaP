@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When faced with a choice, do both.
+The sun always shines above the clouds.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
