@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Winter is coming.
+Only those who attempt the impossible can achieve the absurd.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
