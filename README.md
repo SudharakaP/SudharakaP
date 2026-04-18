@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always double check you actually attached the file to the email.
+It's not about who likes you, it's about who you like.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
