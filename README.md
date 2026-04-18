@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You will always regret the round of JÃ¤germeister.
+Don't judge a book by its cover, unless it has a synopsis on the back.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
