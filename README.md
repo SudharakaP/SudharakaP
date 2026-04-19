@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-One of the top five regrets people have is that they didn't stay in contact with friends.
+Today, do not use the words \Kind of\, \Sort of\ or \Maybe\. It either is or it isn't.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
