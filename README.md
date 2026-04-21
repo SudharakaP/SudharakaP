@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Identify sources of happiness.
+Plant a tree.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
