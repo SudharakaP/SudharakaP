@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Smile and the world smiles with you. Frown and you're on your own.
+One of the top five regrets people have is that they didn't have the courage to be their true self.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
