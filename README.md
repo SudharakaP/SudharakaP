@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always bet on black.
+Life is short enough, don't race to the finish.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
