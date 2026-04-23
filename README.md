@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It always seems impossible, until it's done.
+You will always regret the round of JÃ¤germeister.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
