@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Respect your elders.
+Giving someone a hug can be mutually rewarding. Try to give at least one hug a day to someone.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
