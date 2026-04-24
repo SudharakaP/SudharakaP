@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You can have too much of a good thing.
+It's always the quiet ones.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
