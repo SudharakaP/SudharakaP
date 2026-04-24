@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't always believe what you think.
+Identify sources of happiness.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
