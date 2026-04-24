@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't waste food.
+If you are feeling down, try holding a pencil between your top lip and your nose for five minutes.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
