@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Just because you are offended, doesn't mean you are right.
+You have as many hours in a day as the people you admire most.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
