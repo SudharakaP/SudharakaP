@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-One of the top five regrets people have is that they didn't have the courage to be their true self.
+Always seek out advice or opinions when making a decision.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
