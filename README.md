@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Pedantry is fine, unless you're on the receiving end. And not a pedant.
+As you get older, learn never to trust a fart.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
