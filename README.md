@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Step 1. Give a shit. Step 2. Don't be a dick. Step 3. Know when to let go.
+Try buying a coffee for the creator of a free public API, now and then.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
