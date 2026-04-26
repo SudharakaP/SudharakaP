@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Some people would be better off if they took their own advice.
+A long walk alone with some time to think, can work wonders.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
