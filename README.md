@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never waste an opportunity to tell someone you love them.
+The hardest things to say are usually the most important.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
