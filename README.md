@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Remember that spiders are more afraid of you, than you are of them.
+To improve productivity, always have a shittier task to put off.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
