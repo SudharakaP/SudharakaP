@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always the burrito.
+Good things come to those who wait.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
