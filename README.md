@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Eat food. Not too much, mostly plants.
+It is easy to sit up and take notice, what's difficult is getting up and taking action.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
