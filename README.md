@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you think nobody cares if you're alive, try missing a few payments.
+Life is short enough, don't race to the finish.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
