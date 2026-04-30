@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It always seems impossible, until it's done.
+The hardest things to say are usually the most important.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
