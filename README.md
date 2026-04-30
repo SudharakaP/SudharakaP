@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't use Excel or Powerpoint documents for your basic word processing needs.
+Gratitude is said to be the secret to happiness.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
