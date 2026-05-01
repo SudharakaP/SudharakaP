@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The more ideas that you give away, the more ideas that will come to you.
+When the cistern is filling, the seat is probably still warm.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
