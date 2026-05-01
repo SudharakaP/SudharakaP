@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Just because you are offended, doesn't mean you are right.
+If you don't want something to be public, don't post it on the Internet.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
