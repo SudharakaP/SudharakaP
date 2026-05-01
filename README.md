@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Things are just things. Don't get too attached to them.
+The more ideas that you give away, the more ideas that will come to you.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
