@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you have the chance, take it!
+One of the top five regrets people have is that they didn't have the courage to be their true self.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
