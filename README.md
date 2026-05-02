@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Most things look better when you put them in a circle.
+Learn from your mistakes.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
