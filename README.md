@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Only those who attempt the impossible can achieve the absurd.
+Remember that spiders are more afraid of you, than you are of them.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
