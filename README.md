@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't use Excel or Powerpoint documents for your basic word processing needs.
+Pedantry is fine, unless you're on the receiving end. And not a pedant.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
