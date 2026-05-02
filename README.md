@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you can't do anything about it, there's no point in worrying about it.
+One of the top five regrets people have is that they didn't stay in contact with friends.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
