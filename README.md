@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The quieter you become, the more you can hear.
+If you can't do anything about it, there's no point in worrying about it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
