@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Hold the door open for the next person.
+When having a clear out, ask yourself if an item has any financial, practical or sentimental value. If not, chuck it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
