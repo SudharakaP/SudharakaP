@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Visitors are like fish: As much as you might like them, after three days they start to smell.
+The most important thing is the thing most easily forgotten.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
