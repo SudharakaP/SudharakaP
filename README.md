@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A common regret in life is wishing one had the courage to be ones true self.
+Share positive energy.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
