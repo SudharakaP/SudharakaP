@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Give up your seat for someone who needs it.
+If you want to be happily married, marry a happy person.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
