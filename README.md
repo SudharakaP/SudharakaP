@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Always seek out advice or opinions when making a decision.
+Never waste an opportunity to tell someone you love them.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
