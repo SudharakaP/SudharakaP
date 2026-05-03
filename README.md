@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The most important thing is the thing most easily forgotten.
+It always seems impossible, until it's done.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
