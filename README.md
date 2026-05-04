@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you don't like the opinion you've been given, get another one.
+Brush your teeth the moment you get up.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
