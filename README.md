@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Vinegar is a powerful cleaning agent.
+To improve productivity, always have a shittier task to put off.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
