@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Everything in moderation, including moderation itself.
+Give up your seat for someone who needs it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
