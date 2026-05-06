@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When you're at a concert or event, enjoy the moment, enjoy being there. Try leaving your camera in your pocket.
+If you're squashed close to strangers on public transport, try not to be rude to them. No one likes those situations.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
