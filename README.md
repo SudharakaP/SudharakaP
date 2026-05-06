@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Do, or do not. There is no try.
+Don't judge a book by its cover, unless it has a synopsis on the back.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
