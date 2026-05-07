@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Most things done in secrecy are better left undone.
+The more ideas that you give away, the more ideas that will come to you.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
