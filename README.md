@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't eat anything your grandparents wouldn't recognise as food.
+Most things done in secrecy are better left undone.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
