@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you have grandparents or parents - Talk to them more. Ask them about their life experiences.
+Just because you are offended, doesn't mean you are right.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
