@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Smile and the world smiles with you. Frown and you're on your own.
+Once you find a really good friend don't do anything that could mess up your friendship.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
