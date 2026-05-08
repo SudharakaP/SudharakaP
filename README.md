@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Once in a while, eat some sweets you used to enjoy when you were younger.
+If you have grandparents or parents - Talk to them more. Ask them about their life experiences.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
