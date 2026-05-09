@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Pedantry is fine, unless you're on the receiving end. And not a pedant.
+If you've nothing nice to say, say nothing.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
