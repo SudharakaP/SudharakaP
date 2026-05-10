@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you're feeling tired or anxious, a pint of water will almost always make you feel better.
+For every complex problem there is an answer that is clear, simple, and wrong.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
