@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Everyone has their down days. Don't take it out on innocent bystanders.
+Do not seek praise, seek criticism.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
