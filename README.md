@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Some of life's best lessons are learnt at the worst times.
+The person who never made a mistake never made anything.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
