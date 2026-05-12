@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Taking photos with tablet devices looks weird.
+Never cut your own fringe.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
