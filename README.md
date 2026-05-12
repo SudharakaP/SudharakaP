@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It always seems impossible, until it's done.
+Don't waste food.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
