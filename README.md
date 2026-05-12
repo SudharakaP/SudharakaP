@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't eat anything your grandparents wouldn't recognise as food.
+Lemon and salt works wonders on tarnished brass.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
