@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A common regret in life is wishing one hadn't worked so hard.
+The person who never made a mistake never made anything.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
