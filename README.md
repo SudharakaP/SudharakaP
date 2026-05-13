@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Cars are bad investments.
+Always bet on black.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
