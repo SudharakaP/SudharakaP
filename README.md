@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Take time once in a while to look up at the stars for at least 5 minutes, in order to comprehend your cosmic significance.
+Try to do the things that you're incapable of.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
