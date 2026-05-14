@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A problem shared is a problem halved.
+As you get older, learn never to trust a fart.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
