@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you want to be happily married, marry a happy person.
+When in doubt, just take the next small step.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
