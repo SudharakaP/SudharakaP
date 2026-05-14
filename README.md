@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Sometimes it's best to ignore other people's advice.
+Always bet on black.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
