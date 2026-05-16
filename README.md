@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You don't need to floss all of your teeth. Only the ones you want to keep.
+Don't use Excel or Powerpoint documents for your basic word processing needs.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
