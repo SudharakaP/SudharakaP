@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't assume anything is possible or impossible until you've asked the people who will be doing the work.
+You don't need to floss all of your teeth. Only the ones you want to keep.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
