@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't give a speech. Put on a show.
+Don't promise what you can't deliver.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
