@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Turn jeans inside out when washing them to help preserve their colour.
+You don't need to floss all of your teeth. Only the ones you want to keep.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
