@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Do not seek praise, seek criticism.
+Always block trolls.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
