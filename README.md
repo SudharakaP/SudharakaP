@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Take time once in a while to look up at the stars for at least 5 minutes, in order to comprehend your cosmic significance.
+If you're squashed close to strangers on public transport, try not to be rude to them. No one likes those situations.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
