@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Enjoy a little nonsense now and then.
+The best sex is fun.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
