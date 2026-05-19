@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you think your headphones are dying, check the socket for fluff with a straightened paperclip.
+There is no reason at all to believe that White Wine is any different to water when it comes to removing Red Wine stains.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
