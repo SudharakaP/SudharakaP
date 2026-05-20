@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You will always regret the round of JÃ¤germeister.
+Brush your teeth the moment you get up.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
