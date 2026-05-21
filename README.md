@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Visitors are like fish: As much as you might like them, after three days they start to smell.
+To cleanly remove the seed from an Avocado, lay a knife firmly across it, and twist.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
