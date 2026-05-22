@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Just because you are offended, doesn't mean you are right.
+State the problem in words as clearly as possible.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
