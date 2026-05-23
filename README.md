@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A long walk alone with some time to think, can work wonders.
+If it still itches after a week, go to the doctors.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
