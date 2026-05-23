@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try to pay at least one person a compliment every day.
+A long walk alone with some time to think, can work wonders.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
