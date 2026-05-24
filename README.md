@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The number of vampires in the average home, is directly proportional to the amount of garlic bread in the fridge.
+You don't need to floss all of your teeth. Only the ones you want to keep.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
