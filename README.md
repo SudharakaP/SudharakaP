@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The hardest things to say are usually the most important.
+To cleanly remove the seed from an Avocado, lay a knife firmly across it, and twist.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
