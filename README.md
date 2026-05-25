@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When you're looking up at birds flying overhead, keep your mouth closed.
+Vinegar is a powerful cleaning agent.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
