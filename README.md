@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If it ain't broke don't fix it.
+Things are just things. Don't get too attached to them.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
