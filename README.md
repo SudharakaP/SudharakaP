@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You're not as fat as you think you are.
+There is no reason at all to believe that White Wine is any different to water when it comes to removing Red Wine stains.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
