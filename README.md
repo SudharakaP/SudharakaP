@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-True happiness always resides in the quest.
+A problem shared is a problem halved.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
