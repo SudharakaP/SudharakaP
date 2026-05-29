@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't put off breaking up with someone when you know you want to. Prolonging the situation only makes it worse.
+Your smile could make someone's day, don't forget to wear it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
