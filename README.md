@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-A common regret in life is wishing one hadn't worked so hard.
+Put a piece of kitchen roll in with your bag of leaves to make them last longer.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
