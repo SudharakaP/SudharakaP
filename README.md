@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try to pay at least one person a compliment every day.
+Everything in moderation, including moderation itself.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
