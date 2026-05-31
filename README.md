@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Fail. Fail again. Fail better.
+When you look around and don't see anyone you respect, its time to leave.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
