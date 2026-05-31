@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's not about who likes you, it's about who you like.
+If you're going bald, don't comb your hair over your bald patch.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
