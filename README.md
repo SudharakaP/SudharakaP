@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You're not that important; it's what you do that counts.
+Only those who attempt the impossible can achieve the absurd.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
