@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Enjoy a little nonsense now and then.
+Don't take life too seriously.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
