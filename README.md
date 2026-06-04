@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Visitors are like fish: As much as you might like them, after three days they start to smell.
+A problem shared is a problem halved.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
