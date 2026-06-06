@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you're squashed close to strangers on public transport, try not to be rude to them. No one likes those situations.
+If you are ever in doubt about whether or not to wash your hair: Wash it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
