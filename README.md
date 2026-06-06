@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-No one knows anyone else in the way you do.
+A common regret in life is wishing one hadn't worked so hard.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
