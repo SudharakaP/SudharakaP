@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The higher up you are in a company, the more likely it is that your boss is a psychopath.
+If you think your headphones are dying, check the socket for fluff with a straightened paperclip.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
