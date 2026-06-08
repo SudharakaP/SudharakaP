@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Measure twice, cut once.
+Opinions are like arseholes, everyone has one.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
