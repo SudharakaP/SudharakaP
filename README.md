@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The higher up you are in a company, the more likely it is that your boss is a psychopath.
+One of the single best things about being an adult, is being able to buy as much LEGO as you want.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
