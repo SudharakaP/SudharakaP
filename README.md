@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Why wait until valentines day for a romantic gesture?
+If you find yourself distressed about something, ask yourself if it will still matter tomorrow or next week or next month.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
