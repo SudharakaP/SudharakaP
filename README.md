@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Give up your seat for someone who needs it.
+If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
