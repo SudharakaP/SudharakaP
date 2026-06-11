@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-One of the top five regrets people have is that they didn't have the courage to be their true self.
+The higher up you are in a company, the more likely it is that your boss is a psychopath.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
