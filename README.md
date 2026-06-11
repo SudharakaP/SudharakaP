@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Build something out of LEGO.
+You will always regret the round of JÃ¤germeister.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
