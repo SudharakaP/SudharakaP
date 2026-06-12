@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Give up your seat for someone who needs it.
+If you've nothing nice to say, say nothing.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
