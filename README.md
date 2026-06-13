@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Your smile could make someone's day, don't forget to wear it.
+Never waste an opportunity to tell someone you love them.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
