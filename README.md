@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You can have too much of a good thing.
+If you're squashed close to strangers on public transport, try not to be rude to them. No one likes those situations.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
