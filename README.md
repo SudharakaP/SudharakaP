@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You're not as fat as you think you are.
+If you're going bald, don't comb your hair over your bald patch.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
