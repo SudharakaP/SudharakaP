@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-As you get older, learn never to trust a fart.
+As things get closer to the light, the shadows get darker.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
