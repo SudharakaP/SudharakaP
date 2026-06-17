@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never run a marathon in Crocs.
+You will always regret the round of Tequila.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
