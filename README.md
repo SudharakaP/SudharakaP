@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Sometimes it's best to ignore other people's advice.
+A problem shared is a problem halved.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
