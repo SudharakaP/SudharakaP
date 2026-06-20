@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You're not that important; it's what you do that counts.
+It's not about who likes you, it's about who you like.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
