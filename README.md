@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never run with scissors.
+Just because you are offended, doesn't mean you are right.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
