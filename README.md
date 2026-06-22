@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Turn jeans inside out when washing them to help preserve their colour.
+Today, do not use the words \Kind of\, \Sort of\ or \Maybe\. It either is or it isn't.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
