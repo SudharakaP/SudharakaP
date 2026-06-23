@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Happiness is a journey, not a destination.
+Quality beats quantity.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
