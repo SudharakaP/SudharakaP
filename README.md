@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Your smile could make someone's day, don't forget to wear it.
+If you are ever in doubt about whether or not to wash your hair: Wash it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
