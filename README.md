@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Today, do not use the words \Kind of\, \Sort of\ or \Maybe\. It either is or it isn't.
+If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
