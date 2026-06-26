@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you find yourself distressed about something, ask yourself if it will still matter tomorrow or next week or next month.
+Step 1. Give a shit. Step 2. Don't be a dick. Step 3. Know when to let go.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
