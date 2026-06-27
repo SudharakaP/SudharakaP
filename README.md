@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The most delicious cocktails often have the highest alcohol content. Always pace yourself to preserve your dignity.
+Pedantry is fine, unless you're on the receiving end. And not a pedant.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
