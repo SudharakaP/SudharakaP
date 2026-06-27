@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-As you get older, learn never to trust a fart.
+It always seems impossible, until it's done.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
