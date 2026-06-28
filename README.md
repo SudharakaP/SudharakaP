@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When something goes wrong in life, just shout \plot twist!\ and carry on.
+Don't give to others advice which you wouldn't follow.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
