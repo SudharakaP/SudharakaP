@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't promise what you can't deliver.
+Do something selfless.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
