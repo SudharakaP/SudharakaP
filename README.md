@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't put off breaking up with someone when you know you want to. Prolonging the situation only makes it worse.
+Only those who attempt the impossible can achieve the absurd.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
