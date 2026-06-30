@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Everyone has their down days. Don't take it out on innocent bystanders.
+Don't use Excel or Powerpoint documents for your basic word processing needs.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
