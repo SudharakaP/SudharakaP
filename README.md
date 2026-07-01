@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you're going bald, don't comb your hair over your bald patch.
+Happiness is a journey, not a destination.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
