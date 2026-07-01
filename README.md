@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you think nobody cares if you're alive, try missing a few payments.
+Pedantry is fine, unless you're on the receiving end. And not a pedant.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
