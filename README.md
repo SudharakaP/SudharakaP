@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Hold the door open for the next person.
+Never run with scissors.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
