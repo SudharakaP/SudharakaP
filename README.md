@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Most things are not as bad as you think they are.
+Sometimes, you just need to say sorry. Even if it's not your fault.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
