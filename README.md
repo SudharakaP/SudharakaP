@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When in doubt, just take the next small step.
+Walking is a perfectly valid solution to traffic congestion problems.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
