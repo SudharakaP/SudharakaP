@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Walking is a perfectly valid solution to traffic congestion problems.
+The quieter you become, the more you can hear.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
