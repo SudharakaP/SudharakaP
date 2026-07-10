@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Accentuate the positive, eliminate the negative.
+What could you increase? What could you reduce?
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
