@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't assume anything is possible or impossible until you've asked the people who will be doing the work.
+It is easy to sit up and take notice, what's difficult is getting up and taking action.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
