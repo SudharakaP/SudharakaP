@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-One of the top five regrets people have is that they didn't stay in contact with friends.
+If you're squashed close to strangers on public transport, try not to be rude to them. No one likes those situations.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
