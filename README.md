@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When something goes wrong in life, just shout \plot twist!\ and carry on.
+Everything matters, but nothing matters that much.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
