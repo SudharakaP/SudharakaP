@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Pedantry is fine, unless you're on the receiving end. And not a pedant.
+The person who never made a mistake never made anything.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
