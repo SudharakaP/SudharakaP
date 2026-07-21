@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Take time once in a while to look up at the stars for at least 5 minutes, in order to comprehend your cosmic significance.
+Giving someone a hug can be mutually rewarding. Try to give at least one hug a day to someone.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
