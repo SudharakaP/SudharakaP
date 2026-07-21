@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you're squashed close to strangers on public transport, try not to be rude to them. No one likes those situations.
+If you're feeling tired or anxious, a pint of water will almost always make you feel better.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
