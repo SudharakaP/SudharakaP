@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The quieter you become, the more you can hear.
+Most things done in secrecy are better left undone.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
