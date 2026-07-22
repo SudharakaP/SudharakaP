@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't be afraid of silly ideas.
+Learn from your mistakes.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
