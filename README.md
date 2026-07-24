@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never cut your own fringe.
+As things get closer to the light, the shadows get darker.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
