@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Give up your seat for someone who needs it.
+Never run a marathon in Crocs.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
