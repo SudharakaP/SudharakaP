@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you get stuck, try doing the opposite of what the solution requires.
+Give up your seat for someone who needs it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
