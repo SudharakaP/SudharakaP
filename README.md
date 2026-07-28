@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Rule number 1: Try not to die. Rule number 2: Don't be a dick.
+Put a piece of kitchen roll in with your bag of leaves to make them last longer.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
