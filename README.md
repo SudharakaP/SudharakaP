@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Have a firm handshake.
+Turn jeans inside out when washing them to help preserve their colour.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
