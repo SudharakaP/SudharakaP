@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-What could you increase? What could you reduce?
+Do not compare yourself with others.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
