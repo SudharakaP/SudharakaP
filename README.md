@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-No \brand\ is your friend.
+True happiness always resides in the quest.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
