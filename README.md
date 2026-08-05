@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Only those who attempt the impossible can achieve the absurd.
+It is easy to sit up and take notice, what's difficult is getting up and taking action.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
