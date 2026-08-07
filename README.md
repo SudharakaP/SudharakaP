@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try going commando to an important meeting, NB: don't wear a skirt.
+You're not that important; it's what you do that counts.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
