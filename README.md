@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Good things come to those who wait.
+Turn jeans inside out when washing them to help preserve their colour.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
