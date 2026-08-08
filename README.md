@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's wrong to be right.
+If it still itches after a week, go to the doctors.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
