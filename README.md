@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Most things done in secrecy are better left undone.
+The sun always shines above the clouds.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
