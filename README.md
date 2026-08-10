@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When the cistern is filling, the seat is probably still warm.
+Stop using the term \busy\ as an excuse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
