@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You spend half your life asleep or in bed. It's worth spending money on a good mattress, decent pillows and a comfy duvet.
+A nod is as good as a wink to a blind horse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
