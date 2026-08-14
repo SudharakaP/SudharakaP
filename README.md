@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try to pay at least one person a compliment every day.
+Don't try and bump start a motorcycle on an icy road.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
