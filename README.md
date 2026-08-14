@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't try and bump start a motorcycle on an icy road.
+When something goes wrong in life, just shout \plot twist!\ and carry on.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
