@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The sun always shines above the clouds.
+Never cut your own fringe.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
