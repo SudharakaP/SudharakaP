@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Eat food. Not too much, mostly plants.
+Gratitude is said to be the secret to happiness.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
