@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Remedy tickly coughs with a drink of honey, lemon and water as hot as you can take.
+Gratitude is said to be the secret to happiness.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
