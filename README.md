@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Value the people in your life.
+Never write in an email to someone, something which you wouldn't say to that person's face.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
