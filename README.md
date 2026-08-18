@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You're not that important; it's what you do that counts.
+If you think your headphones are dying, check the socket for fluff with a straightened paperclip.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
