@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try going commando to an important meeting, NB: don't wear a skirt.
+It's not about who likes you, it's about who you like.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
