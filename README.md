@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Alway do anything for love, but don't do that.
+Do something selfless.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
