@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's not about who likes you, it's about who you like.
+The higher up you are in a company, the more likely it is that your boss is a psychopath.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
