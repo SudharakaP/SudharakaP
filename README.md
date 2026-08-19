@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Be brave. Even if you're not, pretend to be. No one can tell the difference.
+If you don't want something to be public, don't post it on the Internet.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
