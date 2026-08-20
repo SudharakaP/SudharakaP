@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Giving someone a hug can be mutually rewarding. Try to give at least one hug a day to someone.
+You spend half your life asleep or in bed. It's worth spending money on a good mattress, decent pillows and a comfy duvet.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
