@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't judge a book by its cover, unless it has a synopsis on the back.
+When you're at a concert or event, enjoy the moment, enjoy being there. Try leaving your camera in your pocket.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
