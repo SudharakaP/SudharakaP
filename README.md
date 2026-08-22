@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-To cleanly remove the seed from an Avocado, lay a knife firmly across it, and twist.
+A nod is as good as a wink to a blind horse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
