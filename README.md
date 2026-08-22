@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never regret. If it's good, it's wonderful. If it's bad, it's experience.
+Rule number 1: Try not to die. Rule number 2: Don't be a dick.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
