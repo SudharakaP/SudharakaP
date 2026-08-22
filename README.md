@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you have grandparents or parents - Talk to them more. Ask them about their life experiences.
+Most things done in secrecy are better left undone.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
