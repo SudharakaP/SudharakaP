@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try to not compliment people on things they don't control.
+What could you increase? What could you reduce?
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
