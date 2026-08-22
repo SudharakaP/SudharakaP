@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Everything matters, but nothing matters that much.
+Don't always believe what you think.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
