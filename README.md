@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Rule number 1: Try not to die. Rule number 2: Don't be a dick.
+Be brave. Even if you're not, pretend to be. No one can tell the difference.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
