@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Quality beats quantity.
+Turn jeans inside out when washing them to help preserve their colour.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
