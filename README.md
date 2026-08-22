@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Turn jeans inside out when washing them to help preserve their colour.
+Do not check work email on your days off.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
