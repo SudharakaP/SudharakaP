@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Gratitude is said to be the secret to happiness.
+It is easy to sit up and take notice, what's difficult is getting up and taking action.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
