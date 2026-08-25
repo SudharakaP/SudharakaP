@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-It's not about who likes you, it's about who you like.
+Do not check work email on your days off.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
