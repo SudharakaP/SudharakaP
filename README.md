@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You can fail at what you don't want. So you might as well take a chance on doing what you love.
+The best nights out are when people around you are simply having fun.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
