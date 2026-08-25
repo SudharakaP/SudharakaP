@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You have as many hours in a day as the people you admire most.
+Avoid mixing Ginger Nuts with other biscuits, they contaminate. Keep separated.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
