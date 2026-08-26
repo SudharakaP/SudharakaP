@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you think your headphones are dying, check the socket for fluff with a straightened paperclip.
+You don't need to floss all of your teeth. Only the ones you want to keep.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
