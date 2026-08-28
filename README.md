@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you have grandparents or parents - Talk to them more. Ask them about their life experiences.
+You can fail at what you don't want. So you might as well take a chance on doing what you love.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
