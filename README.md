@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You have as many hours in a day as the people you admire most.
+If you've nothing nice to say, say nothing.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
