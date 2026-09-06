@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-State the problem in words as clearly as possible.
+Your smile could make someone's day, don't forget to wear it.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
