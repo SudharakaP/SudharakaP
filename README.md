@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Don't eat anything your grandparents wouldn't recognise as food.
+To cleanly remove the seed from an Avocado, lay a knife firmly across it, and twist.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
