@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-One of the single best things about being an adult, is being able to buy as much LEGO as you want.
+If you are feeling down, try holding a pencil between your top lip and your nose for five minutes.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
