@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Never write in an email to someone, something which you wouldn't say to that person's face.
+The more ideas that you give away, the more ideas that will come to you.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
