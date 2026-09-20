@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-When something goes wrong in life, just shout \plot twist!\ and carry on.
+Turn jeans inside out when washing them to help preserve their colour.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
