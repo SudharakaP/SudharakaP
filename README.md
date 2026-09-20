@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Turn jeans inside out when washing them to help preserve their colour.
+Visitors are like fish: As much as you might like them, after three days they start to smell.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
