@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you have grandparents or parents - Talk to them more. Ask them about their life experiences.
+When something goes wrong in life, just shout \plot twist!\ and carry on.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
