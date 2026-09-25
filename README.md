@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-You spend half your life asleep or in bed. It's worth spending money on a good mattress, decent pillows and a comfy duvet.
+Don't put off breaking up with someone when you know you want to. Prolonging the situation only makes it worse.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
