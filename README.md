@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-State the problem in words as clearly as possible.
+Don't use Excel or Powerpoint documents for your basic word processing needs.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
