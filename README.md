@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Try buying a coffee for the creator of a free public API, now and then.
+Visitors are like fish: As much as you might like them, after three days they start to smell.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
