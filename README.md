@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Hold the door open for the next person.
+Just because you are offended, doesn't mean you are right.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
