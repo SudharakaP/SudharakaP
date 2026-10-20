@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Winter is coming.
+Don't ever name files or folders using the word \Final\.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
