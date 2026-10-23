@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-The most delicious cocktails often have the highest alcohol content. Always pace yourself to preserve your dignity.
+To improve productivity, always have a shittier task to put off.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
