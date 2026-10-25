@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Some of life's best lessons are learnt at the worst times.
+Respect other people's opinions, even when they differ from your own.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
