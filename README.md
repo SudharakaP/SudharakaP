@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Age is of no importance, unless you are a cheese.
+Play is the true mother of invention.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
