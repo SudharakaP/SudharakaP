@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Life is better when you sing about bananas.
+It is easy to sit up and take notice, what's difficult is getting up and taking action.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
