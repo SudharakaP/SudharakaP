@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Do not check work email on your days off.
+Life is short enough, don't race to the finish.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
