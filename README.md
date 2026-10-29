@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Avoid mixing Ginger Nuts with other biscuits, they contaminate. Keep separated.
+If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
