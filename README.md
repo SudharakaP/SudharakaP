@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Some people would be better off if they took their own advice.
+Happiness is a journey, not a destination.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
