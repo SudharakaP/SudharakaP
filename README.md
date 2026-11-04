@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-One of the single best things about being an adult, is being able to buy as much LEGO as you want.
+When in doubt, just take the next small step.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
