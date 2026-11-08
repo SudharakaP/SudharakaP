@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Walking is a perfectly valid solution to traffic congestion problems.
+Most things look better when you put them in a circle.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
