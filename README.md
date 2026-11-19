@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-If you don't want something to be public, don't post it on the Internet.
+The more ideas that you give away, the more ideas that will come to you.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
