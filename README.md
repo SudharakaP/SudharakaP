@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Good things come to those who wait.
+Don't try and bump start a motorcycle on an icy road.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
