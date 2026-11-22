@@ -1,5 +1,5 @@
 ## 🦉 Hello! Some random advice... 🦉
-Brush your teeth the moment you get up.
+Try to not compliment people on things they don't control.
 
 
 <sup>(come back in 5 minutes for the next piece of advice)</sup>
